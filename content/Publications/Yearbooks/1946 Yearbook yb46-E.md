@@ -1,0 +1,9640 @@
+---
+title: 1946 Yearbook (yb46-E)
+pages: 417
+tags:
+  - Yearbooks
+publish: true
+---
+
+<sup>**Page 1**</sup>
+
+[Open Page 1 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=1)
+
+1946
+
+# YEARBOOK
+
+OF
+
+# JEHOVAH'S WITNESSES
+
+---
+
+<sup>**Page 2**</sup>
+
+[Open Page 2 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=2)
+
+# 1946
+
+YEARBOOK
+of Jehovah's witnesses
+containing report
+for the service year of 1945
+Also daily texts and comments
+
+![img-0.jpeg](img-0.jpeg)
+
+_Corporate Publishers_
+
+Watch Tower Bible & Tract Society
+Watchtower Bible and Tract Society, Inc.
+International Bible Students Association
+
+124 Columbia Heights
+Brooklyn 2, N. Y., U. S. A.
+
+Branch offices appear on last page
+
+Copyright, 1945, by
+Watch Tower Bible & Tract Society
+
+Made in the United States of America
+
+---
+
+<sup>**Page 3**</sup>
+
+[Open Page 3 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=3)
+
+# WATCH TOWER BIBLE & TRACT SOCIETY
+
+OFFICERS
+
+N. H. KNORR
+
+President
+
+F. W. FRANZ
+
+Vice-President
+
+W. E. VAN AMBURGH
+
+Secretary and Treasurer
+
+# WATCHTOWER BIBLE AND TRACT SOCIETY, INC.
+
+OFFICERS
+
+N. H. KNORR
+
+President
+
+H. C. COVINGTON
+
+Vice-President
+
+W. E. VAN AMBURGH
+
+Secretary and Treasurer
+
+# INTERNATIONAL BIBLE STUDENTS ASSOCIATION
+
+OFFICERS
+
+N. H. KNORR
+
+President
+
+JESSE HEMERY
+
+Vice-President
+
+E. C. CHITTY
+
+Secretary
+
+W. E. VAN AMBURGH
+
+Ass't Secretary and Treasurer
+
+---
+
+<sup>**Page 4**</sup>
+
+[Open Page 4 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=4)
+
+## INDEX OF COUNTRIES
+
+|   | Page  |
+| --- | --- |
+|  Alaska | 63  |
+|  Argentina | 65  |
+|  Australia | 68  |
+|  Austria | 77  |
+|  Belgium | 92  |
+|  Bermuda and the Bahamas | 55  |
+|  Brazil | 78  |
+|  British Guiana | 82  |
+|  British Honduras | 61  |
+|  British Isles | 86  |
+|  British West Indies | 58  |
+|  Canada | 96  |
+|  Chile | 104  |
+|  China | 108  |
+|  Colombia, South America | 62  |
+|  Costa Rica | 109  |
+|  Cuba | 113  |
+|  Cyprus | 64  |
+|  Czechoslovakia | 117  |
+|  Denmark | 120  |
+|  Dominican Republic | 58  |
+|  Egypt | 63  |
+|  El Salvador | 61  |
+|  Fiji, Java, and Thailand | 73  |
+|  Finland | 124  |
+|  France | 127  |
+|  Germany | 131  |
+|  Greece | 139  |
+|  Guadeloupe, Republic of France | 59  |
+|  Guatemala | 160  |
+|  Haiti | 67  |
+
+---
+
+<sup>**Page 5**</sup>
+
+[Open Page 5 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=5)
+
+# INDEX OF COUNTRIES
+
+|   | Page  |
+| --- | --- |
+|  Hawaiian Islands | 141  |
+|  Hungary | 143  |
+|  Iceland | 54  |
+|  India | 144  |
+|  Italy | 149  |
+|  Jamaica | 151  |
+|  Luxembourg | 96  |
+|  Mexico | 153  |
+|  Netherlands Guiana, South America | 63  |
+|  Netherlands, The | 161  |
+|  Netherlands West Indies | 59  |
+|  Newfoundland | 170  |
+|  New Zealand | 74  |
+|  Norway | 172  |
+|  Palestine | 65  |
+|  Panama and Canal Zone | 59  |
+|  Paraguay | 68  |
+|  Philippine Islands | 175  |
+|  Poland | 179  |
+|  Puerto Rico | 56  |
+|  Rumania | 182  |
+|  South Africa | 183  |
+|  Sweden | 195  |
+|  Switzerland | 198  |
+|  Syria and Lebanon | 64  |
+|  Trinidad | 203  |
+|  United States | 41  |
+|  Uruguay | 206  |
+|  Venezuela | 63  |
+|  West Africa | 209  |
+|  Yugoslavia | 212  |
+
+---
+
+<sup>**Page 6**</sup>
+
+[Open Page 6 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=6)
+
+1946
+
+## YEARBOOK
+
+### of Jehovah's witnesses
+
+JEHOVAH'S witnesses rejoice and are glad for the privileges granted them of honoring Jehovah's name and speaking forth his Word during the service year 1945. Under the leadership of their Commander, Christ Jesus, they look forward to the piling up of an even greater 'heap of witness' world-wide during 1946. This can be accomplished only by His grace. (1 Cor. 15:10) Jehovah's witnesses appreciate the protection and saving power of their Creator, and, full of confidence in him, will continue to press on against all opposition with greater zeal than ever before, preaching 'The kingdom of heaven is at hand'. —Matt. 10:7.
+
+Lovers of truth and righteousness know that the rulers of 'this present evil world' have always tried to suppress truth. Jesus said: 'Thy word is truth.' (John 17:17) Because of the Son of God's outspokenness in declaring his Father's word, he was persecuted, blasphemed, unjustly treated, and finally killed by being nailed to a tree. All that Jesus did to warrant such treatment was preach truth; for he would not preach the things that pleased the rulers of the world—the religionists, the commercial men, and the politicians. The truth he taught the people was that which the clergy should have been proclaiming. They failed miserably! His disciples, on the other hand, talked God's message and 'went every where preaching the word'. (Acts 8:4) Jehovah's witnesses of today herald forth the same message and meet up with the same opposition, because the truth concerning Jehovah's kingdom is not according to the teach-
+
+5
+
+---
+
+<sup>**Page 7**</sup>
+
+[Open Page 7 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=7)
+
+6
+
+Yearbook
+
+ings of the governments of this world. Jesus himself stated, 'My kingdom is not of this world.'—John 18:36.
+
+Christian men and women down through the centuries, because of preaching the truth and faithfully proclaiming God's Word, have been thrown to the lions, burned at the stake, forced to hide and live in catacombs, and even compelled to flee from country to country. Some say: 'Of course, those things happened centuries ago, when the world was not so civilized as it is today. Men today have more knowledge; people are better educated.' Has the world become more liberal in its expression for freedom of speech? Are not men in lust of power, and men with power, just as much afraid of the truth today as those who lived in ages past? Men bent on self-aggrandizement fear truth and its announcement! God's Word is here again proved right; for it states: 'For everyone who does wrong hates the light and will not come to it, for fear his actions will be exposed. But everyone who is living the truth will come to the light, to show that his actions have been performed in dependence upon God.'—John 3:20, 21, _Goodspeed_.
+
+Rulers have not changed, neither have the ruled. A world dominated by religion, commerce and politics will always be selfish. The proud and haughty will not follow the great Teacher's advice to 'love thy neighbour as thyself'. They can't, because they are like the Pharisees who followed the 'traditions of their fathers'; and, more important, because Satan the Devil 'the god of this world hath blinded the minds of the unbelieving, that the light of the gospel . . . should not dawn upon them'. (2 Cor. 4:4, _Am. Stan. Ver._) In proof that men have not changed or improved the governments of this world, look at it!
+
+#### TRYING TO BREAK INTEGRITY
+
+For the very simple reason of preaching God's Word of truth in lands throughout the world, Jehovah's witnesses have received the worst kind of treat-
+
+---
+
+<sup>**Page 8**</sup>
+
+[Open Page 8 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=8)
+
+Yearbook
+
+7
+
+ment. Thousands of men, women and children have spent from one to ten years in German concentration camps. They have been tortured, lived a life of slow starvation, the flesh and bones of many shrinking away until they died. Why such living? Because in this “civilized” world they refused to “heil” Hitler or any other man as a savior. Others have been separated from children, husbands from wives, one being sent to one country and the other to another, a husband to one concentration camp and the wife to another. Years go by. No communication, no word, no kindness from the Gestapo; just debauchery, filth, a wretched condition in a land of the “master race”. Labor camps were frightful. Men and women were forced to work twelve to fourteen hours daily, with very meager food rations. Sometimes they were forced to live on leaves of trees and bushes or the grass of the field. Just enough morsels of food were given to these integrity-keeping people to sustain life, so that they might work a little longer.
+
+The fiends that ran the “Christian” government of Germany, at the time when Catholics claimed that eighty percent of the population was of their faith, hunted out Jehovah’s witnesses in all parts of that land and in conquered territories, for the purpose of destroying them. How like the Pharisees of Jesus’ day, who did not want him to live either! Why not? Because he spoke the truth; so Jehovah’s witnesses of today speak the truth. Did the religionists that “heiled” Hitler and supported his program of cruelty, torture, and mass murder expect this time to succeed in breaking Jehovah’s witnesses, as they had tried to do once before, from 1914 to 1918? Let us see what happened.
+
+In 1933 the roundup of Jehovah’s witnesses in Germany began. Book burnings were the start; then the concentration camps. And the mistreatment of Jehovah’s witnesses continued to grow worse right down till the war for world conquest burst forth upon the nations. By that time Jehovah’s witnesses in Ger-
+
+---
+
+<sup>**Page 9**</sup>
+
+[Open Page 9 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=9)
+
+8
+
+Yearbook
+
+many were supposed to have been silenced. But were they? Reports at hand show that as long as these servants of God had breath they preached, whether they were in concentration camps, work camps, or still at large. One of the biggest problems Hitler and his Gestapo had was the silencing of Jehovah's witnesses, and this they never accomplished. When a measure of personal liberty was regained in 1945, thousands of Jehovah's witnesses still alive started in the house-to-house witnessing work. German citizens were astounded and said in substance, 'Where did you come from? If you could survive Hitler, then the power backing you must be greater than any human force. We will listen to your message.' Jehovah's witnesses are still talking in Germany and, by the Lord's grace, will never cease singing his praises.
+
+As Hitler moved into other lands with his armed forces he seized the properties of the Watch Tower Bible & Tract Society; also he sought out its managers and hundreds of other associates and took them into Germany, there to do forced labor and to live under the cruelest conditions imaginable. Accounts of experiences of Jehovah's witnesses have since been published, showing the fearless and faithful stand these Christians have taken against the domineering rule of the oppressors of mankind. Why were these persons sought out in the countries of Holland, Belgium, France, Norway, Poland, Hungary, and all other lands Hitler took over? It was because they proclaimed the truth! They taught concerning a Kingdom of righteousness and would not stop working in its interests. They were pointing out to the world, to all their hearers, that the Hitler regime and its organization for selfishness could never stand, but that God's kingdom was the only hope for mankind. They had no faith in nor sympathy with the cruel, dictatorial regime; and their only hope for everlasting life lay in Jehovah God and his New World. They believed this because it was taught in the Bible. It was Jehovah's Word of truth, and woe would be unto them
+
+---
+
+<sup>**Page 10**</sup>
+
+[Open Page 10 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=10)
+
+Yearbook
+
+9
+
+if they preached not the gospel. There was no power in heaven or in earth, no principality, not even Satan himself, that would change their minds about the preaching of this truth which Christ Jesus began to preach 1900 years ago.
+
+Did Hitler and his Nazi servants succeed any better in suppressing the preaching of the truth in countries other than their own? The record shows that they made another miserable failure; for in the countries of Holland, Belgium, France, Norway, and other nations, it is now found that there are more persons preaching the gospel of the Kingdom after the war than before. In other words, those associated with Jehovah's witnesses are much greater in number than in previous years, despite the raiding of homes, the destroying of property, the breaking up of families, and the killing of men and women in cold blood. 'The truth shall make you free!' Through good works, patience and long-suffering, Jehovah's witnesses made thousands of persons free from that yoke of oppression, by talking the truth. Even though these persons of good-will were in that world, their hearts, minds and bodies were not part of it. They were not supporting it. How could they, having honest hearts? Their interest was, like that of Abraham, Isaac and Jacob, in a New World to come. Their hope was like Peter's, for they looked for a New World of righteousness. All the evidence round about them—the torture, the war, the pestilence, the distress of nations—was indication that the end was near at hand.
+
+Jehovah's witnesses and their companions know this: 'They that trust in Jehovah are as mount Zion, which cannot be moved, but abideth for ever. As the mountains are round about Jerusalem, so Jehovah is round about his people from this time forth and for evermore.' (Ps. 125: 1, 2, _Am. Stan. Ver._) Knowing of his protection and having hope and faith, the devoted servants of the Lord were determined to carry on with the preaching of the gospel regardless of all the opposition to break their integrity, whether under
+
+---
+
+<sup>**Page 11**</sup>
+
+[Open Page 11 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=11)
+
+10
+
+Yearbook
+
+totalitarian rule or democratic rule. It made no difference to them in what country they lived, what rulers were in power, or what church dominated the land; they knew they could not run away from the Devil's organization. Their commission from God was plain and clear, namely, 'This gospel of the kingdom shall be preached in all the world for a witness unto all nations.' Preach they did, wherever they lived. They were in the world, but not a part of it. They were in it to do a work of preaching. Their faith was not shattered by world events, but strengthened; and they continued to pray, 'Thy kingdom come. Thy will be done in earth, as it is in heaven.' This was and is their only hope for life: THE KINGDOM! The Kingdom will rule the New World in righteousness; and with faith, hope, and love for their brethren, they continued to preach this good news, the Bible truth, and were willing to suffer even as Christ suffered for the same cause.—Acts 5:41; 2 Tim. 3:12.
+
+#### WHERE IS FREEDOM?
+
+But was it only in the lands of totalitarian rulers that such wicked atrocities against humankind were committed? Was it only in Fascist, Catholic Italy that every one of Jehovah's witnesses was sought out and jailed, and that a special law was passed to deprive them of their freedom? Was it only in the Vatican-favored land of Japan where the large organization of Jehovah's witnesses was annihilated, their property seized, their literature destroyed, and their representatives taken away in 1939, never to be heard from since? No; even in the lands of democracy the religionists did not want to hear the truth. Catholic Action was proud and powerful and struck nation-wide in 1940 in the United States. Mob action broke out, led in some places by priests and, in almost all instances, by Catholic organizers. In certain parts of the country the action taken by the mobsters was more severe and damaging to persons and property than that experienced in totalitarian countries. It followed the
+
+---
+
+<sup>**Page 12**</sup>
+
+[Open Page 12 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=12)
+
+Yearbook
+
+11
+
+same pattern, though, namely: 'Stop Jehovah's witnesses.' After years of violence, with hundreds of court battles and much fighting for liberty on the home front, Jehovah's witnesses came off victorious and are going stronger than ever before in the preaching of the gospel.
+
+During the war years upward of 3,500 young ministers were deprived of the privilege of continuing their preaching activity. The Federal Prisons hold these brethren, whose terms range from one to five years. Howbeit, these young men are equipping themselves for more efficient service in declaring the truth when they are set free. But the witness work was not stopped, even in the prisons!
+
+Turn now to Canada and review the pages of recent history concerning the activities of the witnesses there. Out of a clear blue sky a ban was declared against Jehovah's witnesses in 1940, and anyone who professed to be one of Jehovah's witnesses was arrested. The power behind this move was Catholic Quebec. Homes were raided, books were destroyed, people were thrown into jail, property was seized and taken over by the government. Why? Certainly not because Jehovah's witnesses were doing harm to the government; nor were they doing harm to the people of the land. The only cause or charge they could find against them was that they were teaching the truth as explained in the Bible, and this did not please the Hierarchy. Wartime was a good time to strike. The only charge they could bring against Jesus was that he taught the truth; and the clergy of his day were the instigators, too, and said he was 'stirring up the minds of the people and talking of a king other than Caesar'. Pilate tried 'to find a way to let him go, but the Jews shouted, 'If you let him go, you are no friend of the emperor's! Anyone who calls himself a king utters treason against the emperor!''—John 19:12, _Good-speed_.
+
+So, for four long years the witnesses in Canada stood fast and at every opportunity preached to their
+
+---
+
+<sup>**Page 13**</sup>
+
+[Open Page 13 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=13)
+
+12
+
+Yearbook
+
+neighbors, their associates at work; even door to door, at the risk of losing all their freedom. But they knew it was better “to obey God rather than men”. (Acts 5:29) What happened? Thousands of good-will people took their stand for the truth, and preached it, too! The matter of freedom was kept constantly before the government of Canada, and finally the ban was lifted. With this greater freedom, Jehovah’s witnesses will show their love for Jehovah by still greater works.
+
+Even in Britain, a bulwark of democracy, the rulers issued orders to put a ban on the importation of Bible literature. The Society’s magazines, which enjoyed a tremendous circulation in the United States throughout the war, were not allowed into the country. Jehovah’s witnesses were, however, permitted to carry on their gospel-preaching and conducting of meetings; also do printing locally. The work increased.
+
+Australia, part of the Commonwealth of Nations, declared the work of Jehovah’s witnesses illegal, seized their property, sealed their stock room, and stopped their presses. But did these severe measures halt the work? No! Because individually each one of Jehovah’s witnesses had made a consecration to do God’s will, and to do his will means to preach his Word. Did not the faithful apostle Paul say, “But thanks be unto God, who always leadeth us in triumph in Christ, and maketh manifest through us the savor of his knowledge in every place”? (2 Cor. 2:14, _Am. Stan. Ver._) He did. And Jehovah’s witnesses, not only in Australia but everywhere world-wide, of all nations, kindreds and tongues, ‘make manifest . . . his knowledge in every place.’
+
+In all countries of the British Empire there was suppression of the truth of God’s word and restrictions of some sort placed on the activities of Jehovah’s witnesses. Go down the list: Australia, British Guiana, British Isles, Canada, Ceylon, Gold Coast, India, Jamaica, Newfoundland, Nigeria, Northern Rhodesia, Nyasaland, South Africa, Southern Rhodesia, and
+
+---
+
+<sup>**Page 14**</sup>
+
+[Open Page 14 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=14)
+
+Yearbook
+
+13
+
+Bermuda. All had some restrictions that hindered the free course of Jehovah's message of comfort for the people. But such restrictions did not slacken the zeal and work of the Lord's servants in these last days; for again they consulted his Word, which says: 'For the sceptre of wickedness shall not rest upon the lot of the righteous; that the righteous put not forth their hands unto iniquity.' (Ps. 125:3, _Am. Stan. Ver._) Though the whole world followed after the gods of war, Jehovah's witnesses were too busy preaching to become enmeshed therein; and their God would not let the scepter or rule of wickedness oppress them to the point of their turning aside and going back to the world and supporting that iniquitous organization.
+
+The nations, all of them, have tried the rod of regimentation; but Jehovah's covenant people will not modify the routine of their lives and change from God's work and his righteous course laid out for them, to conform to this evil world's way. The nations have not broken up and, by the Lord's grace, will not break up the internal order and peace of Jehovah's earthly organization, despite the wicked persecution to smash the unity of purpose and action of God's people, which is to preach 'The kingdom of heaven is at hand!'
+
+Have the nations learned anything by World War II? Will it be a freer and better world now that the ravages of war are over? Have the peoples of the world now any assurance that peace and prosperity will be their portion? or is God's kingdom still the only hope for humankind? Will the United Nations Charter, put into operation and supported by force of arms, bring about harmony among the nations and the feeling of 'love thy neighbor as thyself'? Not at all. The same selfish men, 'born in sin and shapen in iniquity,' are still in power. Religious leaders have not changed. The same race for advantage in the commercial world is on. Astute politicians are maneuvering for the best positions and are trying to gain greater power, so as to dominate a greater portion of the world. Will the
+
+---
+
+<sup>**Page 15**</sup>
+
+[Open Page 15 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=15)
+
+14
+
+Yearbook
+
+“new order” do away with selfishness? Will persecution no longer be the lot of those that love truth and righteousness? Do not forget that, as long as the “prince of this world” rules, and he still does, there will be the mad rush for power. Almost six thousand years of “man” government has taught him to rule or ruin. As long as this condition prevails there will be the suppression of truth, the hiding of God’s Word, and the trying to push into the background the true witnesses of righteousness.
+
+### DOING GOOD
+
+The prayer of the servants of the Lord is: “Do good, O Jehovah, unto those that are good, and to them that are upright in their hearts. But as for such as turn aside unto their crooked ways, Jehovah will lead them forth with the workers of iniquity.” (Ps. 125:4, 5, _Am. Stan. Ver._) Jehovah is surely gathering the good people, lovers of truth, unto himself; but selfish rulers of the earth can only be leading the nations to destruction. They certainly have not brought Jehovah God into the picture, nor have they looked to his Word for counsel and advice; but continually throughout the earth there is sown distrust, discord, and hard feelings between nations. “He that soweth iniquity shall reap calamity.” (Prov. 22:8, _Am. Stan. Ver._) The nations will go their way, ignoring the warning of Jehovah, and meet their end in the final battle of Armageddon, the same as the people of earth did in Noah’s time.
+
+The responsibility rests upon Jehovah’s witnesses and all associated with them world-wide to keep up this preaching work. Not that they intend to convert the world or bring the nations of earth around to accepting the kingdom of God. No; but they preach “this gospel of the kingdom” in all the world for a witness, so that good can be done “unto those that are good, and to them that are upright”. (Ps. 125:4, _Am. Stan. Ver._) This witness must be given before the end comes. The prophet Isaiah also speaks of this
+
+---
+
+<sup>**Page 16**</sup>
+
+[Open Page 16 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=16)
+
+Yearbook
+
+15
+
+time of the end when he mentions that the message of God must be heralded far and wide 'until the cities be wasted without inhabitant, and the houses without man'. (Isa. 6:11) As we come closer to that time, the battle of Armageddon, there is much work to be done in preaching 'this gospel' in all the world and in going into all the nations, discipling. This is the work Jehovah's witnesses must do now.
+
+The servants of God fully appreciate that the years in the present postwar era will not be years of peace and quiet for them, but of strenuous times and hard work. Persons from all nations, kindreds and tongues must be given the message of God's Word, so as to take their stand on the side of the Lord. Jehovah's witnesses are commissioned by Jehovah to preach the Kingdom regardless of the trials, persecutions and hardships that might be brought to bear against them during this period. Even though further bans and restrictions are put into operation in future years, let it be known that Jehovah's witnesses and their companions will continue to preach and talk this good news of the Kingdom, for it is God's command to do so. The nations of the earth should have learned by this time that the only way the message of the Kingdom can be stopped is by killing off all the servants of the Most High. That was the method used by the scribes and Pharisees in Jesus' day. They thought if they killed the leader of the 'sect of the Nazarenes', that would end the matter; but Jesus had too many men who believed, had faith, and who knew the message he spoke to be the truth, and they carried it forward. They became the 'light of the world'. That light will never be darkened; truth will never be destroyed by error. Jehovah's name will be vindicated and his truth shall be known from pole to pole.
+
+#### PROVISION FOR ALL NATIONS
+
+Mankind can never bring salvation to itself; salvation is a gift of God. Jehovah made provision for this salvation nineteen centuries ago when he brought
+
+---
+
+<sup>**Page 17**</sup>
+
+[Open Page 17 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=17)
+
+16
+
+Yearbook
+
+forth a man-child and acknowledged him as his Son. His name was Jesus. That was the beginning of things that would change the entire course of life for those choosing to follow him.
+
+Eight days after his birth, Jesus’ mother, Mary, brought the Son to the temple. Within the temple there was a righteous man, an upright and devoted Jew, who was moved by the holy spirit to say of this babe Jesus: “Mine eyes have seen thy \[Jehovah’s] salvation, which thou hast prepared before the face of all people \[nations]; a light to lighten the Gentiles, and the glory of thy people Israel.” (Luke 2:30-32) Centuries before, the prophet Isaiah spoke of this time and provision when he said: “Break forth into joy, sing together, ye waste places of Jerusalem: for the LORD hath comforted his people, he hath redeemed Jerusalem. The LORD hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth shall see the salvation of our God.”—Isa. 52:9, 10.
+
+The salvation provided by Christ Jesus was not only for the Jews, but it was to extend “to the ends of the earth”; for all “shall see the salvation of our God”. Simeon also declared that this salvation was “prepared before the face of all people”. The nations of the earth would be made to know this. Jesus was not only the Messiah to the Jews, “the glory of thy people Israel”; but he was also “a light to lighten the Gentiles”. The record shows that only a remnant of the Jews accepted their Messiah. The greater number of them were much like the Jews of Antioch, who rejected the message of Paul showing them the way of salvation. These Jews at the synagogue “were filled with envy, and spake against those things which were spoken by Paul, contradicting and blaspheming. Then Paul and Barnabas waxed bold, and said, It was necessary that the word of God should first have been spoken to you: but seeing ye put it from you, and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles”. (Acts 13:45, 46) Paul did not
+
+---
+
+<sup>**Page 18**</sup>
+
+[Open Page 18 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=18)
+
+_Yearbook_
+
+17
+
+refuse to speak to the Jews thereafter, but if they did not want to hear, he always turned to the Gentiles. The Bible record concerning his speaking to the Jews in Corinth supports this, namely: 'And when they opposed themselves, and blasphemed, he shook his raiment, and said unto them, Your blood be upon your own heads; I am clean: from henceforth I will go unto the Gentiles.' (Acts 18:6) From this it is clear that the message of salvation was to all the world, Jew and Gentile alike. Those that wanted to hear were given the opportunity.
+
+Conditions in the world today are similar to those conditions back there. Some people have an ear to hear, and others do not. The message of truth will not be forced upon anyone; but, by the Lord's grace, it will be proclaimed so that both Jew and Gentile may hear. The salvation was not confined to the Jews, nor to the Greeks or Romans; but the command was given that the Kingdom message should go unto all the nations. Jesus ministered for three and a half years and his message attracted men and interested them in the salvation that Jehovah God provided. Not that it would bring any personal gain to Jesus, if they followed him; but it would bring to those individuals an opportunity to get on the right side and thus gain life, liberty and everlasting happiness under the reign of the righteous King. He instructed the disciples to 'go, disciple all the nations'. So he directed his apostles to seek men in the same way that fish are caught. In Luke 5:1-10 is recorded the story; and the climax is reached when Jesus says to Simon: 'Fear not; from henceforth thou shalt catch men.'
+
+The catching of men was not for the purpose of building up some earthly organization in opposition to worldly governments. Jesus had very definitely stated, 'My kingdom is not of this world.' If it had been, then he would have called upon his disciples to fight; but his Kingdom was to be at some future time and would have no such origin as the Roman
+
+---
+
+<sup>**Page 19**</sup>
+
+[Open Page 19 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=19)
+
+18
+
+Yearbook
+
+Empire. (John 18:36) He indicated through the prophecies when that Kingdom would be established. However, until such time that the Kingdom would be set up, it was the obligation of all the disciples of the Lord to catch men, even as a hunter hunts and a fisherman fishes. They should bring these unto the Lord, so as to afford them opportunity to share in the vindication of Jehovah's name by maintaining integrity, and thus receive the blessings of the Kingdom.
+
+Those that Jesus gathered round about him he did not treat as slaves, but rather he says: 'I have called you friends; for all things that I have heard of my Father I have made known unto you. Ye have not chosen me, but I have chosen you, and ordained you, that ye should go and bring forth fruit, and that your fruit should remain: that whatsoever ye shall ask of the Father in my name, he may give it you.' (John 15:15, 16) He treated his disciples as his brethren and he worked in their interests, and not for any selfish gain as do the clergy of this world who have charge over their flocks. He did not try to gain great wealth from his followers and use this wealth to guide and direct the political affairs of the world, nor to build up strong lobbies that would wield great influence in departments of human government. He let the wicked world run its business, for the time had not yet come for him to take unto himself his power and begin his reign. But, when that time should come, then he would assemble the nations and 'dash them in pieces like a potter's vessel'. (Ps. 2:7-9) This will be done through Christ Jesus under the direction of Jehovah God, the Lord of kings, at the battle of Armageddon.
+
+#### THE FIGHT TO THE FINISH
+
+Christ Jesus knew that his faithful followers would be hated of this evil world even as he was hated, for he says: 'If the world hate you, ye know that it hated me before it hated you. If ye were of the world, the world would love his own: but because ye are not of
+
+---
+
+<sup>**Page 20**</sup>
+
+[Open Page 20 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=20)
+
+Yearbook
+
+19
+
+the world, but I have chosen you out of the world, therefore the world hateth you. Remember the word that I said unto you, The servant is not greater than his lord. If they have persecuted me, they will also persecute you; if they have kept my saying, they will keep yours also.' (John 15:18-20) It is quite evident that the world has not kept Jesus' word. The facts prove that the followers of the Lord Jesus are persecuted in the same manner today as they were in the days of Jesus. And for what reason? Because they preach the truth to Jews and Greeks (Gentiles); because they look to the promised Kingdom and talk to others about it. Nevertheless, fortified with these words of the Master, they will not turn aside.
+
+Jehovah's witnesses do not ask for any quarter, nor will they give any. They are obligated by a covenant agreement to do the Lord's will, represent his Kingdom, and preach Jehovah's doctrine of truth and righteousness. They are the ambassadors of Jehovah God; and, truly, they must represent the kingdom of Jehovah God in all nations and kingdoms and among all the people. In the years to come, Jehovah's witnesses must and will, by the Lord's grace, devote their time and energy to the preaching of God's kingdom, which is the only hope of the world. It is, of course, an individual matter with each one to decide what he will do. Anyone who is a true servant of God will work with his brethren in peace and unity, and have his eye single to the Lord's glory. He will not get wrapped up in the affairs of this world and be so absorbed and interested in its progress that he will have no time for the preaching of the Kingdom.
+
+Those who have made a consecration to Jehovah God have agreed to henceforth serve the King and the Kingdom. They do not work for a wage or for a certain period of time, but it is a lifetime occupation. That is why, now that this second world war is over, Jehovah's witnesses who have come out of concentration camps and prisons, and from under bans
+
+---
+
+<sup>**Page 21**</sup>
+
+[Open Page 21 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=21)
+
+20
+
+Yearbook
+
+in various parts of the world, will hold on to their God-given freedom. Those who have gone through great trials and tribulations do not feel as though they have done enough in Kingdom work; but, as the year's report will show, they are anxious now to go ahead and do even more in witnessing for the King and the Kingdom. They have their eye single to the one great work. They feel as did the psalmist, who said: 'I will behave myself wisely in a perfect way: oh when wilt thou come unto me? I will walk within my house with a perfect heart. I will set no base thing before mine eyes: I hate the doing of unfaithfulness \[_margin_]; it shall not cleave unto me. Mine eyes shall be upon the faithful of the land, that they may dwell with me: he that walketh in a perfect way, he shall minister unto me.'—Ps. 101:2, 3, 6, _Am. Stan. Ver._
+
+Here the psalmist shows that we can set no base thing before our eye, neither the 'abomination of desolation' nor anything else; nor can we have pleasure in association with those who are unfaithful to the Lord. Rather, one's eye should be on the faithful servants in the land, and, if so, he will not turn to evil-doing. It is impossible for one to have lustful eyes and seek vain glory, and still find favor with Jehovah God. John admonished against this when he said: 'For all that is in the world, the lust of the flesh and the lust of the eyes and the vainglory of life, is not of the Father, but is of the world.' (1 John 2:16, _Am. Stan. Ver._) By Jehovah's help, his servants have not been enticed with the old-world offers; and whatever is held forth now to attract men will not be heeded by the faithful ministers of God. We must keep our eye on the right thing, even as the apostle Paul kept his eye on the Kingdom and its activity. Regardless of the trials, shipwrecks encountered, and persecutions brought to bear against Paul, he said: 'So I never lose heart. Though my outer nature is wasting away, my inner is being renewed every day. For this slight, momentary trouble is piling up for me an eternal blessedness beyond all comparison, be-
+
+---
+
+<sup>**Page 22**</sup>
+
+[Open Page 22 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=22)
+
+Yearbook
+
+21
+
+cause I keep my eyes not on what is seen but what is unseen. For what is seen is transitory, but what is unseen is eternal.”—2 Cor. 4: 16-18; 5: 1, _Goodspeed_.
+
+### “BEYOND ALL COMPARISON”
+
+The rulers in Paul’s day may have thought they could break him down, but he declared that these momentary troubles were piling up for him an “eternal blessedness beyond all comparison”. The reason for this was that he kept his eye, not on what was seen, but on what was unseen. The things he saw—the Roman Empire, the Jewish nation, their abominable iniquity and hypocrisy—these were all transitory and not worth supporting. However, the things that were unseen with his natural eyes were eternal; and the things eternal are Jehovah God, Christ Jesus, and the Kingdom of righteousness for the blessing of all people who gain life under it. Those of Jehovah’s witnesses who have gone through so much difficulty for the many years past will henceforth press on, maintaining integrity. By God’s grace, these and all others will not go back to the world, but will keep their bodies in fit condition for service work and in subjection at all times “lest that by any means, when I have preached to others, I myself should be a cast-away”.—1 Cor. 9: 27.
+
+Not that Jehovah’s witnesses seek persecution, for to go through these trials and difficulties is hard and they have not asked for it. But if the Lord permits it, they are not going to run away from such afflictions; nor will they compromise with the Devil’s organization to shield themselves from the oppressive measures which are without cause. They did not do it in past years, and God’s people are not changing. Even as the terrible atrocities committed against Jehovah’s witnesses during World War II are passed away and were but momentary, so likewise the troubles, harsh treatment and persecutions that will stack up in the future will be momentary. All of these are piling up for Jehovah’s witnesses an “eternal blessed-
+
+---
+
+<sup>**Page 23**</sup>
+
+[Open Page 23 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=23)
+
+22
+
+Yearbook
+
+ness beyond all comparison'. Why so? Because they keep their eye on the right thing, the Kingdom as the only hope for the world. 'Behold, as the eyes of servants look unto the hand of their master, as the eyes of a maid unto the hand of her mistress; so our eyes look unto Jehovah our God.'—Ps. 123:2, _Am. Stan. Ver._
+
+Seeing, then, that our whole life must be set for the Kingdom, we will have no time for the old world, its plans and loud-mouthings. Jehovah's witnesses have made their choice. It is the Kingdom of righteousness and its blessings; not the old world and its death-dealing potion. They look ahead in this post-war era with gladness of heart and are determined to give a greater witness and aid the 'other sheep' by preaching the truth under the direction of the Commander, Christ Jesus. Their whole purpose in life is to get the work of 'discipling all the nations' done, according to the Lord's good pleasure. They have been doing it during difficult years; and whether the years ahead are more favorable, or just as bad, or worse, they will continue to push on, doing the work under whatever conditions they find themselves. There are thousands upon thousands of persons who sigh and cry for the abominations and bondage of this wicked world. The truth shall make them free! These the Good Shepherd will gather unto his organization, there to comfort and feed them and lead them unto eternal life under his Kingdom. 'Be glad, ye nations, with his people.'—Rom. 15:10, _Roth._
+
+#### LEGAL INSTRUMENTS
+
+Jehovah's witnesses are carrying the message of comfort into all the nations, so that they can 'be glad'. In every large nation of the earth some of Jehovah's witnesses are to be found, and effort is made to 'go and disciple all other nations' as well. Jehovah has given them this name; for he says: 'Ye are my witnesses, saith Jehovah.' (Isa. 43:10, 12, _Am. Stan. Ver._) These witnesses of Jehovah have found it advantageous, in the spreading of this gospel
+
+---
+
+<sup>**Page 24**</sup>
+
+[Open Page 24 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=24)
+
+Yearbook
+
+23
+
+into all nations, to establish certain corporations throughout the earth, so that the work of preaching may be better organized and carried on in an orderly manner.
+
+The first legal corporation to be used in recent years was that established by faithful servants of the Lord in 1884, namely, Watch Tower Bible and Tract Society. This corporation received its charter from the State of Pennsylvania, which charter makes provision for the dissemination of Bible truths in various languages by means of publication of tracts, pamphlets, magazines, books and Bibles. These publications are of great aid to the already possessed God-given ability which all creatures have, namely, that of _talking_; and the faithful servants' use of speech is talking truth to others. Knowing of the great need for Bible helps, the Watch Tower Bible and Tract Society has since 1884 produced and distributed world-wide millions of publications to help the ministers of the gospel in their discipling work among all nations, so that they might 'be glad'. In recent years it has set up its own printing plants in foreign lands, in connection with its Branch offices, to get its printing done.
+
+On October 2, 1944, a large group of Jehovah's witnesses was assembled at Pittsburgh, Pennsylvania, the occasion being the annual meeting of the Watch Tower Bible and Tract Society (a Pennsylvania corporation). At this meeting certain articles of amendment to the charter were adopted and later filed in the court at Pittsburgh, pursuant to the resolution of the thousands of shareholder-voters present. After the matter was properly handled in the court, all the articles of amendment were approved and duly recorded on February 27, 1945. These amendments to the original charter provide for greater expansion in the work, and set forth more clearly the fundamental law governing the Watch Tower Bible and Tract Society. This being the first corporation used by Jehovah's witnesses in modern times, it is recognized
+
+---
+
+<sup>**Page 25**</sup>
+
+[Open Page 25 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=25)
+
+24
+
+_Yearbook_
+
+by them as the principal corporation. It sets the policy as to the course of action Jehovah's witnesses should take world-wide. The policy is always based on the Holy Scriptures. All members of its board of directors are ordained ministers, and they are charged with the responsibility of seeing to it that every effort is put forth to preach the glad tidings or good news unto all nations, kindreds and tongues.
+
+In every country where there resides a group of Jehovah's witnesses, a branch office is established so that proper direction may be given the workers. These branch offices and the work in general are carried forward by persons of good-will throughout the entire world, and the funds are always used to further advance the preaching of the Kingdom. With such funds it sends missionaries to all parts of the earth, cares for their needs and provides them with literature and other supplies, for the purpose of home Bible study. The Pennsylvania corporation is the principal legal instrument and the most used by Jehovah's witnesses in their world-wide activity.
+
+In the year 1909 another corporation was organized in the State of New York, and it is now known as the Watchtower Bible and Tract Society, Incorporated. Its principal function is to look after the interests of Jehovah's witnesses throughout the entire United States, as well as to own and operate the Bethel home, publishing house, Watchtower Bible College, radio station, and several farms in the state of New York. The purposes set out in the charter of the New York corporation are very similar to those of the Pennsylvania corporation. Many members of the New York corporation are also members of the Pennsylvania corporation; and the Board of Directors is quite similar in personnel. The New York corporation looks after the printing necessary to be done for Jehovah's witnesses in the United States of America, such as the providing of Bibles, study books, booklets, magazines, and leaflet literature. Not only does the New York corporation print and supply these aids
+
+---
+
+<sup>**Page 26**</sup>
+
+[Open Page 26 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=26)
+
+Yearbook
+
+25
+
+for Christian activity to persons throughout the United States, but it supplies on order from the Pennsylvania corporation its requirements for shipping to foreign branches.
+
+The International Bible Students Association, of the United Kingdom, was created in London, England, in 1914, for the purpose of carrying on Christian activity throughout that land on behalf of Jehovah's witnesses. This corporation holds title to property and does some printing at London (its principal office). The larger supplies of literature, however, are obtained through the Pennsylvania corporation.
+
+None of the above-named three corporations was organized for profit. None of the directors or officers receives any pecuniary gain for his services. All the ordained ministers associated with these corporations are devoting their life to preaching 'The kingdom of heaven is at hand'. Other corporations have been established in some countries as a matter of convenience, to enable the Society to carry on its benevolent, philanthropic and educational activity. Those serving in the corporations have devoted their lives wholly to the work of preaching the gospel. Everything done by these corporations is done in behalf of Jehovah's witnesses and for the people of good-will world-wide.
+
+#### BETHEL HOME AND SOCIETY'S PROPERTIES
+
+_Bethel_ means 'house of God'. The name 'Bethel home' has been used for many years to designate the principal office of Jehovah's witnesses in the different countries of the world. At Brooklyn, New York, the Bethel home is owned and operated by the New York corporation and is located at 124 Columbia Heights, Brooklyn 2, N. Y. It is here where 232 consecrated men and women live and carry out their covenant of service to do their Father's will. In addition to their regular duties of taking care of the home (keeping it clean and in order, and operating a kitchen, dining-room, laundry and other departments for the comfort
+
+---
+
+<sup>**Page 27**</sup>
+
+[Open Page 27 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=27)
+
+26
+
+Yearbook
+
+of the family), many of them work at the factory located at 117 Adams Street, where Bibles, books, magazines and other literature are produced for Jehovah's witnesses throughout the earth. Bethel homes in all countries are operated in the same manner as the Bethel home at Brooklyn. It is from the Bethel home in New York that the general activity of Jehovah's witnesses world-wide is directed.
+
+Not only does each one take good care of his regular assigned duty, but certain times each day are provided for regular Bible study, privately and in class groups. The _Watchtower_ magazine, the principal publication of Jehovah's witnesses, is studied regularly and systematically. Also, an advanced course in Theocratic ministry is arranged for at scheduled times. This course is a great aid to the ordained ministers in making proper preparation for their Bible lectures and for their home missionary work. A good library is available to all members of the home. Each one in the Bethel home has the opportunity of engaging in field service, and each one is so trained that he is qualified to give proper instruction in home Bible study. Each person residing in the Bethel homes is provided a comfortable room in which to live, as well as good food and an allowance of \$10 per month.
+
+There are other institutions that the Society operates, such as farms used in a manner so as to be a direct aid to the operation of the Bethel homes. On Staten Island, New York, the Society has a vegetable garden and a chicken ranch. This keeps the family supplied with fresh vegetables throughout the growing season, as well as fresh eggs and fowl for the table. During the summertime thousands of quarts of garden products are canned for the winter use of the family. Garden crops that do not fare well on Staten Island are grown on another farm near by, and all the produce of both these farms is consumed by the Bethel family. Kingdom Farm, where also is located the Watchtower Bible College of Gilead, raises the bigger field crops, such as wheat, corn, and oats.
+
+---
+
+<sup>**Page 28**</sup>
+
+[Open Page 28 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=28)
+
+_Yearbook_
+
+27
+
+It also cares for the beef and dairy cattle. Much cheese and butter are produced. Large supplies of garden crops are also raised at Kingdom Farm, such as potatoes, cabbage, beets, peas; and these are trucked to the Bethel home, as well as used on the table for the college and farm family.
+
+It takes considerable quantities of foodstuffs in a year to supply the needs of nearly four hundred persons serving at all these institutions.
+
+### ORDAINED MINISTERS
+
+All persons living in the Society institutions are ordained ministers. They have consecrated themselves to serve Jehovah and have proved themselves worthy of Bethel privileges by their good works before being called to Bethel service. Their only mission in life is to help others gain a knowledge of the truth, directly, by preaching from door to door, conducting studies in the homes of the people, and giving lectures to various congregations and assembled persons. Additionally, they have the opportunity of working in these institutions, providing the necessary things for other ministers throughout the world by manufacturing Bibles, books, magazines and other aids necessary for ministerial activity.
+
+In addition to these ordained ministers in Society dwellings, there are many others appointed by the Society to travel regularly from one city to another, visiting the congregations of Jehovah's witnesses. These individuals are called servants to the brethren. The Society also selects certain men to oversee big congregations in the larger cities of different countries; it also sends missionaries to other lands. All such persons selected are ordained ministers and recognized as such by the Society before an appointment is made; and, furthermore, they have taken a special course in Bible study, either at the Watchtower Bible College or in one of the Bethel homes. Therefore they are qualified to represent the Society in preaching the gospel.
+
+---
+
+<sup>**Page 29**</sup>
+
+[Open Page 29 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=29)
+
+28
+
+Yearbook
+
+The list of ordained ministers set out in the Yearbook of Jehovah's witnesses is by no means the complete list of ordained ministers. These listed below are individuals residing at the Bethel homes throughout the world, or at other institutions of the Society; or, they are specially selected traveling representatives or Branch servants or are carrying on missionary work in some foreign field or are specially assigned to some congregations. So this list by no means represents all the ordained ministers; for, in truth and in fact, all of Jehovah's witnesses fulfilling their covenant are ordained ministers of Jehovah God. They are commissioned by Him to preach, and if they do preach they give evidence of their ordination.—Isa. 61:1, 2; Matt. 24:14; 28:19, 20; 2 Cor. 2:14-17.
+
+# ORDAINED MINISTERS APPOINTED TO SPECIAL SERVICE
+
+Abbuhi, David
+Abrahamson, Richard Ernest
+Adams, John Edward
+Akashi, J. L.
+Allan, Joseph
+Alms, Roland Herman
+Alspach, Russell William
+Anderegg, Gifford Casper
+Anderson, Fred August
+Anderson, John Henry
+Anderson, Marvin Ferrol
+Anderson, Richard M. (Jr.)
+Attwood, Anthony Cecil
+Avey, Arthur William
+Babcock, Earle
+Baeuerlein, John Adam
+Baker, Glenn Seymour
+Bangle, Aleck
+Banks, Thomas Edgar
+Barber, Carey W.
+Barnes, Augustus F.
+Barnett, Arthur Eugene
+Barr, John Edwin
+Bartlett, Milton Everett (Jr.)
+Bates, William Madison
+Bauer, Herschel Weert
+Bausch, Lawrence Richard
+Baxter, Donald Edward
+Baxter, W. H.
+Becker, Edward William
+Beckett, David A.
+Beedle, Charles Joseph
+Behannan, Harry Caperton
+Behunick, Stephen
+Belokon, Nicholas
+Bennett, Harvey Calvin
+Benson, Joe Ricketts
+Bible, Richmond Loyd
+
+Black, Harry
+Bogard, John
+Booth, John Charles
+Borchert, Paul
+Bourgeois, John Louis
+Bourne, Dean Guy
+Bourne, Reginald Armor
+Brame, Earle Roy
+Brehmer, John Otto
+Broadwater, Lloyd
+Brown, Robert Mantell
+Brown, William Roland
+Buczek, Leo
+Buenger, Philip
+Burczyk, Benno Oskar
+Burt, Donald Herbert
+Burt, Harold (Jr.)
+Burtch, Lloyd Byron
+Butrus, Peter
+Byriel, Andrew
+Call, William Eugene
+Cantwell, Henry Albert
+Casola, Peter A.
+Chapman, Percy
+Chitty, Ewart Charles
+Chornenky, Theodore
+Ciarcia, Salvatore Sebastiano
+Claus, Arthur L.
+Clay, Edgar Allan
+Clemons, Charles Stephen
+Collet, Romeo
+Connor, Andre Francis
+Conrad, John Jacob
+Cornelius, Russell Stewart
+Correnti, Joe
+Coultrup, Charles Russell
+Coup, Carmon LeRoy
+Coville, Allan Stanley
+
+---
+
+<sup>**Page 30**</sup>
+
+[Open Page 30 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=30)
+
+Yearbook
+
+29
+
+Covington, Hayden Cooper
+
+Crabb, Roy
+
+Crofoot, John Adrian
+
+Culley, Elbert Franklin
+
+Cumming, Albert Edward
+
+Cutforth, C. W.
+
+Cutforth, John Ashlin
+
+Danley, J.
+
+Deane, Lyman Lee
+
+DeBoer, Adrian
+
+DeCecca, Giovanni
+
+DeFehr, John F.
+
+Delonnoy, Emile
+
+Derderian, Dickran P.
+
+Dey, William
+
+Dillon, Lee Edward
+
+Dingman, William Robert
+
+Dixon, Henry M. Stanley (Sr.)
+
+Dixon, Joseph R.
+
+Dockey, E. L.
+
+Donley, Carl Trent
+
+Downie, Malcolm MacPherson
+
+Droge, George Henry
+
+Duffield, Harry Walter
+
+Duncan, Harold Billet
+
+Dunham, A. P. R.
+
+Dunlap, Edward A.
+
+Dwenger, Heinrich
+
+Eckley, Fred Garfield
+
+Eicher, Charles Emile
+
+Elrod, William A.
+
+Emery, Wilfred Vryburgh
+
+Eneroth, Johan Henrik
+
+Evendole, George
+
+Fanning, Edward
+
+Feaster, Lenox M.
+
+Fekel, Charles John
+
+Ferdinand, Edward Joseph
+
+Ferrari, Charles L.
+
+Ferrari, Joseph
+
+Feuerbacher, Max R.
+
+Feuerbacher, Vernon Robert
+
+Finch, H.
+
+Fischer, William R.
+
+Fitzpatrick, Charles Edward
+
+Fleury, Maurice
+
+Forsyth, Thomas
+
+Franz, Fred William
+
+Franz, Raymond Victor
+
+Fredianelli, George
+
+Friend, Maxwell G.
+
+Frost, Charles E.
+
+Frost, Hugo Erich
+
+Fulton, Paul T.
+
+Gangas, George D.
+
+Garrett, Floyd Franklin
+
+Geiger, Henri
+
+George, Hugh Clarence
+
+Geyer, Benjamin P.
+
+Gillespie, Ray E.
+
+Gilmer, Charles Mathews
+
+Glass, Russell Ellsworth
+
+Gobitas, William
+
+Goff, Gerald Dean
+
+Goings, Chester
+
+Gonzalez, Raymond
+
+Good, Forrest Gilmore
+
+Goodman, Claude Stanley
+
+Goslin, Elijah W.
+
+Goux, Arthur R.
+
+Gray, Donald Francis
+
+Green, John Arthur
+
+Greenlees, Leo K.
+
+Gulver, Ernest James
+
+Hackenberg, Chalmers F.
+
+Haigh, Joseph Horace
+
+Hallberg, Robert Vincent
+
+Hammer, Paul
+
+Haney, Arthur
+
+Hannan, George Edwin
+
+Hannan, William Trenchard
+
+Harper, Claudy Fletcher
+
+Harrop, Stuart Atkin
+
+Hartcva, Kaarlo Talmari
+
+Hartstang, Frederic
+
+Harvey, Roy Wesley
+
+Haslett, Donald
+
+Hatzfeld, Robert Henry
+
+Heath, William Pratt (Jr.)
+
+Hemery, Jesse
+
+Hemmaway, John Tom
+
+Henry, John Edgar
+
+Henschel, Milton George
+
+Hessler, Charles Russell
+
+Hibbard, Orin J.
+
+Hildring, Thurston Andrew
+
+Hoffmann, David N.
+
+Hollister, Frederick Stevens
+
+Holmes, Calvin Henry
+
+Holms, Robert Arthur
+
+Hopkins, J.
+
+Hoppe, Karl
+
+Houghton, Bernard
+
+Howarth, Joseph
+
+Howlett, Matthew Arnold
+
+Huff, William Daniel
+
+Hughes, Alfred Pryce
+
+Hughes, Gwaenydd
+
+Huzzey, Clarence Seward
+
+Ihrig, Elmer Carl
+
+Ilett, Ambrose E.
+
+Insberg, Ans
+
+Jackson, William Kirk
+
+James, Herbert William
+
+Jensen, Klaus Monrad
+
+Jewulski, Theodore George
+
+Johnson, Guy Wilbur
+
+Johnson, James Wilbur
+
+Johnson, Lennart A. S.
+
+Johnson, William Everett
+
+Jones, George
+
+Jones, James Wiley
+
+Jones, Stanley Ernest
+
+Jost, Harvey August
+
+Judson, Henry G.
+
+Kalle, Rudolph
+
+Karanassios, Athanasius
+
+Kellaris, Alexander Nicholas
+
+Keller, Eduardo Francisco
+
+Kelly, George W.
+
+Kennedy, Keith
+
+Kershaw, Arthur
+
+King, Harold George
+
+Kipperman, Abraham Jacob
+
+---
+
+<sup>**Page 31**</sup>
+
+[Open Page 31 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=31)
+
+30
+
+Yearbook
+
+Kirk, Robert William
+Kjorlien, Donald Otto
+Klein, Karl Frederick
+Klein, Theophilus Erhart
+Knorr, Nathan Homer
+Knott, Wayne Merritt
+Koelmel, Richard Charles
+Krochmal, Carl C.
+Krochmal, Chester
+Kurzen, John Godfrey (Jr.)
+Kurzen, Russell Walter
+Kusiak, Mike
+Kutch, John Andrew
+Laguna, Andrew
+Larson, Max Harry
+Lauderdale, Robert Phillips
+Laurix, James W.
+Lazenby, Robert
+Learned, Alvin Eugene
+Leathco, Charles Dillard
+Leffler, Ralph H.
+Leistikow, Raymond
+Lemmons, Paul H.
+Lester, Cornelius
+Lindal, G. F.
+Lindau, Alvin Diedrich
+Lindem, Marcus L.
+Lindsay, Ludwell Moses
+Lockwood, Willard Montague
+Lubeck, Joseph
+Lundgren, H. B.
+Lunstrum, Dave A. T.
+Lusga, Frederick
+Luts, John
+Lyon, Clayton Hobert
+MacAulay, Dan
+Macmillan, Alexander Hugh
+Magyarosi, Martin
+Mann, Albert Henry
+Maples, Lovie Raymond
+Markus, John Frederick
+Martinsen, Martinius
+Mason, Benjamin Brock
+McConkey, Charles W. (Jr.)
+McCormick, Gilbert Yarwood
+McFarlan, Harold LeRoy
+McKee, George L.
+McLamb, Frank A.
+McLemore, Lester Loran
+McLuhan, Roy G.
+McWilliams, Robert Garland
+Millar, John Evans
+Miller, Grant Dallas
+Miller, James Merritt
+Miller, Robert Marion
+Mitzo, Emil George
+Mock, Russell Vincent
+Mock, Wayne Hubert
+Moore, Elbert Stanley
+Morgan, Robert Emil
+Morris, Leland Bernard
+Moyer, Ralph Kratz
+Muniz, Juan
+Munsterman, Donovan Roy
+Nathan, Jack
+Nester, Ralph Kendall
+Ney, Robert Glen
+
+Nordstrom, Henry William
+Nordstrom, Walter Harry
+Oertel, Henry Carl
+Oman, Enok
+O'Neill, Samuel Calvin
+Orrell, Eugene Dallas
+Paine, Robert Edward
+Papadem, George Drakos
+Papadem, George Philip
+Papageorge, Demetrius
+Papargyropoulos, Aristoties P.
+Parker, John Nathan
+Paschall, Arthur Lee
+Pate, Arden
+Paulson, Nils I. K.
+Peach, Arthur Frederick
+Perez, Paul Peter
+Perry, John Alves
+Peterson, Charles Taze Russell
+Peterson, William
+Phillips, Frederick Edward
+Phillips, George Ross
+Photinos, Peter
+Pierce, Jack Robert
+Pillars, Oscar Lawrence
+Platt, Frank Gordon
+Powers, Jack Daniel
+Powlett, Felix Adolphus
+Price, William Frank
+Prosser, Calvin Sheridan
+Quackenbush, Colin Dale
+Quackenbush, Myron Neil
+Radosevich, William
+Rann, George A.
+Reddish, Kemp Caldwell
+Rees, Philip D. M.
+Renye, Charles Francis
+Reusch, Lyle Elvern
+Reynolds, Stanley Edward
+Rice, Everett J.
+Richards, David John
+Richards, John
+Richardson, George Wilson
+Riemer, Hugo Henry
+Robb, John Birrell
+Rohner, Charles
+Rohning, Frank Monroe
+Roper, Lester Lee
+Rose, Raymond Ralph
+Rowe, L. V.
+Russell, George M.
+Ruth, Wilmer B.
+Rutimann, Alfred
+Ryan, Roy Ansil
+Sabo, Lewis M.
+Santos, Joseph
+Schavey, Beryl E.
+Scheider, Wilhelm
+Schmidt, Waldemar
+Schroeder, Albert Darger
+Seal, Alfred Wayne
+Secord, Arthur Henry
+Shelton, Joseph Philip
+Short, W. Clayton
+Sideris, Anthony
+Siebenlist, Theodore Hess
+Sillaway, Charles Eugene
+
+---
+
+<sup>**Page 32**</sup>
+
+[Open Page 32 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=32)
+
+Yearbook
+
+31
+
+Sioras, John P.
+Skinner, Francis Edwin
+Slik, Henry
+Smoker, Leon Charles
+Southworth, Charles Herbert
+Starbuck, Floyd Bailey
+Steele, Robert C.
+Steele, William Herman
+Steelman, Joshua Monroe
+Stewart, Harold Lloyd
+Stierle, Walter R.
+Stoltz, Mervin M.
+Stone, Roscoe Allan
+Stover, George William
+Sulter, Grant
+Suley, Walter
+Sullivan, Thomas J.
+Sumen, Hemming Arthur
+Suvak, Andrew
+Swingle, Lyman Alexander
+Taavitsainen, Karl Henrik
+Talma, Gilbert Louis
+Teasdale, Sydney Ernest
+Tedesco, Angelo B.
+Tharp, Alexander E.
+Thomas, Robert Wayne
+Thorn, Walter John
+Toutjian, Shield H.
+Tracy, William Amos
+Traub, Ricardo
+Turpin, James Lyle
+Ulrich, Clarence
+Umlauf, Jacob
+Unruh, Rowland Stanley
+Van Amburgh, William Edwin
+Van Daalen, Arthur Frederick
+Van Daalen, Emil Henry
+Van Daalen, Homer Samuel
+Vanice, Ernest Ray
+Van Sipma, Samuel Martin
+Van Zee, Fred Post
+
+Voigt, Walter
+Voss, Adolfo
+Wagner, Andrew K.
+Walcekons, John
+Wallace, Francis Brady
+Wargo, Michael (Jr.)
+Wargo, Paul A.
+Wargo, Peter J.
+West, Albert James
+Wetzler, Harold David (Jr.)
+Wheclock, Richard Carl
+White, V.
+Wiberg, Carl Emil
+Wiedenmann, David
+Wiger, Samuel
+Wilda, C. de
+Willett, Frank Allan
+Williams, Claude Marvin
+Williams, James A.
+Wills, Wilbur Laurie
+Wilson, Ennis Robert
+Wilson, Frank C.
+Winkler, Arthur
+Wise, Charles A.
+Woodard, Hermon
+Woodburn, Sydney
+Woodworth, Clayton J.
+Woodworth, Harold
+Woodworth, W. Eldon
+Worsley, Arthur Albert
+Yost, Earl A.
+Yount, Warren
+Yuchniwicz, Stanley
+Yuille, Nathaniel Alston
+Zakian, Arthur S.
+Zell, Robert
+Zonnig, Gerhard
+Zilke, Otto
+Zinser, Henry Frederick
+Zook, Aquilla B.
+Zuercher, Franz
+
+### WATCHTOWER BIBLE COLLEGE OF GILEAD
+
+This college is owned and operated by the New York corporation and is used by Jehovah's witnesses to further train ordained ministers for special foreign as well as domestic service. Ministers who are carrying on the evangelical work in the United States, or in other countries, known as pioneers, devoting full time to the ministerial activity, are eligible for Watchtower College training. Several of the requirements for entry are that they must be in the full-time ministry continuously for a period of two or more years, in good health, single or married; but when married, both parties must be full-time publishers. Those privileged to attend the Watchtower Bible College must
+
+---
+
+<sup>**Page 33**</sup>
+
+[Open Page 33 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=33)
+
+32
+
+Yearbook
+
+first receive an invitation from the president of the Society before filling out entrance application.
+
+The course at college is so arranged that it is possible for the student to cover the entire Bible in careful study, from a doctrinal standpoint. Its many Bible themes are thoroughly studied. Another course, Bible Research, goes into the historical, chronological and analytical study of each of the sixty-six books of the Bible. Its clear commission directed to ordained ministers is taught practically in a course of Applied Missionary Service. Other subjects treated are English, Arithmetic, Spanish, Public Speaking, Supreme Law, and Theocratic Organization Instructions.
+
+Two classes were graduated during the last service year, namely, the fourth and fifth classes. The fourth class started with one hundred students registering. The number finally finishing the course was ninety-seven. At graduation day, January 22, 1945, ninety-three were awarded diplomas. Those persons receiving such certificates are listed below.
+
+# GRADUATES OF GILEAD RECEIVING DIPLOMAS
+
+January 22, 1945
+
+Adams, Naomi Elizabeth
+Adams, Sallye Louise
+Amaya, Crispin
+Anderson, Ada Elizabeth
+Bagley, Clifford Daniel
+Baker, Oda Rene
+Baxley, Almena Rhudell
+Beedle, Charles Joseph
+Bippus, Rachel Naomi
+Bourne, Dean Guy
+Bourne, Zacheous Allan
+Bourne, Gladys Helen
+(Mrs. Z. A.)
+Brashier, Waldo Green
+Brashier, Millie (Mrs. W. G.)
+Campbell, Eric Jane
+Campbell, Ruby Robinette
+Casey, Blanche Louise
+Ciarcia, Salvatore Sebastiano
+Cummings, Jean Margaret
+Droge, George Henry
+Droge, Nellie Viola
+(Mrs. G. H.)
+Duffield, Harry Walter
+Durell, Edmund Alonzo
+Durell, Betty Jane
+(Mrs. E. A.)
+Dzioba, Julia
+Firth, Winona Eleanor
+
+Flint, Richard Fairbanks
+Gayhart, Florence
+Geiselman, Wilbert Spangular
+Geiselman, Ann (Mrs. W. S.)
+George, Hugh Clarence
+Glass, Kathryn
+Grell, Loverna Mae
+Hollen, Ruth Emelie
+Hongell, Hildur Irene
+Hultquist, Thelma May
+Johnson, Harvey
+Kadlechick, Ethel
+Kaminski, Anne
+Karshens, Theresa Antoinette
+Kern, Ruth Nadine
+Kienitz, Walter Ben
+Kienitz, Grace Ellen
+(Mrs. W. B.)
+Klingensmith, Charles Thomas
+Klingensmith, Mary Parry
+(Mrs. C. T.)
+Koekebacker, Harry Earl
+Koekebacker, Lucy May
+(Mrs. H. E.)
+Lang, Albert Sherman
+Lang, Angeline (Mrs. A. S.)
+Lawrence, Dorothy May
+Lopez, Esther
+Lund, Verner Christianson
+
+---
+
+<sup>**Page 34**</sup>
+
+[Open Page 34 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=34)
+
+Yearbook
+
+33
+
+Lunstrum, Frances June
+
+Macgregor, Isabelle M.
+
+Mahan, Leo Alf
+
+Mahan, Esther (Mrs. L. A.)
+
+Mai, Solomon
+
+Mai, Eupha Fay (Mrs. S.)
+
+Maki, Gust William
+
+Maples, Lovic Raymond
+
+Maples, Della Louisa
+(Mrs. L. R.)
+
+Messick, Mary Lee
+
+Miller, Roberta Louise
+
+Morgan, Edith Iola
+
+Munsterman, Donovan Roy
+
+Munsterman, Marjorie Joy
+
+Olson, Mildred Ellen
+
+Papadem, George Philip
+
+Parson, Alma Elizabeth
+
+Pemberton, Walter H. (Jr.)
+
+Pemberton, Willmetta
+(Mrs. W. H.)
+
+Perna, Henry Angelo
+
+Perna, Flora Gentili
+(Mrs. H. A.)
+
+Peterson, Charles Taze Russell
+
+Peterson, Freida Mae
+(Mrs. C. T. R.)
+
+Powers, Avery Woodrow
+
+Red, Delbert Winston
+
+Red, Annabelle (Mrs. D. W.)
+
+Rupp, Hiram
+
+Schillinger, William Matthias
+
+Schillinger, Fern Iona
+(Mrs. W. M.)
+
+Seelye, Alden Leroy
+
+Seelye, Mary Lucille
+(Mrs. A. L.)
+
+Smith, Dorothea Marie
+
+Televiak, Michael James
+
+Televiak, Frances Mae
+(Mrs. M. J.)
+
+Torello, Jane Mary
+
+Trabert, Evelyn Isabel
+
+Van Zandt, Daphne Lee
+
+Vartanian, Esther
+
+Ward, Dora Eleanor
+
+Whitmer, Floyd Cecil
+
+Willbanks, Dorothy Juanita
+
+After a brief recess the college was opened to receive the fifth class, which took up residence at Gilead March 5, 1945. One hundred and four students enrolled. This was the largest class registered up to this time. After five months of strenuous study, there were one hundred and one that completed the course and graduated. Of this number, ninety-four received diplomas of merit.
+
+### GRADUATES OF GILEAD RECEIVING DIPLOMAS
+
+July 30, 1945
+
+Adams, John Edward
+
+Allison, Gladys Virginia
+
+Anderegg, Gifford Casper
+
+Anderson, Clifford Earl
+
+Barney, Charles Frederick
+
+Barney, Eva (Mrs. C. F.)
+
+Bartlett, Milton Everett (Jr.)
+
+Baxter, Donald Edward
+
+Bivens, William Aubrey
+
+Bivens, Bertha Susann
+(Mrs. W. A.)
+
+Boyd, Maxine
+
+Brehmer, Dorothy Helen
+
+Briggs, Richard Dale
+
+Brown, Joan
+
+Cardillo, Christine Haaga
+
+Chaplinski, Walter
+
+Claus, Orville Bernard
+
+Coffman, Ethel Elizabeth
+
+Conner, Nedra Ardyce
+
+Conte, Joseph Patrick
+
+Culley, Elbert Franklin
+
+Culley, Norma Faye
+(Mrs. E. F.)
+
+Daniels, Edwin Grant
+
+Daniels, Esther Laura
+(Mrs. E. G.)
+
+Dzurak, Amelia Emily
+
+Farah, Affi Khoury
+
+Fedorka, Joseph
+
+Fish, Lowry Norbert
+
+Garey, Max Raymond
+
+Garey, Althea (Mrs. M. R.)
+
+Geiselman, Margaretha Anna
+
+Gensenleiter, Joyce Alma
+
+George, Susan Lee
+
+Goodwin, Lovic Gleason
+
+Goslin, Phyllis Lorraine
+
+Goslin, Vivian Martha
+
+Graham, Kathleen Mary
+
+Hanna, William
+
+Hanna, Elsie Catherine
+(Mrs. W.)
+
+Hannan, Robert Moore
+
+Hannan, Vora Purdy
+(Mrs. R. M.)
+
+Hanson, Garnet Fanchon
+
+Hemmaway, John Tom
+
+---
+
+<sup>**Page 35**</sup>
+
+[Open Page 35 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=35)
+
+34
+
+Yearbook
+
+Hemmaway, Daisy Gertrude
+(Mrs. J. T.)
+
+Hibshman, David Zinn
+
+Hibshman, Helen Belle
+(Mrs. D. Z.)
+
+Hill, Eva Marie
+
+Himelick, Robert Edward
+
+Hollister, George Stevens
+
+Hollister, Jean
+
+Holmes, Virginia Ruth
+
+Homolka, Charles Peter
+
+Homolka, Florence Frieda
+(Mrs. C. P.)
+
+Huebner, Harold Henry
+
+Huebner, Lorraine Evelyn
+(Mrs. H. H.)
+
+Johnson, Aline
+
+Johnson, Verville Gustaf
+
+Johnson, Emma Grenz
+(Mrs. V. G.)
+
+Kirk, Robert William
+
+Knott, Wayne Merritt
+
+LaBlotier, Kenneth August
+
+Laier, Ann Hope
+
+Laing, Larry C. (Jr.)
+
+Laing, Mary Margaret
+(Mrs. L. C.)
+
+Langford, Helen Virginia
+
+Leffler, August
+
+Leiby, Milton Lincoln
+
+Marquardt, Lorraine Esther
+
+Mays, William Henry
+
+Mazur, Wanda
+
+Mickler, Hesta Vashti
+
+Miller, Alice Mabel
+
+Miller, Helen Marguerite
+
+Miller, Ruth Ann
+
+Montier, Wilma Davis
+
+Muhaluk, Paul
+
+Pitotti, Leondina Edith
+
+Rowitsch, Dorothy Estelle
+
+Rydell, Esther Mathilda
+
+Sideris, Anthony
+
+Steele, Lola Gertrude
+
+Stewart, Vera
+
+Stolfi, Jeremiah
+
+Stolfi, Mary Lucy (Mrs. J.)
+
+Turpin, James Lyle
+
+Vaile, Charles Mack
+
+Vaile, Maye Lillian
+(Mrs. C. M.)
+
+Walker, William Edward (Jr.)
+
+Walker, Elizabeth Roberts
+(Mrs. W. E.)
+
+Wan, Walter
+
+Weber, Henry Barrett
+
+Wiger, Samuel
+
+Woods, Louis Edward
+
+Woods, Cora (Mrs. L. E.)
+
+Many students have described their school days at Gilead as a foretaste of life in the New World. College life at Gilead is full of joys of every sort, for all are engrossed in diligent study to enhance their appreciation of God's Word; and, at the same time, they are building friendships that are true and enduring. Here at this Watchtower Bible College the brethren learn how to dwell together in peace and unity, co-operating as one large family of God's servants. Since its founding in 1943, five college classes have taken up residence, completed their courses of advanced ministerial training, and have then departed, ready for outlying fields. A total of four hundred and sixty-five ordained ministers, men and women, have had opportunity of finishing this splendid training course. Four hundred and forty received diplomas showing that they merited commendation because of having sufficiently high marks.
+
+It is essential that Jehovah's witnesses everywhere gain as much knowledge of the Lord's Word as possible, because knowledge is a defense. "For wisdom is a
+
+---
+
+<sup>**Page 36**</sup>
+
+[Open Page 36 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=36)
+
+Yearbook
+
+35
+
+defence, and money is a defence: but the excellency of knowledge is, that wisdom giveth life to them that have it.”—Eccl. 7:12.
+
+One hundred and four graduates of the college have already gone out of the country, to carry on work in foreign fields. These are scattered throughout fifteen countries, mostly in Latin America. The majority of the servants to the brethren in the United States are graduates of Gilead. Many graduates of Gilead are being used as company servants, to help better organize the companies, until such time as arrangements can be made for them to leave for foreign assignments. It is our hope that, during the 1946 service year, hundreds more of these graduates will go to foreign fields, there to take up the ‘discipling of all nations’, so that more of the nations can ‘be glad with his people’.
+
+### PRINTING THE MESSAGE
+
+At Brooklyn, New York, is located the principal printing plant used by Jehovah’s witnesses to prepare literature for use in field service. Other plants are located throughout the world; and some printing is done in most of the principal branches, especially the material necessary for local consumption, such as the _Informant_, handbills, and the like. During the past war years, however, many of the branches had to arrange locally for the printing of _The Watchtower_, books and booklets in commercial plants. This helped greatly in keeping the work going, but at a greater expense. It is believed that during the coming year most of the printing will be accomplished in the Society’s plants at various locations.
+
+These printing plants are not just ordinary printing plants, where one finds bosses, foremen, and many loafers holding down jobs. Watch Tower printing plants are different! In all of these plants the entire personnel is composed of ordained ministers, zealous, energetic men, young and old, and wholly devoted to Jehovah’s command, “Go ye therefore, and make disciples of all the nations.” What makes these offices and print-
+
+---
+
+<sup>**Page 37**</sup>
+
+[Open Page 37 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=37)
+
+36
+
+Yearbook
+
+ing plants so different is the spirit that prevails among the workers. It is the Lord's spirit that can be seen directing his visible organization of united, faithful workers. They know the work accomplished is not done because of their great numbers, nor by their own power; but it is the spirit of Almighty God operating upon them which brings about such marvelous results with so few workers. All of the brethren appreciate that the Lord's spirit is with them as they work toward the goal of 'discipling all nations'. They know their work plays a great part in serving their brethren world-wide, and in this they rejoice.
+
+The production spoken of here refers only to that accomplished in the United States. The reports in foreign countries will make mention of their own production. Due to confused world conditions, it was necessary during the past year to reduce in some instances the paper weight, thus lowering the quality of the paper, so as to conserve as much as possible. The Society was allowed a certain tonnage of paper, but this could be stretched by obtaining a paper of lighter weight, thus making it possible to print more books and booklets as well as magazines. By so doing, we were able to print 1,278,000 more books and booklets, and 1,434,800 more magazines, this year than during the previous year. Nevertheless, 276 tons less paper was consumed during the service year 1945. We did use 2,688 tons. Soon better and more paper will be made available.
+
+The bound book '_The Kingdom Is at Hand_' took the lead in this type of publication. Two and a quarter million copies were produced. The four-month _Watchtower_ Campaign in the field brought on a great pressure of work in the printing plant, and this was enthusiastically supported by the brethren in the office and factory. They did very, very well in handling this tremendous volume of increased work, day and night. In addition to handling all the mail, invoices, book-keeping and shipping in connection with the books and booklets ordinarily handled, the subscriptions and
+
+---
+
+<sup>**Page 38**</sup>
+
+[Open Page 38 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=38)
+
+Yearbook
+
+37
+
+orders for magazines increased over any previous year, reaching a new peak of magazines handled, namely, 19,332,855 copies of _The Watchtower_ and _Consolation_. A brief comparison of production at the Brooklyn factory is set out below.
+
+### PRODUCTION REPORT
+
+|   | 1945 | 1944  |
+| --- | --- | --- |
+|  Books and Bibles | 3,468,586 | 3,297,545  |
+|  Booklets | 21,992,757 | 20,885,719  |
+|  'The Watchtower' | 11,575,655 | 10,437,498  |
+|  'Consolation' | 7,757,200 | 7,460,500  |
+|  Total books, Bibles and magazines | 44,794,198 | 42,081,262  |
+|  'Kingdom News' | 13,500,000 | 13,500,000  |
+|  Advertising leaflets | 39,217,500 | 4,786,000  |
+|  Calendars | 77,798 | 60,334  |
+|  Miscellaneous supplies | 14,658,914 | 27,709,002  |
+|  Total miscellaneous printing | 67,454,212 | 46,055,336  |
+
+In order to do the above printing, mailing and shipping an average of 182 brethren worked at the Brooklyn factory and office. It has indeed been a privilege and a blessed treasure of service from Jehovah for each one's being able to serve his brethren world-wide. The handling of this tremendous amount of work was done in 270 working days of 8½ hours each. Additionally, it required the brethren to work extra time for 32 evenings, 2½ hours; also 6 Saturday afternoons of 4 hours each. It was one of the best years of production.
+
+To keep apace in handling the new subscriptions and the great demand for literature, the Society made some purchases of machinery, although such was difficult to get. We added to our office equipment a grapho-type machine for cutting stencils. As you will note above, there was a tremendous increase in the advertising leaflets over last year. The Society was able to obtain a used printing press for this kind of work, another linotype and some other equipment, all of which came in very handy in the producing of hand-
+
+---
+
+<sup>**Page 39**</sup>
+
+[Open Page 39 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=39)
+
+38
+
+Yearbook
+
+bills. The public meeting campaign was one of the highlights of the year for the United States; and during the service year, from January to August inclusive, 84,820,000 handbills were ordered by the companies and pioneers. In order to meet this great demand the Society had to use six outside printing plants, which were operated by devoted, consecrated servants of the Lord. Approximately 50 percent of the 84,820,000 handbills were printed at the Brooklyn factory, the balance being handled outside.
+
+### SHIPPING AND MAILING
+
+All the material produced in the factory must be handled by shippers or put into storage for future use. Inventories of the Society show that almost everything made in the factory during the past service year was shipped, and a great drain was made on our storage supply. The amount of 3,000,000 books, Bibles and booklets was shipped out of the Brooklyn factory in increase over last year. Of the 24,323,463 pieces of literature shipped out, 21,094,154 went to the companies and pioneers in the United States for domestic distribution. The other 3,229,309 eventually found their way, through slow shipping processes, to other countries. Undoubtedly in the next year or two shipping facilities will greatly improve for foreign shipment.
+
+Spanish and Portuguese publications took the lead as far as foreign publications were concerned, because the way was open to make shipments to South America and Central America, whereas little opportunity was open for shipments to Europe or other parts of the earth. The comparison of English- and foreign-language literature shipped is interesting, as set out below:
+
+|   | English | Foreign | 1945 | 1944  |
+| --- | --- | --- | --- | --- |
+|  Total books | 3,087,416 | 315,621 | 3,403,037 | 2,885,261  |
+|  Total Bibles | 134,375 | 3,178 | 137,553 | 211,316  |
+|  Total booklets | 18,900,052 | 1,882,821 | 20,782,873 | 18,204,432  |
+|  Total | 22,121,843 | 2,201,620 | 24,323,463 | 21,301,009  |
+
+---
+
+<sup>**Page 40**</sup>
+
+[Open Page 40 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=40)
+
+Yearbook
+
+39
+
+Back in the year 1935 the Brooklyn office shipped as many as 7,800,000 books and booklets to foreign countries. It is hoped that we shall soon reach and pass that mark.
+
+While the shipping department was very busy handling books, Bibles and booklets, handbills and other instruments used in preaching the gospel, the mailing department in the factory was operating at an increased pace, mailing out the _Watchtower_ and _Consolation_ magazines to the thousands of old and new subscribers. More magazines went through the mailing department this year than in any previous year in the history of the Society. Over 19,000,000 copies of _The Watchtower_ and _Consolation_ were handled. In fact, this year 1,642,000 more magazines were mailed out than last year. Looking at the circulation of the magazines from the viewpoint of individual issues, _The Watchtower_ had an average circulation of 480,509 each issue; whereas _Consolation_ had 296,640 for each issue. The expenses for mailing and shipping all literature leaving the Brooklyn office, both to domestic points and for foreign export, amounted to \$166,059.09. This cost includes cartons, wrapping paper, twine and other essential shipping supplies, as well as the carrying charges.
+
+The faithful brethren in the Bethel homes esteem it a real privilege to serve Jehovah's witnesses everywhere with these much-needed supplies. Each one appreciates that the work to be done must be done by someone; and it is their blessed lot to serve their brethren. Not only do they have the incomparable privilege and great joy of serving their brethren world-wide, because of their being at Bethel, but also everyone has the opportunity of serving in the field. Thus they, too, aid in making up the following report.
+
+### 'THE FIELD IS THE WORLD'
+
+The Lord's very clear statement as to what his servants in the earth should do is found in these words:
+
+---
+
+<sup>**Page 41**</sup>
+
+[Open Page 41 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=41)
+
+40
+
+Yearbook
+
+'This gospel of the kingdom shall be preached in all the world for a witness unto all nations; and then shall the end come.' On other occasions the Lord informed his followers that they were to 'go, disciple all the nations'. He said: 'The field is the world.' He further showed that people would come unto the Lord from every nation, kindred and tongue. This meant that the message or good news concerning the Kingdom would have to be preached world-wide, in every country, in every language, in every dialect, so as to give the people an opportunity to hear. The territory for service was not confined to the land of the Jews. Shortly after Jesus' death Peter was given the privilege of speaking the truth to the Gentiles; and Paul was recognized as 'the apostle to the Gentiles'. From that time forward the truth has found its way to the hearts and minds of many peoples throughout the world.
+
+The obligation falls upon Jehovah's witnesses, and they accept this obligation gladly, to preach this message and to comfort all that mourn in these last days of trial and tribulation. What follows in this report takes up the grand witness that has been accomplished world-wide, and you will see that many nations, peoples and tongues are 'glad with his people'. At the close of the service year it was not possible to receive reports from every land, because of censorship and strict military control in some areas. But you will observe that the report includes many more countries than that of last year.
+
+Those individuals that have been called to the Kingdom, that is, those that have entered into covenant relationship with God and have been begotten as sons of God and called to be joint-heirs with Christ Jesus in the Kingdom, have the responsibility of seeing that this message is preached far and wide. The remnant, 'his people,' of the body of Christ yet on earth are termed in the Scriptures as the 'faithful and wise servant'; and these, under the direction of their Commander, Christ Jesus, have served well and have in-
+
+---
+
+<sup>**Page 42**</sup>
+
+[Open Page 42 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=42)
+
+_Yearbook_
+
+41
+
+creased the interests of the Kingdom. Ever since Christ Jesus came to the temple in 1918, there to judge his people and the world, the “faithful and wise servant” class has heralded far the truth concerning Jehovah’s purposes and the establishment of his righteous Kingdom for the blessing of all humankind that love righteousness. Thousands upon thousands of persons have accepted this truth, have studied well the Lord’s Word, and have gone forth as companions of the “faithful and wise servant” class, preaching this same good message of comfort to the people.
+
+During war years it was impossible for all of them to keep in touch with the Society’s headquarters, but they continued to preach. Now that World War II has ended, many have been able to communicate again with the Brooklyn office and send reports of their experiences in past years and what they are doing now in advancing the kingdom interests. This world-wide report of field service will be a joy to the heart of everyone who loves truth and righteousness, and who appreciates that this old world holds forth no hope, but that the kingdom is the only hope for the people.
+
+### UNITED STATES OF AMERICA
+
+The servants of God in America have not had to go through the terrors of war, their homes were not destroyed, there was no general shortage of food. While they were not tried on this score, many other problems confronted Jehovah’s witnesses in the United States. The government of this land laid claim to everyone’s time. America was declared to be the “arsenal of democracy”. Everything was keyed up to a high tempo. There was plenty of money in the land, and it was easy to make money. The trial was presented to the Lord’s people through “the lust of the flesh, and the lust of the eyes, and the pride of life”. The Devil and his demon hordes never relax, but are continually endeavoring to attract and tempt those who are serving God away from their glorious privilege, trying
+
+---
+
+<sup>**Page 43**</sup>
+
+[Open Page 43 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=43)
+
+42
+
+_Yearbook_
+
+to get them entangled in the affairs of this world through one of the above-named means.
+
+Some persons who were serving the Lord succumbed. 'Seeing the opportunity for financial gain and for what he might have thought to be old-age security, he devoted days, nights, and week-ends to his daily occupation and stored up in his barns, so that he might live and be merry.' The majority by far, however, shunned the temptations of quick financial gain and kept their eye on the Kingdom and its work. They hearkened unto the Lord's admonition to 'seek ye first the kingdom . . . and all these things shall be added unto you'. They were not overly concerned in the other things that God has promised would be added unto them for faithfulness, namely, food, clothing and shelter. While some became engulfed in the affairs of this world and lost their appreciation of the truth, others became hearers of the Word and, finally, doers too. So at the close of the service year it is found that there is an increased number of publishers engaging in the field service compared with the previous year. The average hours in the field service is better.
+
+In addition to 62,271 average number of publishers engaging in the field service each month during the past service year, there were approximately 3,000 more ministers confined to prison that were not able to carry on their ministerial activity as pioneers or company publishers. Thus no report is had from them for field service. The report that follows does not show that a greater distribution of books, booklets and magazines was made, as a total; but these things are not the important items, although necessary. The decrease is slight. However, the report indicates that a greater number of hours were spent in the Kingdom service. This makes our heart glad. The opportunities of this world were not so attractive as to turn aside the Lord's servants, any more than in previous years; but rather, Jehovah's witnesses devoted more time in preaching the Kingdom during 1945
+
+---
+
+<sup>**Page 44**</sup>
+
+[Open Page 44 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=44)
+
+Yearbook
+
+43
+
+service year than in any previous year. Hours totaling 18,686,243 were devoted to the preaching of the good news to the people of this land. Many persons were comforted by Jehovah's Word in these troublesome days. Millions of back-calls were made on these interested persons and studies were started with them. A new hope was held before the hearers.
+
+A hundred thousand more back-calls were made during the service year than in the previous year, and this is a move in the right direction. In fact, 4,904,392 back-calls were made, and thousands of these were eventually converted into good book studies for the real instructive and educational work carried on by Jehovah's witnesses.
+
+The book-study feature is most encouraging, because here again we find an increase of 7,000 book studies conducted weekly over and above that of last year. On the average there were 59,955 book studies conducted every week throughout the United States. Ten thousand of these were being conducted by the special pioneer publishers, eighteen thousand by the general pioneers, and thirty-one thousand by the company publishers. This is indeed gratifying and shows that the publishers in the United States are becoming more book-study minded and understand that this is the principal means of feeding the 'other sheep'. With the war over and night-shift work ended for many plants, the book-study work can be carried on during 1946 with greater regularity and a larger number of persons served by the Bible instructors.
+
+Evidently the new feature of activity introduced in the United States during the service year, namely, the public meeting campaign, helped considerably in increasing the book-study work. The proper following through of the public meeting campaigns will resolve itself in the establishment of several book studies in the territory where the public meetings were conducted. Since January 1, 18,646 public meetings were arranged for, well advertised and carried through; and the attendance at these meetings totaled 917,352.
+
+---
+
+<sup>**Page 45**</sup>
+
+[Open Page 45 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=45)
+
+44
+
+Yearbook
+
+This campaign gained momentum as the year progressed. In January the campaign began with 159 meetings, with an attendance of 15,980. Toward the close of the year there were over 3,000 meetings being conducted each month, with attendances of well over 130,000. The advertising of the Kingdom accomplished through this public meeting arrangement was tremendous. When one stops to think that some 84,000,000 handbills were distributed in advertising these public talks, that thousands upon thousands of Jehovah's witnesses were to be found on street corners every week-end, that given territories were witnessed to from four to eight times in that many weeks, that neighbors were talking about it, that every one in town (whether he came to the meeting or not) knew about it, the far-reaching effect of the witness is seen. The people knew Jehovah's witnesses were active, engaging in their important work of proclaiming 'The kingdom of heaven is at hand'. This announcement was definitely made. The people are hearing it, and sooner or later these millions will want to know more. Keep up the good work and let the 'nations be glad with his people'.
+
+Only 1,558 companies of the 2,871 enrolled with the Society conducted public meetings during the year. Not all got started on this. Some believed they did not have qualified brethren to give the lectures; others were unable to obtain halls; and still others were a little slow in getting things organized for this activity. It is hoped that during the coming year all the companies throughout the country will make some preparation and have some public meetings in their territory. The public meetings seemed to have stirred up good interest, particularly in the month of April, when a new peak of publishers for the service year was reached. It was an improvement over 1944, but not above the highest peak ever reached in the United States. The peak number of publishers for the service year 1945 was 66,670, a little better than 4,000 publishers over the average for the year. A comparison
+
+---
+
+<sup>**Page 46**</sup>
+
+[Open Page 46 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=46)
+
+Yearbook
+
+45
+
+of all of these figures with those of the previous year is most interesting, and a report is set out below.
+
+# ANNUAL FIELD SERVICE REPORT
+
+FOR
+UNITED STATES, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- |
+|  Books | 383,763 | 856,480 | 1,469,532 | 2,709,775 | 2,737,325  |
+|  Booklets | 1,412,085 | 3,281,582 | 7,239,844 | 11,933,511 | 12,561,672  |
+|  Total | 1,795,848 | 4,133,062 | 8,709,376 | 14,643,286 | 15,298,997  |
+|  Pub's (av. mo.) | 1,224 | 3,178 | 57,869 | 62,271 | 61,172  |
+|  Hours | 2,477,750 | 5,470,796 | 10,737,697 | 18,686,243 | 18,518,985  |
+|  New subs. | 34,720 | 64,638 | 130,166 | 229,524 | 208,166  |
+|  Ind. mags. | 583,361 | 1,557,284 | 5,039,302 | 7,179,947 | 7,448,325  |
+|  Back-calls | 875,387 | 1,419,763 | 2,609,242 | 4,904,392 | 4,803,084  |
+|  Av. no. back-call book studies | 10,215 | 18,534 | 31,206 | 59,955 | 62,948  |
+|  Average hours | 168.7 | 143.4 | 15.5 |  |   |
+|  Av. back-calls | 59.6 | 37.2 | 3.8 |  |   |
+|  Av. book studies | 8.3 | 5.8 | .5 |  |   |
+|  Public meeting campaign:  |   |   |   |   |   |
+|  Meetings held | 447 | 224 | 17,975 | 18,646 |   |
+|  Attendance | 14,563 | 4,801 | 897,988 | 917,352 |   |
+|  Companies in country |   |   |   | 2,871 | 3,056 (Sept.)  |
+|  Peak of publishers for the year was in April: |   |   |   | 66,670 | 64,467  |
+
+The above report's showing a magnificent witness given for the Kingdom does not indicate, however, that the work is anywhere near done, nor that the United States is getting the witness it should. There are more witnesses serving the interests of the Kingdom in the United States than in any other land; but, even so, there are millions of persons who were not approached during the past year nor told anything about the Kingdom. This is no fault on the part of the publishers. Here again the war and its effects on humankind enter the picture. Many of the brethren who had ears for use in former years could no longer
+
+---
+
+<sup>**Page 47**</sup>
+
+[Open Page 47 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=47)
+
+46
+
+Yearbook
+
+use them to the extent they desired because of the shortage of gasoline supplies. Furthermore, tires were rationed; and much of this mobile equipment has now become quite old because of their inability to replace it. Thus it has been impossible for company publishers and pioneers to do much of their rural territory.
+
+In addition, many whole counties in the United States were not even touched because of being sparsely populated and too hard to reach. For example, there were 1,419 counties in the United States that were not witnessed to at all. This number, although representing 46 percent of the counties in the United States, represents only about 16 percent of the population, because these particular counties are sparsely settled in many instances and none of them has within its boundaries the larger cities of the United States. But the population of these counties is equal to 16 percent of the population of the United States, and thus approximately 22,000,000 people were not reached during the service year 1945. By way of comparison, this would represent twice the population of Canada; and in Canada there are over 10,000 publishers for the 11,000,000 in that land. We might assume, then, that, in due course, when these people are reached, there should be scattered among them at least 20,000 publishers to care for this population. In order for these persons to believe, they must first hear; therefore preachers must be sent. This will take time and workers. The problem will be left mainly to pioneers. There is a great field open in this country for pioneer publishers, special and general. Will you join the ranks of these full-time publishers? You can 'go, and disciple all the nations' right in your own country.
+
+By consulting the table you can very easily see what has been accomplished by the special and general pioneers in the United States. Their work generally is a splendid improvement over that of last year, particularly in hours, back-calls and book studies. In 1944 the special pioneers averaged 165.9 hours; this year they jumped to 168.7. Their back-calls last year
+
+---
+
+<sup>**Page 48**</sup>
+
+[Open Page 48 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=48)
+
+Yearbook
+
+47
+
+were an average of 57; this year, 59.6. Their book studies jumped from 7.5 to 8.3. A like good increase is shown for the general pioneers, who have increased their hours from 130.2 to 143.4; their back-calls from 32.6 to 37.2; and their book studies from 4.6 to 5.8. The company publishers did better by .5 hour per month and .1 back-call per month, but they stood still with regard to the book studies. However, in field activity the averages of all the publishers are as good as or better than those of last year.
+
+A word must be said about the pioneers. The special publishers and general pioneers have carried on marvelously during the past year. Many of them have been a big help to company organizations. About 200 were called and have gone to the Watchtower College. Scores of special publishers have traveled on to foreign lands. Many have been assigned to be servants to the brethren. Along with the wonderful work each one is doing go the hardships, the problems of life, the persecution from the enemy, even imprisonment because of being a faithful minister. Joining this valiant group of workers in full-time service were the summer pioneers. They did very well. Having no time for the old world, these young folks out of school for about three months thought it well to devote their time to full-time service. There were 581 youths, girls and boys, that had to be about their Father's service. All of us rejoice with them as they prepare for full-time service now. Then, in years to come, not too far distant, on to special service, to the Bible college, and to foreign fields, being all the time in Jehovah's service. These will not have spent their youth in vain. Many have written in about their plans for next year, and for some it will be full-time pioneer for good; no more school for them, as they will have finished. Not only have these young folks swelled the ranks, but many new ones have taken the forward step and entered this glorious service for the first time. There is room for thousands more of pioneers in the United States.
+
+---
+
+<sup>**Page 49**</sup>
+
+[Open Page 49 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=49)
+
+48
+
+Yearbook
+
+To aid the special pioneer publishers in their field service, so they could take care of the many back-calls and concentrate on the book studies, the Society assisted them to the extent of $228,539.17. That means aiding the special publishers, on the average, to the amount of about $190 per publisher per year. Additionally, the Brooklyn office credited pioneer accounts with $135,000; so pioneers would not have to make remittances with orders until this credit was used. The Society also spent $97,229.20 to send Watchtower College graduates out of the country and take care of them in their new assignments during the service year 1945.
+
+Some of the high points of the year should be touched on. The public meeting campaign was, of course, outstanding in that it was something new. It is reaching into another field as far as witnessing is concerned, and many of the brethren have been prepared for it through the Theocratic ministry course. The public meeting campaign fits in splendidly with all the monthly campaigns the Society arranges for. The _Watchtower_ Campaign, beginning in January and concluding with April, was by far the most successful subscription campaign to date. In the United States alone there were approximately 170,000 new subscriptions taken during that particular period. For the entire year you will observe that the publishers took in 229,000 new subscriptions. So the greater part of the work was done during these four months. It is hoped that the _Watchtower_ magazine will become the most widely read magazine throughout the world; and this can be so if all publishers world-wide set their hearts and minds to the work during the _Watchtower_ campaign each year. It is hoped that the regular mailing of _The Watchtower_ will soon exceed the half-million mark for every issue, this in the English language alone. It is hoped, too, that during the 1946 service year _The Watchtower_ published in other languages will move ahead just as rapidly and take the lead as one of the principal
+
+---
+
+<sup>**Page 50**</sup>
+
+[Open Page 50 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=50)
+
+Yearbook
+
+49
+
+instruments used by Jehovah's witnesses in feeding the 'other sheep'.
+
+The 'United Kingdom Announcers' Testimony Period held a unique position in the year's progress of events. It was in April that nearly 300 cities throughout the United States arranged for special public meetings, along with other local events, all of which were beneficial to those that attended the special services. This testimony period brought to a close the _Watchtower_ Campaign, and on April 29 these 300 cities had at their public meetings on 'The Meek Inherit the Earth' a total of a little more than 100,000 persons. This was indeed a wonderful witness for one day. There was also released during this month the book _Theocratic Aid to Kingdom Publishers_, which proved to be an added stimulus to the brethren in pushing ahead with the public meeting campaign. This book showed to all the publishers of the Lord the need of proper preparation for these meetings; and furthermore, that the Society was providing the necessary material to each individual for such preparation. It is quite evident that the time is here when every person consecrated to the Lord must do preaching, and _Theocratic Aid to Kingdom Publishers_ will help each one individually to prepare himself better for that glorious task.
+
+The outstanding message for the year was '_The Kingdom Is at Hand_', and the book of this title had an unprecedented distribution. The brethren everywhere rejoiced that they had the opportunity of taking this message to the people, as well as the new booklet '_The Kingdom of God Is Nigh_', released at the Buffalo assembly in 1944. No general convention could be arranged for the 1945 service year, because of travel restrictions; but from time to time the Society released publications that would aid the brethren in their progressive campaign of Kingdom-preaching work.
+
+In February a new booklet was brought out, the title of which is _One World, One Government_. Over 4,800,000 copies of this were shipped out for use in
+
+---
+
+<sup>**Page 51**</sup>
+
+[Open Page 51 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=51)
+
+50
+
+Yearbook
+
+the field. In June there came along the booklet _The Meek Inherit the Earth_. By the close of the year 4,900,000 copies of this booklet were already shipped out. And the final publication for the year was _The 'Commander to the Peoples'_, 2,500,000 copies being shipped out before the close of the year for the use of the brethren.
+
+There is no doubt that the truth is attracting much attention in the United States, and the people are really interested in it. The good-will people in all parts of the country were invited to attend the Memorial service on March 28, 1945, and it is interesting to observe that 94,217 persons did attend; and 11,833 partook of the emblems, thus indicating that the remnant of the body of Christ still on earth are quite few compared with those of good-will who are seeking refuge within the organization. Also, this indicates that by far the greater number of publishers in the United States are of the 'other sheep' class, the companions of the Lord's faithful servants; and these brethren from all nations 'are glad with his people'. They rejoice to walk along as one organization in praising the Lord. As they have gone on in this activity they have met with some opposition during the year, but not as much as in former years. There are many instances arising in the United States where opposition is shown to the truth and persecution is brought to bear against the Lord's people, but not all these are reported to the Brooklyn office. Those that are, however, come to the Legal Desk. The report from the Society's Legal Desk is here quoted in part.
+
+Christ Jesus declared: 'And ye shall be brought before governors and kings for my sake, for a testimony against them and the Gentiles. Then shall they deliver you up to be afflicted, and shall kill you; and ye shall be hated of all nations for my name's sake.'—Matt. 10: 18; 24: 9.
+
+The service period just ended proves conclusively that the United States has continued to be among the nations that hated Jehovah's witnesses. However, the constitutional bulwark of liberty, thrown up in recent years by a series of innumerable court decisions, has acted as a shield to hold back a great portion of the onslaught of the demonized
+
+---
+
+<sup>**Page 52**</sup>
+
+[Open Page 52 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=52)
+
+Yearbook
+
+51
+
+hordes that have swept over the earth in their effort to sweep out Jehovah's witnesses and stop their work of making disciples of all nations. (Matt. 28:19) But in spite of the constitutional guarantees of freedom of worship, and plain court decisions construing the same, there have continued to be false arrests and malicious persecution of Jehovah's witnesses in the United States, contrary to law. This course of action is in keeping with the prophecies of Christ Jesus.
+
+The trouble experienced by Jehovah's witnesses in this country in the past year has continued because they refused to stop their faithful preaching of the gospel. Religionists and politicians, defeated in their mass assault against Jehovah's witnesses of 1940 to 1943, have indulged in retaliative measures. Intermittent arrests have been made in various parts of the country, due to the enragement of the enemy over the refusal of Jehovah's witnesses to surrender their field of worship and abandon their covenant obligations to make disciples of all the nations.
+
+Twenty-one different states have been the scenes of persecutions of Jehovah's witnesses in the courts during the past twelve months. Although opposition has continued, there has been a marked decrease in the actual number of arrests due to preaching the gospel from house to house and publicly upon the streets, as compared with previous years. Indeed, there have been fewer arrests and less opposition under local ordinances and laws this past year than at any other time since trouble broke out against Jehovah's witnesses in this country several years ago. Even the number of cases handled in the appellate courts has decreased. A comparison with the previous year's report shows that there were twenty-four appellate court decisions handed down in cases involving the witness work, while during the year just ending there were only five decisions of appellate courts rendered.
+
+There has been a remarkable decline when compared with the record of opposition of local authorities in previous years, and when it is considered that there has been no abatement in the organized preaching from house to house and publicly. In fact, there has been an increase in the preaching by the institution of the vast public meeting campaign throughout the United States. Although much public contempt was engendered in some places against the public meetings, causing opposition to be stirred up, there have been very few arrests as the direct result of the advertising and holding of public meetings. There have been numerous cancellations of public halls and auditoriums by weak-kneed politicians who succumbed to religious-political pressure. Some private owners have also canceled halls because of opposition against Jehovah's witnesses and their public
+
+---
+
+<sup>**Page 53**</sup>
+
+[Open Page 53 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=53)
+
+52
+
+Yearbook
+
+meetings. The percentage of cancellations, compared with the thousands of public meetings held, has been very low.
+
+There were scores of cases handled in lower courts involving trespass, breach of peace, disorderly conduct, and many other minor false charges filed against Jehovah's witnesses. A large number of consecutive victories were won, and all these cases were dismissed. For the first time in eight years there was no case involving Jehovah's witnesses argued before and decided by the Supreme Court of the United States. The comparatively few arrests that have been made in spite of the intensification of the preaching of the gospel in the United States should serve as a reminder to the brethren that the enemy has not gone to sleep. We should not forget the hundreds of mob actions against Jehovah's witnesses in former years. The Hezekiah articles in _The Watchtower_ showed that, although King Sennacherib's armies withdrew their assault against Judah for a time, nevertheless before the final battle was fought King Sennacherib returned with his armies to a position with intent to invade Judah, picturing Jehovah's people today. _The Watchtower_ pointed out that the return of Sennacherib pictured the return of the persecution of Jehovah's witnesses during an era following the war between the United Nations and the Axis powers that has just ended, for which we should brace ourselves by preparation and keeping the faith.
+
+While local opposition has given way, national opposition has taken place. The facts show that there are now approximately three thousand men, ministers, who are Jehovah's witnesses, in prison suffering long-term sentences of from one to five years because of their refusal to renounce their ministry and quit preaching the gospel of God's kingdom when ordered by arbitrary federal administrative boards refusing to recognize the legal ministerial status of Jehovah's witnesses, to take up a contrary work. Thousands of ministers have been convicted for failure to submit to the lawlessness of such administrative boards. These brethren were convicted without a fair trial, being denied illegally the right to prove that they were ministers under the law, to show that the board illegally tried to compel them to give up their ministry. Scores of cases have been appealed by Jehovah's witnesses on the issue of the denial of due process of law in the so-called 'court trials' of such ministers in the lower courts because of failure to permit them to prove their exemption from duty as ministers in their defense. These cases have been adversely decided against Jehovah's witnesses by the federal appellate courts because of so-called 'public policy and expediency' without regard to the Act of Congress and the Constitution. In spite of constitutional guarantees of
+
+---
+
+<sup>**Page 54**</sup>
+
+[Open Page 54 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=54)
+
+Yearbook
+
+53
+
+right of fair trial and the law that exempts ministers from duty under the Act, they have been treated as domestic rebels without benefit of constitutional right of self-defense in the courts.
+
+Jehovah's witnesses do well to keep as busy as they possibly can in the service of the Lord, whether they be special pioneer publishers, general pioneers or company publishers. Stay close to the Lord's organization, study regularly with the brethren in the _Watchtower_ studies, attend the service meetings, know organization instructions, keep abreast with the study in the booklet _Freedom of Worship_, and be diligent in your preparation and study of the course in Theocratic ministry. Above all, be good publishers and worthy servants of the Lord, praising his name day and night.
+
+#### OTHER COUNTRIES UNDER THE BROOKLYN OFFICE
+
+Wherever Jehovah's witnesses are, they are anxious to have close communication with the Society that directs the work of Jehovah's witnesses world-wide. Any territory in the world that is not assigned to a branch to look after makes a report to the Brooklyn office. As development occurs in these various territories under the Brooklyn office, and more people become interested, it may be that the Society will decide to establish a branch office in that territory or put that country under some other branch office for attention and handling. There are quite a few such territories, and each one will be dealt with individually. In a good many of the places handled by the Brooklyn office the work is done primarily by graduates from Gilead, and we rejoice with them that they have this pioneering opportunity to go into lands untouched or to places where very little witnessing has been done in times past.
+
+#### ALASKA
+
+When looking at a map of the world, Alaska seems to be off on one corner all by itself. In the wintertime the residents of Alaska return to the small towns and villages to live. In the summer they go out into the far country to mine, or off on salmon-fishing trips. The publishers of the
+
+---
+
+<sup>**Page 55**</sup>
+
+[Open Page 55 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=55)
+
+54
+
+Yearbook
+
+Kingdom must accommodate themselves to these conditions. Travel from one small town to another is usually accomplished by boat; not when the individual wants to go, but only when a boat happens to leave for his destination.
+
+Eight graduates from the Watchtower College have made the journey to Alaska, two taking up their work in the southern part, around Ketchikan; four in the capital Juneau; and two more in Anchorage. In many places they found the people were very anxious to hear; in others they met up with opposition. It was necessary at one time for our brethren in Ketchikan to point out to the authorities that the decisions of the Supreme Court of the United States still govern even the smallest towns in Alaska. This is a land for real pioneering, and one must learn to live as the people live and travel as the people travel there. At times one must literally hunt out the people, especially in the very small villages. Reports have come in indicating that as high as forty to eighty percent of the people are not at home, and often months pass before they do get home. They might be away on a long fishing trip, or in the back country at the mines. So a pioneer must be persistent, patient; but this persistency on the part of the pioneers shows up very well in their year's report.
+
+Last year there were three publishers in the country. This year there are ten. In 1944 only 348 pieces of literature were placed; this year 15,608 books and booklets found their way into the hands of the people. Such preaching has been accomplished in the 11,910 hours of the past service year, to compare with 451 hours of the previous year. The same work goes on there in the way of back-calls, book studies, etc., as in all other parts of the earth. The special publishers are conducting 32 book studies at the present time. Some good interest has been shown, and persons of good-will are coming to some of the local meetings. It has been difficult for the brethren to get in their time, due to weather conditions and almost incessant rain at certain times of the year. The special publishers have averaged 148 hours. Jehovah's blessing has gone with these faithful servants of the Lord in this beautiful country, but one in which it is hard to get around from place to place in order to meet the people and give them an opportunity to hear. These brethren fully appreciate that 'whosoever shall call upon the name of the Lord shall be saved'. (Rom. 10:13) But such cannot call upon his name unless they have first been taught; therefore these preachers have been sent. Jehovah's blessing is with them.
+
+### ICELAND
+
+This large island just below the arctic circle has played a prominent part in the affairs of war. There has been one
+
+---
+
+<sup>**Page 56**</sup>
+
+[Open Page 56 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=56)
+
+Yearbook
+
+55
+
+pioneer in Iceland for many, many years, and he has done very good work. During the past year he distributed 4,357 books and booklets, of which over 1,600 were bound volumes. His average of hours in the field was 149, but this is based on a six-month report received from the pioneer. Part of the year he devotes to preaching the gospel in the principal city, Reykjavik; and the rest of the time he travels in the rurals. This brother found many people interested in what he has to say and in what he has for them to read; but as yet none have taken up the work of preaching the gospel.
+
+### BERMUDA AND THE BAHAMAS
+
+Bermuda is a group of small islands controlled by the British, lying several hundred miles off the coast of North Carolina in the Atlantic ocean. Some years back it was decreed that the work of Jehovah's witnesses had to cease, and as yet no liberty or relief has been given to our brethren. This, however, does not bind the servants of the Lord to the point where they cannot preach the gospel. They do preach. 'Woe is unto me, if I preach not the gospel!' is the feeling of these brethren as it was the feeling of Paul. There are still three faithful servants of the Lord proclaiming the message regularly. They are not able to report many hours or the placement of much literature, but the Society has received reports over a period of ten months which indicate that these three brethren have not slacked their hand. It is hoped that some day soon freedom of worship will be a blessing coming to all the possessions of the British Empire. These brethren in Bermuda know, however, that they 'ought to obey God rather than men'.
+
+The Bahama islands number twenty in all, lying north of Cuba and southwest of Florida. These islands, like the Bermuda islands, are under British control. Since September, 1942, the publishers of the Kingdom here have labored under a ban prohibiting the importation of the Society's Christian literature, and thus they have been somewhat handicapped in carrying on the discipling work. In March of 1945 the brethren again endeavored to effect the lifting of this unjust restriction on their free worship, presenting a written petition to the governor requesting relief. This brought forth a negative reply from the colonial secretary's office at Nassau, without any reason being given therefor. There is none. It is an effort to prevent the people from learning the truth and smacks of religious influence in the ruling circles there. However, the gospel preachers do not despair, but push ahead, doing whatever work they can. The Bible is in their hands, and this is the most effective instrument for preaching the good news. In his own good time Jehovah will open up the way for greater activity.
+
+---
+
+<sup>**Page 57**</sup>
+
+[Open Page 57 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=57)
+
+56
+
+Yearbook
+
+# PUERTO RICO
+
+The 1944 service year report shows 14 publishers engaging in the field service. This was almost doubled during 1945. There are now 27 publishers serving regularly in the field service. Seven of these are Watchtower College graduates that have gone to Puerto Rico to help the people of good-will gain a knowledge of the truth. There are also two pioneers that have been there for some time, and 18 company publishers. Puerto Rico is in the torrid zone, and therefore their problem is somewhat different from that of the Gilead brethren in Alaska. Here they try to keep cool in their hottest weather; whereas in Alaska the big problem is keeping warm at times. But the publishers appreciate that 'this gospel of the kingdom' is to be preached in all the world, to all nations; and the Lord has seen fit to have people live in all kinds of climate and territory. So, then, 'Go, preach!'
+
+This little island is sort of a keystone of a beautiful chain of islands running from Florida all the way down to the northeastern corner of South America. But, with all its beauty, living conditions are not the finest. The people generally are very poor and have been steeped in religion for years. All the publishers, however, have found unusual interest in the truth on the part of the inhabitants of this island, and they are anxious to get literature and read about the Kingdom. This is readily seen in the tremendous increase in the distribution of literature during the past year over the previous year. In 1944 there were nearly 26,000 pieces of literature placed; but in 1945 the literature distributed surpassed 50,000 books and booklets. The same is true concerning magazine distribution. This increased from 2,400 to 6,600. It is due, of course, to the good, hard work the brethren have put in the field service. They devoted 21,068 hours to preaching the gospel.
+
+There are two companies organized now on this island. Public meetings have been started, and all the brethren appreciate the importance of making back-calls. The pioneer brethren from the college are setting an excellent example in averaging 72 back-calls per month. The two general pioneers are making 20 back-calls per month; and the company publishers are averaging 6.5 back-calls per month. The brethren from college have given good Theocratic instruction to the new Kingdom publishers. The special publishers in San Juan are planning to move to the heart of the city if they can get a large home that can be used not only for living accommodations but also for a Kingdom Hall. It is believed that if this move can be made there will be a greater influx on the part of the people of good-will. The splendid efforts put forth by all the publishers there in the book-study work is indeed admirable. There is room in
+
+---
+
+<sup>**Page 58**</sup>
+
+[Open Page 58 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=58)
+
+Yearbook
+
+57
+
+this island for many more publishers, and the Society plans to give this territory more attention by sending additional workers into the field.
+
+Jehovah's spirit has been with all these faithful servants of the Lord through their many hardships, trials and difficulties; but with it all they have the joy of the Lord and the manifestation of his rich blessing on their efforts.
+
+## HAITI
+
+This is a small, independent country in which 10 brethren are serving the Lord. For years they have sent forth a call for help. Recently two brethren from the Watchtower Bible College of Gilead studied up on the French language and went to Haiti, there to disciple the people. They report as follows:
+
+"There has never been an accurate census taken in Haiti, but the population is estimated at 3,000,000, most of whom live in the rurals. The island is mountainous and has a very agreeable climate, the temperature remaining much the same the year round. Sea breezes temper the hot season of July, August and September. Port-au-Prince is the largest city, with an estimated population of 230,000. Cape Haitien is second, with about 25,000; and five other towns have populations of between ten and fifteen thousand. Cities here do not compare with towns of equal population in the United States. Much of the town is composed of mud huts, with six to twelve persons in a hut, and children are as thick as flies. Port-au-Prince has many nice homes, however, which are mostly of stone and cement construction. A few frame dwellings are to be found. Glass windows are not used, but just wooden shutters. The streets are mostly just loose stone or paths. The well-to-do here compare with our middle class in America.
+
+"The people are all colored, and Americans are very few. There is no American or white section in Port-au-Prince. The people are predominantly black, with a small mulatto caste. Living conditions in Haiti are terrible. Many lead a hand-to-mouth existence. Haitians admit this terrible poverty condition but seem powerless to remedy it. Food grows wild on native lands in the mountains. The women then carry it on their heads many miles into town each day, over rocky mountain paths, in bare feet. Bananas, mangoes and oranges can be bought for two cents; avocados for one cent each. Meat is very cheap, the best cuts selling at 14 to 17 cents a pound.
+
+"The official language of Haiti is French, but French is spoken only as a formality. Everyone speaks Creole. It has been said that only ten percent of Haiti's population can read and write. Creole is not a written language, but just a dialect mixture of French, Spanish, English and African.
+
+---
+
+<sup>**Page 59**</sup>
+
+[Open Page 59 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=59)
+
+58
+
+_Yearbook_
+
+The people in general react very favorably to the Kingdom message. The inhabitants of every home hear the phonograph, and those who desire, can afford, and read French, take a book. They listen and grasp the importance of the message quickly. Although Haiti is officially Catholic, the church is fast losing its grip on the people. Many Protestant groups are growing rapidly.
+
+'A big work is done here by means of the phonograph, especially in instances where it is financially hard for the people to obtain the message in printed form. Sometimes a publisher will begin playing a disc for a solitary man, sitting on his porch. But before the record is finished often as many as ten to twenty people will quickly gather, coming from all quarters. Sometimes they take their last few pennies to obtain a book. Frequently one notices the obtainer of literature sitting on his porch, or in an open window, reading the book all through the day. It is strange when following up on your 'not at homes' to hear someone hissing at you to get your attention, desiring to obtain a book or have you play the phonograph for someone else.'
+
+The publishers have increased from seven to twelve in the past year, which includes the two college graduates. Literature distribution has jumped from 383 to 992 pieces.
+
+### DOMINICAN REPUBLIC
+
+This country and Haiti are on the same island. The Dominican Republic occupies the greater part of the island, and the principal language of the republic is Spanish. For years there were no witnesses in the land, but the Society arranged for two pioneers from the college to go into that territory, get established, and start with the ministerial activity. As the year came to a close, two more brethren were sent down to join them. There are now four publishers in the land and they are having good results in the distribution of literature, arranging for back-calls and conducting book studies. This is a real pioneering territory, and these Gileadites had to start from scratch, as it were. Some very good interest has been found. They are having their regular studies and people of good-will and others come to their home and study with them. It appears from the reports that it will not be long until a small company is established, because of other persons' wanting to join the brethren in the discipling work. More college-trained pioneers are on the way, to lend a helping hand.
+
+### BRITISH WEST INDIES
+
+This territory takes in a small group of islands in the Caribbean sea that do not come under any branch arrangement. A year ago there were three publishers reporting to the Society; now there are seven. There are two pioneers
+
+---
+
+<sup>**Page 60**</sup>
+
+[Open Page 60 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=60)
+
+_Yearbook_
+
+59
+
+and five company publishers. A splendid increase has been noted in the distribution of literature. Last year 78 pieces of literature were put out, whereas this year 714 were distributed. Magazines are being used by the brethren; back-call work was started for the first time, and also book studies. The brethren in the West Indies have gone ahead with the public meeting campaign, too; and they put on 22 lectures during the year, having a total attendance of 848. It is a joy to see this excellent progress made during the service year.
+
+### NETHERLANDS WEST INDIES
+
+The brief report we have on the work done in this territory is for only three months. There are two isolated publishers, anxious to serve the Lord and doing what work they can by preaching. They do not have very much literature, but in three months' time they devoted 79 hours to the field service. Their reports do not come in regularly. It is interesting to observe how the truth spreads from island to island. The people of good-will hearing at one place go home and preach it to others, and they continue to send in reports concerning the work. We rejoice with them. May the Lord continue to guide them.
+
+### GUADELOUPE, REPUBLIC OF FRANCE
+
+Some progress was made on this island during the year. Eight publishers continued active, two of them being pioneers. Good improvement was made in the back-call activity, 299 calls being reported. These developed into 9 regular book studies, which are conducted every week. The hours on the part of the publishers are very good. The two pioneers have been averaging 148 hours; and the company publishers (6 in number) have been averaging 23.3 hours. The total hours devoted to the preaching of the gospel were 3,388, a magnificent increase over the 977 of last year.
+
+### PANAMA AND CANAL ZONE
+
+The work in this country is moving along very well. Faithful brethren in the land have been calling for assistance of college graduates for some time, and now there are seven such pioneer brethren associated with them in their service activity. Much better organization has been established throughout Panama because of these being there.
+
+During the past year it was the good pleasure of the president of the Society, and one of the directors, to visit our brethren in Panama on two occasions. A good-sized hall was obtained for a public lecture, and the talk 'The Meek Inherit the Earth' was given to an audience of 384 on March 28. It was a real pleasure to be associated with
+
+---
+
+<sup>**Page 61**</sup>
+
+[Open Page 61 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=61)
+
+60
+
+Yearbook
+
+these brethren who had worked so hard and long in advertising this meeting.
+
+There are now 53 regular publishers in the field, to compare with 43 for the previous year. A good distribution of literature was made, reaching the total of 16,635 books and booklets and over 12,000 magazines. The back-call work has taken a real increase, jumping from 1,657 to 3,879. The same may be said of the book studies, for these have increased from 32 to 113 weekly. The special pioneer publishers from the college are conducting 49 of these studies, whereas two other pioneers are conducting 21 and the company publishers 43. There are three companies organized throughout Panama.
+
+The isthmus of Panama can be classified into about three parts: (1) the Canal Zone, operated by the United States Government, where English is generally spoken; (2) the coastal cities, principally Colon and Panama city, in which latter city the largest company is located; and (3) the interior. Here, because of lack of transportation and roads, little has been done in making known the Kingdom message. However, reports have been made on the part of publishers that some little work has been done in this part of the territory and 'sheep' are being gathered. For many years now the witness work in Panama has been carried on by English-speaking, West Indian brethren, some of whom have been faithfully serving the Lord since 1908. The work among the Spanish-speaking people, however, has been neglected; and these people comprise the majority of the population in Panama. Now that college graduates are going down there, it is believed that the Spanish-speaking people will be reached, so that the discipling of all nations may proceed and be increased in this particular land. The Spanish people are indeed interested in the truth and anxious to hear.
+
+In order to get better organized it will be necessary to find a better meeting place. It has been difficult to find a suitable hall for the assembly of the Lord's people. That is the reason no other public meetings have been held in Panama city, except the ones delivered by the president of the Society. However, some miles outside the city, talks have been given and attendances as high as twenty-one have been realized. The people of this land are very poor, and large families live in crowded homes of just one or two rooms. The better section of the city, where the more well-to-do live, has spacious homes. The real interest in the truth, however, is shown throughout the poorer section. Although many have been held in darkness by the various forms of religion, it is really remarkable to note their interest in the truth now. The desire on the part of all the brethren in Panama is to aid the people of good-will.
+
+---
+
+<sup>**Page 62**</sup>
+
+[Open Page 62 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=62)
+
+_Yearbook_
+
+61
+
+### **BRITISH HONDURAS**
+
+This is a Central American country, and the brethren here have needed help for years. The Society had been trying for some time to send trained pioneers down there. Before this could be done, however, the work continued to increase. The number of publishers jumped from 7 to 11 during the year. Much literature has been distributed, namely, 1,499 books and booklets, to compare with 115 last year. The magazine work is being carried on. The publishers appreciate the need for making more back-calls, and these have increased to 274, to compare with 26 for last year. Book studies need more attention. Two special pioneers from college arrived in British Honduras early in the 1946 service year, to help our brethren and press on in the work.
+
+### **EL SALVADOR**
+
+El Salvador is another small Central American country, and it borders on the Pacific ocean. This country was opened up for the first time for Society work this year. By the Lord's grace, we were able to send down four special pioneer publishers, graduates from the Bible college, and they have done some excellent work in that land in the few months they have been there. Already they have devoted 2,921 hours to field service, averaging 137 hours each. After arriving they had to hunt a home, get furniture and establish themselves, in addition to getting better acquainted with the language, the people and the customs of the land. They took great pleasure in facing these pioneer obstacles, and Jehovah's rich blessing is shown upon them in their excellent placement of literature. They already have distributed 3,519 books and booklets. Not only this, but they have made 1,272 back-calls and have started 79 book studies. The good result of this activity is that there are now four company publishers working with them.
+
+At the close of the year six college graduates were working together in this land, enjoying many privileges of service and really pioneering in a country where the truth was practically unheard of. It brought much pleasure to Brother Knorr and Brother Franz to be able to stop a few minutes at El Salvador and there meet the first two special pioneers to go into El Salvador, as well as eight other interested persons, at the airport. Reports since show that the people of the land are grateful for the educational work carried on by the Society's representatives.
+
+On one occasion two of the pioneers took a train trip to Santa Ana, not very far distant from San Salvador. The train made several stops at little communities along the way, and during this time the two brethren passed out 65 booklets to the inhabitants. Between trains at Santa Ana
+
+---
+
+<sup>**Page 63**</sup>
+
+[Open Page 63 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=63)
+
+62
+
+Yearbook
+
+there was a period of five hours, and during that time the two pioneers placed 24 books. Almost all the people were very friendly. Santa Ana is a city of about 80,000 people and compares very favorably with San Salvador for cleanliness and housing facilities. It appears that everything is cheaper in Santa Ana than in San Salvador. All of this shows there is plenty of more territory in the lands of Central America for the brethren to work. A special publisher writes the following concerning their experiences:
+
+'The Society has been very gracious in aiding our group to reach its assignment here and also in aiding to see that we are properly housed and cared for. Many poor people of good-will of El Salvador appreciate the provision of Jehovah in providing the truth in such a simple and beautiful form, and at a contribution most of them can make, or free if they cannot contribute for the cost of material.
+
+'The house in which our group of pioneers lives is centrally located and is sufficiently large to also serve as Kingdom Hall, at least for the present, where about twenty persons gather weekly for study in the Spanish _Watchtower_ and for service meeting. We also have the course in Theocratic ministry and an English _Watchtower_ study every week. The course in Theocratic ministry, which is conducted in Spanish, should enable the pioneers here to soon put on a series of public meetings.
+
+'One of the most active publishers was located in the field by one of the pioneers. This lady had abandoned 'Romanism' and joined the Baptist church, but had also forsaken it because of being unable to find spiritual food there. In the days that followed she had gone out 'evangelizing' on her neighbors with the Bible. After only one book study with the pioneer this lady became an active publisher and has been in the field every month since.
+
+'Recently, at a funeral of the husband of a lady of good-will, where Jehovah's witnesses were conducting the funeral discourse, a Roman Catholic priest, against the wishes of the lady of the house, rudely interrupted the discourse and told the people to follow him in his procession to the cemetery with the dead body. In the group to follow him was included the Baptist preacher.'
+
+And so it is seen that the religionists are united in opposing the enlightenment of the people. But, by the Lord's grace and through the bringing of more special pioneer brethren to this field, it is expected that much work will be done in behalf of the truth and to the end that Jehovah's name may be honored.
+
+### COLOMBIA, SOUTH AMERICA
+
+This is a large country, in which there is much work yet to be done. Only one publisher reported during the past
+
+---
+
+<sup>**Page 64**</sup>
+
+[Open Page 64 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=64)
+
+_Yearbook_
+
+63
+
+year, and he placed 455 bound books and devoted 385 hours to the field service. This company publisher averaged 29.6 hours per month, and made 3.5 back-calls. He is working very diligently, trying to help the people of good-will, and the Society wants to give him all the assistance it can.
+
+Just before the year closed, three college brethren went to Colombia and settled in the capital city of Bogotá, there to carry on the special pioneer work. Others are joining them, and hence the 1946 service year should prove very helpful to the inhabitants in and around Bogotá. It is hoped that soon still others will join the group and look well to the preaching of the gospel in this great country of northwestern South America.
+
+### NETHERLANDS GUIANA, SOUTH AMERICA
+
+There are two publishers here preaching the gospel, but they have no literature with which to work. The Society hopes to keep them supplied, if possible, so that the gospel preaching may continue to go forward.
+
+### VENEZUELA
+
+There is one lone representative in this country, having made a report one month during the year. The pioneer has moved on to another territory. It is hoped, however, that the Society will be able to send some special publishers from its college into Venezuela during the coming year, to take up the work of 'discipling all nations'.
+
+### EGYPT
+
+The work in Egypt moves ahead. The brethren are zealous and doing all they can with the literature they have. There are 55 publishers in the work, and they have distributed 5,326 books and booklets and devoted 9,440 hours to the field service. Three pioneers in the territory are devoting each 104 hours monthly to the work, making 34 back-calls and averaging 4.7 book studies. The company publishers are doing excellently, too, in that they are devoting an average of 17.5 hours a month to the field service, making 3.9 back-calls and conducting .4 book study on the average.
+
+Toward the beginning of the war an effort was made to suppress the preaching of the Kingdom gospel and frighten the brethren into inactivity. For example, at Cairo the authorities moved to close the Kingdom Hall, confiscating literature, phonographs, records, office equipment, and other property of the company. This at first had a tendency to discourage some, but they quickly rallied and continued steadfast at their post of gospel-preaching. The brethren were determined to maintain their freedom of worship, and so they gathered together in various homes to continue feeding upon the Lord's Word and to arrange for the field-
+
+---
+
+<sup>**Page 65**</sup>
+
+[Open Page 65 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=65)
+
+64
+
+_Yearbook_
+
+service work. Using the few books and booklets that remained in their possession, and relying upon the Bible as the most effective instrument, they proceeded to proclaim the truth. The giving forth of the Kingdom message never stopped, despite the difficulties encountered. Conditions are now much improved and the elder brethren are making every effort to organize the work more effectively. They appreciate the Theocratic organization and express a desire to be thoroughly in line with headquarters.
+
+Here again is request made for the sending of college brethren, so that efficient organization might be hastened and the various companies throughout the land welded into a more compact Theocratic unit. It is the Society's hope that, in the not far distant future, college graduates will be sent to Egypt, there to assist the faithful brethren who are working diligently in proclaiming the message of the Kingdom. The Lord's witnesses have done well under difficult circumstances during the past year.
+
+### SYRIA AND LEBANON
+
+Information received from these far-away places is very meager. A report recently received from one pioneer publisher indicates that there are about twenty-five publishers in various scattered towns, all of whom desire literature supplies to facilitate the doing of the preaching work. Some work is being done, however, and it is reported that about ninety-two different individuals attend eight different study classes throughout the area. Truly this is a field for special pioneers and, if it is the Lord's will, some will be sent there in due course. In the meantime the preaching of the gospel goes on!
+
+### CYPRUS
+
+Hardly any word has been heard from Cyprus during the years of war, but we rejoice to be able now to report that 28 brethren are engaging in the field service and are doing good work. They are using what literature they have. In a letter received from there it is stated that all the publishers are getting on at unity and are better organized for the Lord's service. Even during the war years the anointed and their companions fainted not, but courageously carried on, knowing that they were backed up by the great Rock of Ages, Jehovah God. At the start of the war in 1939 their stock of literature was very limited and lasted for only twelve months. In May of 1940 it appeared they would cease receiving the 'meat in due season'. However, they did not go hungry, because when the magazines stopped coming from the United States they were received from London. The truths contained in the Lord's Word were translated into Greek and passed on to the brethren.
+
+---
+
+<sup>**Page 66**</sup>
+
+[Open Page 66 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=66)
+
+Yearbook
+
+65
+
+They report that they were especially appreciative of the articles on 'Jephthah and his daughter', 'The Only Light,' 'The Prodigal Son's Return,' and the many other provisions that the Lord made for them.
+
+In carrying on their witness work in Cyprus, there were three or four occasions when a few of the brethren were beaten severely by servants of religion; but they were preserved to carry on further activity later. Recently some literature long ago received at the island was released to the brethren, and all gave thanks to the Lord for the provision they now have. They report that they feel it their duty to feed the 'other sheep', and, although it will not be done without considerable opposition on the part of the clergy, they will continue with increased zeal in their Theocratic service, bringing forth the fruits of the Kingdom.
+
+### PALESTINE
+
+A few brief reports have been received from this land during the year. Three publishers are reporting service activity. They put in 152 hours and made distribution of 352 books and booklets. Communications are still very slow.
+
+The reports that follow in this _Yearbook_ concern branches having direct communication with the president's office and which have filed annual reports for the 1945 service year.
+
+### ARGENTINA
+
+The people of this land desire freedom. In many respects they are very much like the people of the United States. They are expressive, and are interested in having the Four Freedoms. For some years now the government of Argentina has been dictatorial in form, and the people have recently been very vociferous in expressing their dislike for this manner of rule. They are receptive of the truth, eager to learn and know of God's Word. There is, however, a great shortage in the number of persons qualified to teach the gospel. Nevertheless, excellent progress has been made during the year in the educational work. If it were possible, graduates of the Watchtower Bible College would be sent into that country; but under the present regime restrictions are such that these educators cannot enter the country permanently. The local witnesses of the Lord are doing well and have made
+
+---
+
+<sup>**Page 67**</sup>
+
+[Open Page 67 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=67)
+
+66
+
+_Yearbook_
+
+splendid strides in advancing the interests of the Kingdom during the past service year.
+
+The Argentine branch used to care for the countries of Chile, Uruguay and Paraguay, in addition to Argentina; but during a recent visit of the Society's president a change was made and branches were established in Chile and Uruguay. The present office in Buenos Aires now looks after the work in two countries, Argentina and Paraguay. During the past year the brethren in Argentina became better acquainted with organization instructions, and they had their first servant to the brethren visit them, to aid them in organization matters. More pioneers entered the field; and a new peak of publishers was reached, namely, 415.
+
+The Branch servant, who began as a pioneer in the United States and later witnessed in Spain, proceeded to Argentina more than twenty years ago, there to begin the work. The following is quoted from his report:
+
+This has been a great year for us in all manner of blessings from the Lord. We had a visit from Brother Knorr, the president of the Watch Tower Bible and Tract Society, who was accompanied by one of the members of the board of directors, Brother Franz. This was for us a really blessed occurrence. For years we had been waiting for a visit of this sort. A convention was held in Buenos Aires, in connection with the visit. It was a very happy time and very inspiring to all present; and much help was given to those in attendance, both spiritually and with regard to organizational arrangements for the Argentine work. We shall certainly remember this for years to come.
+
+Many reforms as to the way in which we were working were introduced. These new organization instructions were at the beginning somewhat difficult to put into operation at once; but after they were in operation we saw that they are to the betterment of the work in general. We say here that we are satisfied with them and are trying to get as familiar with these instructions as we possibly can, so that the work will move ahead with better organization than ever before. We are better equipped for the service in every way and are glad because of it. During the year the Lord graciously blessed us in that now we are well stocked with literature; and we give thanks for the efforts made by the Society's president and all those at the headquarters office in Brooklyn.
+
+---
+
+<sup>**Page 68**</sup>
+
+[Open Page 68 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=68)
+
+Yearbook
+
+67
+
+The special pioneer publisher work was introduced in Argentina for the first time. These brethren are doing well. We also have an increase in the general pioneer list; and there is a marked increase in the number of company publishers, too. Of course, we are expecting to increase them further during the 1946 service year, with Jehovah's help.
+
+But these are not all the blessings we have had during the past year. By the generosity of the Society's president we had the privilege of sending from Argentina to the Watchtower Bible College of Gilead two of our young workers. Since this occurred many of the friends thought it well for them to get into the pioneer service. All these things that we have had as new experiences made the visit a very warm encouragement to us to push on with the work of announcing the King and his kingdom.
+
+In Argentina we can really call this a peak year. After the visit of Brother Knorr, Brother Powers of the Watchtower College, on his way to Uruguay, stayed a month at the Branch office. With his help we were able to put into operation many new things that we did not know and would not have known how to arrange. Many new forms were printed, that is, new to this branch, but not new to the Society. Now that we have them we can clearly see their value and the reason to have them. The work here is going along much better now, and we expect to improve considerably during the coming year. We look forward to the time when our two brethren from Gilead College will be coming back to us here.
+
+# Field Service Report for Argentina, 1945
+
+|   | Special Pio- neers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 942 | 3,619 | 7,109 | 180 | 11,850 | 8,122  |
+|  Booklets | 5,547 | 30,914 | 119,253 | 2,020 | 157,734 | 115,277  |
+|  Total | 6,489 | 34,533 | 126,362 | 2,200 | 169,584 | 123,399  |
+|  Pub's (mo. av.) | 4 | 14 | 345 |  | 363 | 348  |
+|  Hours | 5,644 | 21,579 | 57,864 |  | 85,087 | 61,581  |
+|  New subs. | 48 | 91 | 365 | 9 | 513 | 403  |
+|  Ind. mags. | 801 | 2,066 | 9,765 | 589 | 13,221 | 28,249  |
+|  Back-calls | 1,454 | 3,008 | 7,811 |  | 12,273 | 3,627  |
+|  No. back-call book studies (av.) | 14 | 22 | 54 |  | 90 | 33  |
+|  Average hours | 117.6 | 127.4 | 14.0 |  |  |   |
+|  Av. back-calls | 30.3 | 17.9 | 1.9 |  |  |   |
+|  Av. book studies | 3.5 | 1.6 | 0.2 |  |  |   |
+|  Companies in country |  |  |  |  | 21 |   |
+|  Publisher peak for 1945 service year |  |  |  |  | 415 |   |
+
+---
+
+<sup>**Page 69**</sup>
+
+[Open Page 69 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=69)
+
+68
+
+_Yearbook_
+
+May the great Creator, Jehovah, and his King Christ Jesus, bless you and us all and inspire us more and more in his wonderful work that has been preserved for us in these last days previous to the full establishment of the New World.
+
+### PARAGUAY
+
+The work in Paraguay is moving along nicely. There has been an increase in publishers over last year, when there were 8 serving the Lord; now there are 21. A good increase was realized in the distribution of literature, too, which jumped from 3,646 to 7,061 books and booklets distributed.
+
+It is necessary to have someone in Paraguay to look after the Paraguayans and help them in organization. A young brother has been sent there from Argentina to assist them in every way he possibly can. At the beginning of the new service year the Society sent a Watchtower College graduate to Paraguay, and it is hoped that in a few more weeks two more from the college will be on the way to join him. Undoubtedly the 21 publishers in Paraguay will be delighted to have these special pioneers from the United States to aid and instruct them in their service work, as well as to move ahead in new fields, guiding the people of good-will in the way they should go.
+
+The brethren in Paraguay have made a good start, more than doubling their hours during the past service year. The 21 publishers put in 3,402 hours, and two of these publishers are pioneers. They started making back-calls and conducting book studies. Eighteen book studies were being conducted regularly, and 675 back-calls were made during the year. We look with interest to Paraguay's report for 1946.
+
+### AUSTRALIA
+
+During the hard years of opposition, particularly 1943 and 1944, a greater witness was given by more publishers, putting in more hours, than was done during the service year 1945. Howbeit, the brethren that have continued on in the service, along with new ones
+
+---
+
+<sup>**Page 70**</sup>
+
+[Open Page 70 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=70)
+
+Yearbook
+
+69
+
+who joined them, did splendidly in their activity. A marvelous witness was given throughout the land. Those that have stepped aside or were swallowed up in the “sea”, we hope are not waiting for a more favorable time to serve the Lord. Now is the acceptable day.
+
+The new public meeting campaign was inaugurated in Australia this year, with good success. The report of the Australian Branch servant shows that the brethren are really zealous in pushing the battle to the gates. The Lord’s work is not accomplished by reason of great numbers, but by those wholly devoted to the Lord and anxious to do his will. It takes zeal, fortitude and stick-to-itiveness to carry on to the finish; and this is pleasing to the Lord. Excerpts from the Branch servant’s report follow:
+
+At Jehovah’s hands we have received Theocratic equipment abundant—the _American Standard Version_, “_The Kingdom Is at Hand_”, the _Song Book_, and _The Watchtower and Consolation_, American editions. Now we have word that _Theocratic Aid to Kingdom Publishers_ is nearing these shores. All this provision we recognize is for one purpose, that we may be more proficient in our God-given work, of which the public meeting campaign now becomes the central, marshaling point.
+
+Launching the public lecture series on March 1 was undoubtedly the big event of 1945. It is sweeping irresistibly through the country, and gaining momentum as wider advertising becomes available to us now. Information signs appear again in the streets; here and there a sound machine that has survived the siege of the past five years is pressed into service; the friendly letters of invitation personally delivered to persons whose names are in the back-call files, and millions of arresting handbills handed to the people, with a cheery smile of welcome—these are combining to get the people along to the lectures. If they come once in search of truth, they usually come again, for the lectures are presenting the truth in one of its most appealing forms. In six months 1,302 meetings have been held, with a total attendance of 48,955. Companies large and small, and isolated pioneers and special publishers have all shared in the campaign.
+
+Some of the country companies have had to work against odds. As an example, there is a Queensland company of ten publishers that runs two series concurrently, giving the same talk on alternate Sundays in different towns. The company servant is the only speaker. These brethren walk
+
+---
+
+<sup>**Page 71**</sup>
+
+[Open Page 71 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=71)
+
+70
+
+Yearbook
+
+seven miles and more to the villages where they put on the talks. They were overjoyed to have 45 along to the talks at one village. Most of the local residents came along, and at one of the lectures a justice of the peace afterwards proposed a vote of thanks 'for the very instructive lecture'.
+
+At Kalgoorlie, W. A., a patriotic body protested to the Council about our having the use of the Town Hall. The mayor declared that their letter was 'insulting and discourteous', and the Council formally declined to receive it.
+
+A publisher in Western Australia relates that following a severe attack of influenza she lost her voice. Rather than miss out on inviting her good-will interest to the lecture, she wrote personal notes to thirty-six interested persons. On arrival at the hall, she was overjoyed to find enough of them there to fill a whole row of seats themselves.
+
+Our first _Watchtower_ campaign since 1940 was held from March to June of this year. By then we were getting the magazines from Brooklyn again and the publishers were most enthusiastic in putting them to good use. Total subscriptions obtained during the campaign were 4,547. Magazine bags are now being reintroduced in the streets, and the publishers are glad of their help in identifying them as announcers of the Theocratic Government.
+
+### The Companies
+
+In March the number of servants to the brethren in the field was increased from 4 to 6, to cope with the longer visits to the companies. The report shows that the average number of publishers engaged in the service is 8.7 percent lower than last year. Beyond understanding though it is, the vision of some has dimmed and they have lapsed into irregularity or in some cases even into inactivity. In discussion these brethren usually agree that there is much to be done and that there is a responsibility resting upon them. Because they lack the flow of the holy spirit, however, they are slow to shake off their lethargy. A concerted effort is now being made by the servants in the companies to aid these inactive and irregular brethren to get busy in the work again. Many are responding and have expressed their appreciation of the thoughtfulness shown for their welfare.
+
+Despite the drop in number of publishers, the number of book studies being conducted regularly has been maintained. As the publishers advance in Theocratic ministry and benefit by well-prepared service meeting demonstrations, studies are making good progress. Back-calls have increased by 8.6 percent over last year.
+
+During the year the special publishers established eight companies in the eighteen special publisher zones that were
+
+---
+
+<sup>**Page 72**</sup>
+
+[Open Page 72 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=72)
+
+Yearbook
+
+71
+
+completed. In Tamworth, N.S.W., where two special publishers put on a series of public lectures, the local newspaper took a lively interest, carrying good reports of the talks. Since then the special publishers have frequently met people who requested literature after reading the newspaper accounts of the talks. A pioneer in another town fifty miles away met a woman who was eager to have the books put out by 'the Watch Tower people who gave the public lecture in Tamworth'.
+
+### Branch Service
+
+On December 7, 1944, Bethel was returned to us by the army and since then the family has been together again. It was a wonderful blessing to return here and to have the office, printery and stock of literature all in the one place again. The members of the family have all appreciated very much their return home and give thanks to the heavenly Father who indeed 'works all things together for good to those who love him'.
+
+During the year the printery turned out 44,322 books, 740,825 booklets, 296,875 magazines, 531,000 _Kingdom News_, 3,346,000 public meeting handbills, and 1,485,655 miscellaneous items. The books printed were '_The Kingdom Is at Hand_' and a small reprint of '_The Truth Shall Make You Free_'. All booklets released from headquarters were printed and distributed widely in the field. Stock dispatched to the publishers from Strathfield and the depots totaled 6,266 Bibles, 106,625 books, 853,989 booklets, and 1,438 records.
+
+### April Assembly
+
+Coming at the time of the UNCIO conference the lecture 'The Meek Inherit the Earth' was undoubtedly a challenge to the architects of the 'new world order'. At some of the 14 April assembly centers the enemy tried to stifle this comforting message. But, as always, the Lord turned the tables on the opposers, using their demonized actions to throw the Kingdom into bold relief against the background of earth's appalling conditions.
+
+The South Australian brethren assembled at Glenelg, a seaside suburb of Adelaide. They had a wonderful time with their advertising, but the opposition began manifesting itself as the climax, the public lecture, drew near. Hooligans set fire to one of the cars just prior to the lecture, and then as the chairman was introducing the speaker they marched into the hall in a mob. They behaved in such a riotous manner that the lecture could not be given. Police intervention was unavailing. At one stage they attempted to smash the equipment, but the ushers assigned to watch it stood by to protect the Lord's property. In the ensuing
+
+---
+
+<sup>**Page 73**</sup>
+
+[Open Page 73 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=73)
+
+72
+
+Yearbook
+
+scuffle several of the attackers were knocked down, after which they retreated. Although they had made much noise about their 'loyalty', there were many returned soldiers in the audience who showed true loyalty to the principles for which they had fought. These men were amazed at the bigoted and boorish attitude of the mob which claimed to speak in the name of the Returned Soldiers' League, and remained seated when the mob finally invited 'all loyal people' to leave the hall with them.
+
+In the week that followed the newspapers were full of motions, resolutions, statements and letters by all sorts of bodies clamoring for our blood. Threats were made that any public meetings held by Jehovah's witnesses would be smashed up. Public opinion rose to fever heat. In the midst of it all, it seemed to be the Lord's direction that another attempt should be made to give the public lecture 'The Meek Inherit the Earth'. Three of us (one a returned soldier) went from Sydney to arrange and take part in the campaign. On arrival in Adelaide a special edition of _Kingdom News_ was prepared so that the people would have the truth on a question that was now a state-wide issue. 25,000 copies of these were distributed in Adelaide (including Glenelg) on the following week-end. On the Saturday we were thrilled to find that the Adelaide evening paper (circulation 75,000) had reprinted most of _Kingdom News_ verbatim and without comment. Radio stations that had refused paid advertisements were now freely announcing the forthcoming lecture in their news sessions.
+
+Again on Sunday morning the publishers distributed the special _Kingdom News_, which included an invitation to the lecture that afternoon. Many and varied were the experiences later recounted. One brother met a soldier who tore up _Kingdom News_ and ripped the advertising leaflet from his lapel. The publisher immediately produced a copy of the previous evening's Adelaide _News_, and requested the soldier to read the _Kingdom News_ article, which appeared with the bold heading 'Returned Soldiers Exonerated'. The soldier read it slowly from beginning to end. Then, requesting two further copies of _Kingdom News_, he put one in his pocket, and cutting the advertising from the other, pinned it on the publisher's lapel, apologizing for his previous action.
+
+On Sunday afternoon, despite threats of violence, the lecture was given as advertised. Kingdom Hall was packed to the doors and people were standing on the road. The only interference was the applause of an enthusiastic audience. Thus the Lord wrought a greater witness than would have been given if the super-patriots had allowed the lecture to go on as scheduled at Glenelg.
+
+---
+
+<sup>**Page 74**</sup>
+
+[Open Page 74 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=74)
+
+Yearbook
+
+73
+
+Field Service Report for Australia, 1946
+
+|   | Special Pio- neers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 11,203 | 24,200 | 43,534 | 9,068 | 88,005 | 109,633  |
+|  Booklets | 55,909 | 126,240 | 344,860 | 17,327 | 544,336 | 614,517  |
+|  Total | 67,112 | 150,440 | 388,394 | 26,395 | 632,341 | 724,150  |
+|  Pub's (mo. av.) | 60 | 104 | 3,368 |  | 3,532 | 3,897  |
+|  Hours | 118,668 | 174,055 | 571,818 |  | 864,541 | 924,889  |
+|  New subs. | 770 | 1,236 | 3,461 |  | 5,467 | 2,189  |
+|  Ind. mags. | 29,204 | 54,477 | 198,422 | 663 | 282,766 | 326,795  |
+|  Back-calls | 39,386 | 43,742 | 121,949 |  | 205,077 | 188,570  |
+|  No. back-call book studies (av.) | 381 | 375 | 1,697 |  | 2,453 | 2,454  |
+|  Average hours | 166.0 | 139.6 | 14.1 |  |  |   |
+|  Av. back-calls | 55.1 | 35.1 | 3.0 |  |  |   |
+|  Av. book studies | 6.4 | 3.6 | 0.5 |  |  |   |
+|  Companies in country |   |   |   |   | 158 |   |
+|  Publisher peak for 1945 service year |   |   |   |   | 3,787 |   |
+
+That the hand of the Lord is over his people, putting them forth to affirm that He is God, can surely be seen in such experiences. Now as the gates of 1946 swing wide before us, we gird ourselves for further activity. The desire uppermost in our minds is to do "that good and acceptable and perfect will of God". Looking to Jehovah, his King and his Theocratic organization, we pray we may ever go forward in his glorious service.
+
+### FIJI, JAVA, AND THAILAND
+
+It is a joy to be able to report that the work in the Fiji islands is progressing again. The brother who returned to Fiji from Australia has been able to get the brethren together and start studies. Thirteen brethren are busy in the field service. There is still a ban on the importation of the Society's publications, but the brethren are in touch with the authorities and there is hope that the ban will be lifted.
+
+A newspaper dispatch revealed that an Australian pioneer, and his wife and daughter, are safe in Java. It is our prayer that Jehovah's rich blessing may at-
+
+---
+
+<sup>**Page 75**</sup>
+
+[Open Page 75 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=75)
+
+74
+
+_Yearbook_
+
+tend these brethren as they continue to praise his name.
+
+The depot servant at Singapore was taken to an internment camp in Thailand shortly after the war began in that part of the world. He has communicated with the Australian office; and he, along with five other pioneers, is safe now in Bangkok, Thailand. He also reports that the brethren in the Bangkok company are likewise safe. Everyone is in good health. Some of them, due to bad treatment in the concentration camps, were sick over a long period of time, but these are now recuperating and preparing to go ahead in the service work.
+
+### NEW ZEALAND
+
+The problems encountered in carrying on the preaching of the gospel have been many in this land. During the service year 1945 the brethren had good cause for rejoicing, after many years of hard fighting. The ban was finally lifted, which had oppressed the servants of the Lord in this country. Notwithstanding all the opposition brought to bear against the brethren, and the restrictions placed upon them, they have moved ahead at a steady pace. As you consider their twelve-month report you will observe that it has been a long, hard struggle; but, with it all, a good witness has been given. Let the local depot servant tell the story.
+
+The service year opened with the ban still operating, and no prospect of its removal. When the news came of the High Court victory resulting in the removal of the Australian ban in 1943, immediate effort was made to obtain an interview with the New Zealand prime minister. We were not successful, however, as the prime minister was just about to leave for Australia; but he promised to advise us when an interview could be granted on his return to New Zealand. A reminder, sent together with information concerning the removal of the Canadian ban, brought the reply that the matter had been turned over to the attorney-general for attention. After much delay, and further correspondence with the attorney-general, a reply was received to the effect that the removal of the ban in other lands
+
+---
+
+<sup>**Page 76**</sup>
+
+[Open Page 76 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=76)
+
+_Yearbook_
+
+75
+
+did not concern the government. They were merely interested in conditions in New Zealand.
+
+At the United Announcers' Theocratic Assembly in September, 1944, the brethren unanimously decided to put forth a united effort to have the ban removed. A Resolution, calling upon the government to immediately restore freedom of worship to Jehovah's witnesses, was therefore prepared and adopted with great enthusiasm by the conventions. This was followed by a campaign in which members of Parliament and prominent citizens were interviewed and asked to support a petition to Parliament in connection with the matter. Some members of Parliament expressed their willingness to support our petition in the House, and one, a military man, expressed indignation that the very freedom he had been overseas to fight for had been denied Jehovah's witnesses in New Zealand.
+
+In March, 1945, the Society's lawyer accompanied the Australasian Branch servant to New Zealand, where they represented the Society in discussions with the officials about lifting the ban on the work. Cabinet duly considered our representations and revoked the ban. On March 28, the day of the Memorial, the New Zealand press announced this fact throughout the Dominion, giving the evening a double significance for us. As we meditated on the unselfish course of our King and Head and celebrated the Memorial of his death, we gave thanks too for the freedom we had received from Jehovah that day, freedom that the Kingdom work might expand now in spite of the Devil and his henchmen. After formalities were complied with, arrangements were made for the return of all seized literature and for the importation of the latest publications. Representations were also made to the authorities for recognition of the Society's ministers, and exemptions were duly granted.
+
+The United Announcers' Assembly was held in this country from 7-10 September, 1944. Wartime travel restrictions made it advisable to hold the convention in three towns, namely, Auckland, Wellington and Dunedin. All the talks and service features were included in the program in accordance with the information supplied from Brooklyn. Manuscript for the speeches, thanks to your care for our interests, arrived in good time. The announcement of the various releases, although these were not available here, brought a burst of applause, and friends hurried to place their orders to have the publications mailed to them. With a mighty shout of 'Aye' the New Zealand friends expressed their determination to never slack in preaching to all nations 'The Kingdom is at hand'.
+
+An interesting feature at Auckland was the presence of some members of the only entirely Maori company in New
+
+---
+
+<sup>**Page 77**</sup>
+
+[Open Page 77 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=77)
+
+76
+
+Yearbook
+
+Zealand. Eight years ago one of their number secured a book from a visiting pioneer. Lack of knowledge of the English language made it necessary for one of their number to interpret the material so that others could understand its importance. Although this was a slow and laborious process, results are shown today in the fact that there are now 22 interested in the company, 12 of whom have symbolized their consecration by water immersion. These Maori brethren are active publishers of the Kingdom message and are finding much interest among those of their own race.
+
+Again from 27-29 April, 1945, the friends in New Zealand assembled. This time our meetings were held at Palmerston North, Hamilton and Timaru, and the occasion was a most blessed one. The ban had been removed, and field service and public meeting campaign were in full swing. A total of 422 brethren attended these meetings, and at the public meeting on Sunday afternoon 160 strangers heard the speech 'The Meek Inherit the Earth'. During the convention 285 publishers turned in reports for 1,504 hours and placed 174 books and 1,317 booklets and arranged for 96 back-calls. Six symbolized their consecration by water baptism.
+
+#### Field Service
+
+There is a regrettable drop in our report when compared with the previous year's figures. This is mainly due to a decrease in pioneers who, because of the ban, had to return to secular work for a while. We believe that the tide has now turned, and we hope to see a steady increase in the future.
+
+The brethren in detention have not been idle during their long period of restraint (nearly four years in some cases). Although at times it has been difficult to get the study material to them, the Lord has never failed them. Their studies and ministry course held every week should better fit them to take hold once more of the glorious treasure of service on their release. While in camp, they avail themselves of every opportunity to witness to other inmates. Some of them have taken their stand for the Kingdom and have been baptized in the camp. At present, in one camp, Jehovah's witnesses are not permitted to invite other inmates to their meetings, although the religionists who hold meetings at the camp may invite whom they please to hear them. It is contended that Jehovah's witnesses are trouble-makers, in that they might 'convert' others to their way of thinking. The camp officials fear the truth and want to prevent its spread. How foolish to thus fight against God!
+
+---
+
+<sup>**Page 78**</sup>
+
+[Open Page 78 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=78)
+
+Yearbook
+
+77
+
+# Field Service Report for New Zealand, 1945
+
+|   | Special Pioneers | Pioneers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 1,021 | 505 | 5,515 | 1,048 | 8,089 | 4,598  |
+|  Booklets | 3,081 | 2,536 | 27,838 | 1,159 | 34,614 | 12,873  |
+|  Total | 4,102 | 3,041 | 33,353 | 2,207 | 42,703 | 17,471  |
+|  Pub's (mo. av.) | 6 | 3 | 469 |  | 478 | 445  |
+|  Hours | 13,415 | 5,634 | 96,526 |  | 115,575 | 124,146  |
+|  New subs. | 37 | 42 | 462 | 448 | 989 | 206  |
+|  Ind. mags. | 938 | 923 | 10,119 |  | 11,980 | 7,424  |
+|  Back-calls | 3,943 | 2,516 | 22,270 |  | 28,759 | 28,927  |
+|  No. back-call book studies (av.) | 46 | 42 | 341 |  | 429 | 465  |
+|  Average hours | 174.2 | 144.4 | 17.1 |  |  |   |
+|  Av. back-calls | 51.2 | 65.3 | 3.9 |  |  |   |
+|  Av. book studies | 7.1 | 13.0 | 0.8 |  |  |   |
+|  Companies in country |  |  |  |  | 38 |   |
+|  Peak number of publishers for 1945 service year |  |  |  |  | 536 |   |
+
+We in New Zealand are thankful to Jehovah for his great blessings during this past year. We pray continually that we may be worthy of his continued favor and that we may have a larger part in the coming year proclaiming 'The kingdom is at hand'.
+
+### AUSTRIA
+
+No word had come through from Austria for several years, and not until near the close of this service year. The brethren there were taken away and put in concentration camps the same as our brethren in Germany. A brother who was absent for five years has now returned to Vienna, and, by the Lord's grace, will devote his entire time to the service of reconstruction, so he writes. He was able to communicate with one of our brethren in Prague, who sent on his message, in which he stated: 'Most of the brothers and sisters here, by God's grace and protection, have now come through the fiery furnace and are more than ever strong in the faith. The ties of Theocratic unity closely embrace us all. We are full of zeal at our table so richly blessed, and hope to resume connections with
+
+---
+
+<sup>**Page 79**</sup>
+
+[Open Page 79 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=79)
+
+78
+
+Yearbook
+
+you as quickly as possible and also to receive instructions and new spiritual food.' The good things of _The Watchtower_, organization instruction, literature, and everything that we can possibly get to our brethren in Vienna, are on their way.
+
+Again we see the spirit of Jehovah operating upon his people, putting it in their hearts and minds to go forward preaching the gospel. This is the first thing the brethren think of, and naturally so, because of their covenant made with God, which the Devil has been unable to force them to break.
+
+### BRAZIL
+
+Throughout the year the Brazilian brethren were mindful of the yeartext, 'Go ye therefore, and make disciples of all the nations.' As part of the 'great company' that published the word the Lord gave, the faithful servants of Jehovah in Brazil have added their share to the mighty witness that has gone forth to the ends of the earth as the terrific struggle of Satan's outfit for world domination has carried on to a military halt. While world conditions subsided somewhat, the problems in Brazil became greater as far as Jehovah's witnesses were concerned. Despite the numerous problems with which they were faced, as set out in the year's report, the publishing work went forward in Brazil at an increased tempo.
+
+A marked increase is observed in the number of publishers serving the interests of the Kingdom; and more hours were spent in the field service than during any year heretofore. The back-call and book-study activity has been given attention, due to the fact that the brethren see the importance of such. Better organization has been developed in Brazil. The Branch servant's report sets forth their joys and their problems.
+
+### President's Visit
+
+The outstanding event of the year, and one of the greatest blessings for the advancement of the preaching of this Kingdom gospel, was the visit of the president of the So-
+
+---
+
+<sup>**Page 80**</sup>
+
+[Open Page 80 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=80)
+
+Yearbook
+
+79
+
+clety to Brazil in March, the culmination of which was the sweetest of all conventions ever realized and the most profitable to the Lord's people. All the more precious it was because of the tremendous pressure brought to bear to stop it, which opposition, in the good Lord's providence, was turned into joyful realization of Jehovah's purpose for his servants. The full report of this blessed Assembly in the Gymnasium of the Pacaembu Stadium in São Paulo on March 10 and 11 has been given in _The Watchtower_ of May 15, 1945, and _Consolation_ of August 1, 1945, as well as in the Portuguese _Consolação_ of April.
+
+The president's visit and his presence among us has been used of the Lord to inseparably link into closer Theocratic bonds the publishers of The Theocracy here with the visible earthly center of God's organization. It has marked a decided step forward in making the service more efficient. The first tangible results of this timely visit were the selection of a member of the Brazil Branch family in Rio de Janeiro for Gilead training in the sixth term, which has just opened and the inauguration of the
+
+#### Special Pioneer Work
+
+At the São Paulo Assembly, the president interviewed and selected ten brethren as the nucleus of the special pioneers, thus initiating this service in Brazil, and assigned them to work in Rio de Janeiro. One began work in April, five more in May, two more in June, and as the service year closes nine of them are working in their assigned territory. Their zeal and joy are without bounds. The youngest is 21, and the oldest a sister of 68. Their average of hours is above 200 per month and they average more than 100 back-calls each. They have already 49 studies, with more than 100 new interest in attendance. Their placements of literature are good, averaging about 115 bound books and 825 booklets each per month. Best of all, as the fruit of their labors, nine publishers are going out with them regularly in the service, at least one of whom is seriously considering taking up the pioneer work. Their interesting experiences as they relate them on Thursday night when they meet with the Branch servant at the Branch home for a Theocratic Ministry study and service meeting are numerous.
+
+On a back-call at a rooming house the publisher was playing 'Theocracy'. As the record was finished, there came a knock at the door. The occupant of a near-by room was asking: 'Who was that speaking? I am interested in what he said. May I come in?' It was explained to him that he had heard a phonograph recording of Bible instruction. At his request the record was repeated. Then he told how he had gotten hold of the book _Enemies_ with the backs and
+
+---
+
+<sup>**Page 81**</sup>
+
+[Open Page 81 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=81)
+
+80
+
+Yearbook
+
+title page torn off, and he had read and reread it, found it to be the truth and was wanting more. He was delighted to contact a Kingdom publisher and took six books, all the brother had with him at the moment.
+
+A sister placed _The Coming World Regeneration_ booklet with a Pentecostal woman who ordered the book _Children_, and when the sister called to deliver the book the lady's daughter refused to let her in, saying that her mother didn't want the book. The sister insisted on speaking with the mother whether she wanted the book or not. Then the mother spoke from inside telling the daughter not to be rude but to ask the sister in. Then the lady told her that her minister had called and when she showed him the booklet he told her to burn it, so she had decided not to take the book. 'Did you burn the booklet?' asked the sister. 'No, I read it.' 'Did you find anything wrong with it?' 'No, I liked it.' As a result of this back-call the lady not only took the book which she had ordered but accepted the sister's gracious offer to study it with her, and _now_ is out in the service.
+
+### Company Activities
+
+Up to the time of the São Paulo Assembly, the few publishers in the Rio de Janeiro company were trying to take care of the whole Federal District with its nearly two million inhabitants. Immediately after the Assembly a readjustment of the territory was made, limiting the present company to the 'subúrbios' west and south of the Branch office, in the midst of which is located their Kingdom Hall and where most of the publishers live. This has been a decided advantage and the company publishers are appreciating that fact. Their activities have increased. Attendance at the Kingdom Hall on Sundays fills it to 'standing room only'.
+
+The brethren in Rio de Janeiro felt keenly the refusal of the police authorities to grant the necessary license for the Society's president to give a Bible lecture in the building of the Associação dos Empregados no Comércio on the Tuesday following the São Paulo Assembly. A letter of explanation and encouragement was prepared and handed at the door to 65 groups of persons who came to hear the Bible lecture on that occasion, also 80 _Peace—Can It Last?_ booklets were distributed.
+
+At the Memorial, two weeks later, there were 97 present, of whom 14 partook of the emblems. In all Brazil there were 715 in attendance at the Memorial, of whom 72 partook of the emblems.
+
+The number of publishers reporting field activity in Rio de Janeiro for the month of March was 26, for August was 52, exactly twice as many five months later. The São Paulo
+
+---
+
+<sup>**Page 82**</sup>
+
+[Open Page 82 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=82)
+
+Yearbook
+
+81
+
+company has also had a gain of about 20 percent, 67 publishers reporting in March, 81 in August.
+
+The _Watchtower_ Campaign of January-April was entered into with enthusiasm from the first day, and the results show that we went beyond our goal of 1,000 new subscriptions. In fact, 1,209 new subscriptions were taken, including 66 from the United States. The total number of new subscriptions for the year, 1,486, as against 810 for the year previous, shows that there is a greater appreciation of this precious provision of Jehovah to feed His sheep, and it is expected that present events will quicken even more the appreciation for this indispensable magazine and its value in teaching others the way to life.
+
+Early in March, as the plans were under way for the Assembly in São Paulo, auditorium engaged and brethren on the way from all parts of Brazil, the Ministry of Justice ordered the Society dissolved and forbade the circulation of its magazines. An appeal was taken from this decision, and the Lord's people continued to follow the lead of those early disciples of the Master who said to the Jewish authorities, as recorded in Acts 5:29, 'We must obey God rather than men.'
+
+The priests, as has been admitted by those who are in position to know, instigated this persecution, claiming falsely that the aims of the Society are political. A letter was written to the subscribers of the magazines and friends of the Society stating these facts and suggesting that they write to the Minister of Justice in behalf of the Society and its journals. The response has been wonderful beyond expectations. The Lord's spirit has moved his people to write many hundreds of the finest letters one could read, and not satisfied with merely writing themselves, they have visited all their friends and people whom they know to be of good-will and invited them also to write. So the letters continue to pour in.
+
+It is hoped that from these simple, kind, dignified appeals from Brazilians who love God's Word the authorities will realize that the Society and its publications are what they claim, wholly devoted to divulging the Bible truths about God's kingdom and having absolutely no connection with the politics of this old dying world, and that they will speedily and fully restore its unhindered activity.
+
+A signal victory for truth and righteousness was gained when on April 6 in the Court of National Security Jehovah's witnesses in Amazonas were absolved of the absurd charge of being organizers of a religious sect with political aims. The decision of this high court ends a long series of persecutions dating back to 1940, account of which has recently appeared in _Consolation_, both English and Portuguese editions.
+
+---
+
+<sup>**Page 83**</sup>
+
+[Open Page 83 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=83)
+
+82
+
+Yearbook
+
+The work has taken on an impetus that it is expected will greatly increase. We look forward to the return of our Gilead-trained Brazilian brother and the coming of others from Gilead who we know are eagerly awaiting the opportunity to 'come over and help us'.
+
+Field Service Report for Brazil, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- |
+|  Books | 3,743 | 48,359 | 14,998 | 67,100 | 32,274  |
+|  Booklets | 13,664 | 129,942 | 54,526 | 198,132 | 177,945  |
+|  Total | 17,407 | 178,301 | 69,524 | 265,232 | 210,219  |
+|  Pub's (mo. av.) | 6 | 70 | 268 | 344 | 283  |
+|  Hours | 6,584 | 115,686 | 67,975 | 190,245 | 156,735  |
+|  New subs. | 14 | 1,012 | 460 | 1,486 | 810  |
+|  Ind. mags. | 363 | 13,919 | 5,656 | 19,938 | 17,864  |
+|  Back-calls | 3,072 | 19,249 | 13,135 | 35,456 | 24,368  |
+|  No. back-call book studies (av.) | 30 | 113 | 86 | 229 | 125  |
+|  Average hours | 205.8 | 138.9 | 21.2 |  |   |
+|  Av. back-calls | 96.0 | 23.1 | 4.1 |  |   |
+|  Av. book studies | 4.7 | 1.6 | 0.3 |  |   |
+|  Companies in country |   |   |   | 35 |   |
+|  Peak number of publishers for 1945 service year |   |   |   | 394 |   |
+
+With you we rejoice in all of Jehovah's victories everywhere during the year past. We face the future strengthened and inspired by the noble example of our European brethren who have just been released from the clutches of the totalitarian monster so that they may again join unhampered in the work of discipling the nations until that grand work is finished.
+
+The members of the family wish me to convey to you and through you to all the Lord's dear sheep our love and votes of determination by the grace of Jehovah to continue faithfully in the service of the only cause on this earth worth serving, worth working for, worth living for and worth dying for—THE THEOCRACY.
+
+### BRITISH GUIANA
+
+With all the talk about free speech and the right of free worship in democratic lands, it will be observed that the colonies and possessions under the rule of the British Empire predominantly colored in population
+
+---
+
+<sup>**Page 84**</sup>
+
+[Open Page 84 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=84)
+
+Yearbook
+
+83
+
+are the last to get their freedom. Bans have been lifted in all the large nations comprising the British Commonwealth of Nations; but it is interesting to observe that, where the population is predominantly colored, these people have been held in subjection and oppression. Despite the maleficent efforts on the part of the governors of these various colonies, Jehovah's witnesses have pressed on against great odds. British Guiana is one of these unfortunate possessions.
+
+The report by the Branch servant shows the reader the excellent effort put forth by the servants of the Lord in that land. It is encouraging to note that the 44 publishers of the Kingdom put in more hours than reported in previous years. Their average hours per publisher per month was 14.4, as against 11.9 last year. Their total hours were 7,579. The back-calls and book studies remain about the same. There are five companies organized in British Guiana, and the peak of publishers reached was 53. They are pushing ahead with the public meeting activity despite government ban and tremendous rainfall. Jehovah's witnesses move right on.
+
+British Guiana is situated on the northern coast of South America, it being the only British possession on this continent, with an area of about 90,000 square miles, and a population of some 300,000 people, the majority of whom live on the coastlands. It has been said that there are just two seasons—the rainy, and the not-so-rainy—and the climate is apt to be damp and malarial; but the small band of Jehovah's witnesses resident here faithfully endeavor to do their bit in proclaiming the incoming Kingdom all the year round.
+
+#### Government Ban
+
+The complete ban on the Society's literature, imposed by local government in June 1944, continues to be operative in this colony despite all our efforts to have it rescinded. Officially, we are not permitted to receive any books or magazines whatsoever, but we gratefully record that none of our brethren have been starved for want of spiritual food, although we have all been on a limited diet for four years! 'It is the Lord's doing, and marvelous in our eyes.'
+
+In March, 1945, on receipt of your cabled advices that similar bans had just been lifted in Britain, New Zealand, and elsewhere, we wrote to the Governor-in-Council, inform-
+
+---
+
+<sup>**Page 85**</sup>
+
+[Open Page 85 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=85)
+
+84
+
+Yearbook
+
+ing him of this fact, and requesting reconsideration of his Order of Proscription. In reply, we were informed that 'after careful consideration government is not prepared to remove the prohibition'.
+
+In June we prepared a second Memorial to the Secretary of State for the Colonies (the first, in 1941, had been unsuccessful). Among the facts therein stated were the following:
+
+(a) That our publications are the only books which provide the people with the vital information that Christ's kingdom is established, and that the government, by banning the literature and thus hindering Jehovah's witnesses and subjecting them to public ridicule, assumed grave responsibility before the great King of kings.
+
+(b) That the literature is not seditious, subversive, or productive of disorderliness or unrest, no follower ever having been sent to prison for any crime whatsoever (which is more than the various denominational systems can say about their members!).
+
+(c) That included in the shipment of literature detained here are 258 copies of the _King James Version_ of the Bible which contain no notes or comments by the Society, and which were not even printed or published by the Society.
+
+(d) That bans were being lifted all over the world, and, in any case, we knew of no other part of the British Empire where copies of God's Word are not freely admitted, no matter by whom imported.
+
+(e) That the ban not only hindered Jehovah's witnesses in their divinely-appointed work of educating the people of good-will in the matter of a proper appreciation of the Creator and His purposes, but that the people of British Guiana were thus being denied the most important of the much-talked-of 'four freedoms', viz., freedom to worship God according to the dictates of one's conscience.
+
+This petition was transmitted to London by the local government in July, and we now await a reply.
+
+In the meanwhile, V-J Day followed V-E Day, and we again wrote the governor, pointing out that, although we had at no time been informed of the reason for the decision taken by government, we assumed that somehow it had been considered necessary to the war effort, it being inconceivable that such a decision could have been made on 'religious' grounds alone. We expressed the hope that government would rescind the order even before a reply to our petition was received, in view of the fact that all hostilities had now ceased, and various forms of defense restrictions had been removed.
+
+And there the matter rests at the moment.
+
+_Effect of the Ban._ Although we have been unable to distribute any literature to the people during the past three
+
+---
+
+<sup>**Page 86**</sup>
+
+[Open Page 86 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=86)
+
+Yearbook
+
+85
+
+years, and this fact has greatly hindered up-to-date Bible study, among ourselves as well as in the homes of interested persons, the ban has, we feel sure, failed to accomplish the purpose intended by its designer, Satan. For it has not discouraged publishers to any appreciable extent, though it has made their work more difficult. Moreover, the fact that we now have no books to offer has assisted us in interesting some folk who had been prejudiced on that account, but who are now beginning to realize that our visits are actuated by a love for Jehovah, and a friendly desire to acquaint them with His purpose, and not a desire to sell them books!
+
+### Public Meeting Campaign
+
+Instructions in connection with this feature of Kingdom activity were only recently received, but we had previously arranged to conduct a series of public discourses at monthly intervals during 1945. The interest manifested at these meetings is encouraging, the average attendance at our Kingdom Hall being 120. The topics discussed cover a wide range of interest, and have included "The Parable of the Prodigal Son", "One World, One Government," "The Sabbath," "Trinity," "Soul," etc. Opportunities for questions by listeners have been afforded at the conclusion of each talk.
+
+### Assemblies
+
+One general assembly was held in Georgetown on 29th April, and it was the opinion of all who attended that it was "the best yet". About 160 persons heard the public address "The Meek Inherit the Earth".
+
+Field Service Report for British Guiana, 1945
+
+|   | Total for 1945 | Total for 1944  |
+| --- | --- | --- |
+|  Publishers (mo. av.) | 44 | 40  |
+|  Hours | 7,579 | 5,725  |
+|  Back-calls | 1,834 | 1,891  |
+|  No. back-call book studies (av.) | 38 | 40  |
+|  Average hours | 14.4 | 11.9  |
+|  Av. back-calls | 3.4 | 3.9  |
+|  Av. book studies | 0.8 | 1.0  |
+|  Companies in country | 5 |   |
+|  Peak number of publishers for 1945 service year | 53 |   |
+
+In conclusion, we desire to express to you and the other members of the Bethel family our united love and best wishes. We do not fail to remember you constantly in prayer, that you may continue to enjoy the Lord's guidance and blessing. To our brethren all over the world, and especially
+
+---
+
+<sup>**Page 87**</sup>
+
+[Open Page 87 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=87)
+
+86
+
+Yearbook
+
+to those recently freed from the horrible concentration camps, we send our loving greetings. The August 1 Watchtower has just come to hand, with its article on this subject, and our hearts go out with mingled love and joy and sympathy to all who suffered so crucially for righteousness' sake. We would echo your own words: the experiences of our faithful brethren are an inspiration to us all.
+
+## BRITISH ISLES
+
+The servants of the great Theocrat in Britain have endured much during the past years of war. The ever-present suspense and tension were a great strain on the inhabitants of the land, and this, of course, would include Jehovah's servants. But these faithful servants of the Lord had something that other men did not have: they had Jehovah's holy spirit, his energizing force, which enabled them to press on and go forward in response to the call, "Go ye therefore, and make disciples of all the nations." They agreed fully with the statement in The Watchtower: "No court of any nation nor any international court nor any world court can nullify or revoke that command." The report by the Branch servant gives the proof.
+
+There was an increase in number of field publishers, 350 over the previous year. They reached a new peak of publishers in April, namely, 13,150 reporting field service. Nearly 200,000 more hours were put in the field service than in the previous year; and back-calls increased by nearly 63,000. The brethren were desirous of engaging in the magazine work, but did not have this pleasure, because of a lack of magazines. However, they did use booklets in street witnessing. They kept prominently before the people Jehovah's witnesses and their work.
+
+The pioneers in England had a very difficult time to keep going, because of the lack of literature. The Society has for some years past kept most of the brethren on a special allowance, so that they might remain in the pioneer work through the war period. Of 1,070 enrolled as pioneers, an average of 713 were kept on the special list, receiving financial help each
+
+---
+
+<sup>**Page 88**</sup>
+
+[Open Page 88 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=88)
+
+Yearbook
+
+87
+
+month. With more literature now going into the country, the pioneers will find it easier to get on in the service. They have done a wonderful work and have endured many hardships and difficulties.
+
+The twelve servants to the brethren operating in the British field aided considerably in better organizing the companies. The Branch office has been pressed to the limit in handling mail and correspondence; and they had to take on the printing work, so that the brethren would not be without food convenient. The brethren in the office arranged for the printing of the _Yearbook_, bound books, and several booklets, and they always got out the regular issue of _The Watchtower_. They printed 20,000 copies of each issue for several months, so that the brethren would not be without the needed information.
+
+The reconstructive work is going on in the British Isles, and the true worship of God is being brought to the attention of the people. The report by the Branch servant shows steady progress.
+
+We began the year's work with war conditions greatly hampering our activities. It is true that there was some ease from the terrible bombing attacks of recent years, but the censorship restrictions, the binding regulations of one kind and another, as well as the curtailment of travel facilities, put a burden on the brethren which made the Kingdom work very difficult. We have to record, however, that the latter part of the year has brought a measure of relief. It is a great relief to have the lighted streets for evening work and to be able to go to bed at night with the expectation of resting until the morning; and, above all, the lifting of the censorship restrictions, permitting us to bring in literature from the Brooklyn office. These all make the situation today better than it had been for about five years.
+
+It is a cause for much joy to be able to report that after six years of total war, in which the Devil's forces have tried to break the integrity of Jehovah's servants, these stand firm in their determination to serve him, and they appreciate more fully his loving-kindness in all his dealings with them. We have not had to endure the extreme sufferings as some of our brethren in continental Europe, but there is much cause for gratitude that through all the trying times we have experienced in the war period, the name of Jehovah has been lifted high, so all might know that he
+
+---
+
+<sup>**Page 89**</sup>
+
+[Open Page 89 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=89)
+
+88
+
+_Yearbook_
+
+has a people who stand for his name. The facts stand out clear that Jehovah's witnesses are a people who stand by their convictions and are prepared to suffer for them if need be. We are therefore happy to share with our brethren in all the earth in the defeat of persecution and in the great honor of magnifying the name of Jehovah.
+
+### Censorship Restrictions
+
+The outstanding event of the early part of the year was the campaign to get relief from the unjust censorship ban. After nearly two and a half years of restrictions, the ban on the import and export of the Society's publications came to an end when the minister of information announced in the House of Commons on February 28 that:
+
+'The matter (censorship ban) has been fully reviewed and in future no special restrictions will be imposed on these publications. Their import into this country will, however, remain subject to current import licensing policy.' It would have been well if the government had shown its good-will policy, which was so loudly proclaimed, by voluntarily removing this unjust ban. It was brought about, however, as the result of an intense campaign with the members of Parliament throughout the country. The facts were presented to them in printed form as well as by personal interview. Many of them appreciated the injustice of these restrictions and when Parliament assembled again, questions were fired at Brendan Bracken (the minister of information) from all quarters. In all his answers he sought to evade the issue, which demonstrated his insincerity over the whole matter. Again the matter was pressed, particularly by Labor members, who were well acquainted with the facts. About 250 members were interviewed in all, and much time and effort was put forth in visiting the Houses of Parliament.
+
+While making great professions of freedom as expressed in the Atlantic Charter, the late government did not in fact stand by these professions. Today the ban has been removed and they who issued the regulation have been removed from their place of authority. Jehovah's witnesses, however, have kept right on with their campaign of free education, seeking out the Lord's 'other sheep' by every means available to them.
+
+### 'The Watchtower'
+
+We are bound to express our appreciation of the efforts made by our brethren in America to keep us supplied with vital spiritual food during the period when conditions here were so difficult. We have always fed at the Lord's table and been enriched by the same spiritual food which has given us strength and courage to continue in the Lord's
+
+---
+
+<sup>**Page 90**</sup>
+
+[Open Page 90 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=90)
+
+Yearbook
+
+89
+
+appointed way. Now _The Watchtower_ and _Consolation_ are coming to us in increasing numbers. In the few months since the removal of the ban we have taken nearly 15,000 new subscriptions for _The Watchtower_, and this, together with 19,370 renewals, makes a total of over 34,000 on our lists. _Consolation_ new subscriptions are very good too; with the renewals we now have a total of 12,235 subscribers. We are glad to receive the regular copies direct from Brooklyn, and we praise Jehovah for breaking the bands which would encircle us were it not for his protecting hand.
+
+### Literature Supplies
+
+One of our chief problems has been the lack of literature for the field work. At the time of our greatest need two years ago, a large printing firm in London that has done much work for the Society in times past suddenly refused to go forward with the printing of the book _The New World_ unless we agreed to the deletion of all references that they considered objectionable, particularly exposures of the Catholic Hierarchy. This, of course, was refused, and we were left without our chief source of supply. This was at a time when it was impossible to get the printing done elsewhere. The heavy bombings in London had destroyed so much printing equipment that it was practically impossible to get any printing done no matter what price was offered.
+
+Here is where the Lord graciously opened up the way for our work to go on with the literature. Despite the fact that printing establishments were at a premium, a brother came forward and established himself as a printer, from whom we have since been able to get our supplies of books. The co-operation with the Society has been greatly appreciated. While the books have not been up to the American standard, they have been better than could be obtained elsewhere, and it has kept us going with necessary supplies for study purposes and at least some for the field work. During the year we have printed in this country over 217,000 books and nearly 650,000 booklets. The lack of paper has prevented us from printing more. It is difficult for those who regularly handle the literature from the factory at Brooklyn to appreciate how precious this is to those who have long been without it. The brethren are overjoyed now that they can have some literature from Brooklyn although limited due to government control.
+
+### Public Meeting Campaign
+
+When the instructions on the campaign first reached us, there was much rejoicing at the prospect of this extension of our field activity. It was not until March that we could get under way with the meetings. There have been held
+
+---
+
+<sup>**Page 91**</sup>
+
+[Open Page 91 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=91)
+
+90
+
+_Yearbook_
+
+since then a total of 6,910 public meetings according to the scheduled manner, with a total attendance of 196,647. The brethren have been greatly enthused with the results. The need for extensive advertising of the meetings has been appreciated generally and the publishers have put in extra time. Nearly all companies have been able to run at least one or more series. During the past two months there has been an extension of the outdoor meetings. There has been considerable difficulty in booking halls, so the brethren have taken the message to the people out in the open spaces. One report just received states:
+
+'The talk took just one hour. At times the crowd totaled 150, but the brothers counted 90 who stood the hour through; there were 40 brethren in addition. The attention was held throughout and we had no interrupter.'
+
+Others tell of meetings arranged on village greens with musical introductions interspersed with announcements to assemble the people. Also, there are series running on the beaches at some of the seaside resorts. In London there are at least six series being held in public squares and in the parks. There can be no doubt that the public meetings, whether indoors or outdoors, are accomplishing a splendid witness to the Kingdom. The wailing of the religious clergy, similar to that of Jesus' day, testifies to the effectiveness of this great campaign.
+
+### Channel Islands
+
+During the year the Channel Islands located near the French coast were liberated from Nazi rule and the brethren residing there experienced a measure of freedom again. Some were deported to Germany, but this did not cause the few there to become inactive. At the time that the Nazis marched in quite a few were able to get away to England. Those that remained were nearly all newly interested. They were cut off from all contact with us for nearly five years. With no literature except for some old books which they were able to loan to the people and some they were able to obtain from others not interested, they began a system of book-loaning and back-calling and the Lord blessed their activities. The little companies on Jersey and Guernsey grew from about 25 to 80 publishers. Here was an example of Jehovah's care over his people right in the midst of the Nazis. Their zeal and enthusiasm is good to behold.
+
+### Ireland
+
+It has not been possible for anyone from this office to visit Ireland during the war period. We could not send the brethren any literature, not even Bibles. But the faithful servants of the Lord in that land have not gone short of spiritual food nor have they eased up on their Kingdom
+
+---
+
+<sup>**Page 92**</sup>
+
+[Open Page 92 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=92)
+
+_Yearbook_
+
+91
+
+service. We are now able to arrange visits by the servants to the brethren from England. Many new ones have taken their stand for the Kingdom in recent years. The field in Ireland is ripe for intense activity. In Belfast there are nearly 120 publishers and the work is opening out. In Dublin the company consists of about 20 publishers.
+
+It is difficult for many to appreciate the dark spot that Southern Ireland is as respects the light and knowledge of God's Word. Door-to-door work has always been extremely difficult because of the clergy opposition. The priests exercise great influence throughout the country. A recent visit to Dublin brought 40 brethren and good-will interest together. It is interesting to note that door-to-door work is now regularly carried on in Dublin, as well as pavement witnessing. Here again is an opening for real pioneers. We are now making arrangements for some to be sent there.
+
+### Persecutions
+
+Because of their stand as ministers of the gospel and their refusal to bow to the dictates of men who seek to direct them away from their God-given ministry work, numbers of the brethren continue to be sent to prison. Those actually serving sentences during the year were 40 sisters and 101 brothers, making a total of 141. During the war period, there have been 344 convictions recorded against sisters and 1,249 convictions against brothers, involving sentences of from one month to two years, these making a total in all of 1,593 convictions. The aggregate sentences total 604 years. They have had to appear in the courts throughout the land and a splendid testimony has been given before both the rulers and the people. As will be appreciated, most of those convicted were from the pioneer ranks. The Devil sought to stop the activities of the pioneers and others, but in this he did not succeed. Efforts have been made before the courts to establish the right of these brethren to their claim to be ministers of the gospel, but so far without avail. The brethren know, however, that their ordination comes from God, and not from man.
+
+We have appreciated the marvelous stand against all odds that has been put up by our brethren under the Nazi yoke. It was our privilege to have printed and submitted to the press and other parties in this country the record of their steadfastness under severe test. The accounts of Buchenwald, Belsen and other places were handed to the press with the invitation to publish it. The majority refused, but many did publish the statement in full. We have prayed earnestly that the Lord would preserve and bless these faithful brethren these many years and we rejoice with them now that they are free to take up again the proclamation of the Kingdom message.
+
+---
+
+<sup>**Page 93**</sup>
+
+[Open Page 93 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=93)
+
+92
+
+Yearbook
+
+Field Service Report for British Isles, 1945
+
+|   | Special Pioneers | Pioneers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 95,369 | 33,848 | 124,453 | 1,040 | 254,710 | 248,833  |
+|  Booklets | 290,016 | 106,408 | 704,297 | 6,459 | 1,107,180 | 1,164,997  |
+|  Total | 385,385 | 140,256 | 828,750 | 7,499 | 1,361,890 | 1,413,830  |
+|  Pub's (mo. av.) | 713 | 268 | 11,622 |  | 12,603 | 12,252  |
+|  Hours | 1,373,413 | 402,464 | 2,283,291 |  | 4,059,168 | 3,859,613  |
+|  New subs. | 3,962 | 1,501 | 11,713 |  | 17,176 |   |
+|  Back-calls | 438,445 | 125,994 | 700,141 |  | 1,264,580 | 1,201,553  |
+|  No. back-call book studies (av.) | 3,894 | 1,281 | 7,041 |  | 12,216 | 13,535  |
+|  Av. hours | 160.5 | 125.1 | 16.4 |  |  |   |
+|  Av. back-calls | 51.2 | 39.2 | 5.0 |  |  |   |
+|  Av. book studies | 5.4 | 4.7 | 0.6 |  |  |   |
+
+Companies in country 610
+
+Peak number of publishers for 1945 service year 13,150
+
+We cannot close the report without expressing our deep gratitude to Jehovah for all his bountiful provisions for us. The unfolding of so much of His Word which has helped to keep us in his way during this evil day when there are so many pitfalls for the unwary, and the clear and healthy sound of the trumpet call to action proceeding from his visible organization, are sufficient to satisfy the faithful servant striving to keep integrity. We are grateful for the timely warning to watch our spirit in Theocratic service so that all the service we render is acceptable to Jehovah. We are glad, too, that there is so much to do, for this will keep our minds and hands occupied with things that keep us steadfast in the cause of righteousness. We look to the great day of deliverance that lies ahead.
+
+### BELGIUM
+
+It is truly good to hear from this land again and to note the wonderful increase in the service work. The report given is the first following Nazi occupation. The past service year was a sort of 'preparation' year, in view of the great coming events in giving testimony throughout the land concerning Jehovah God and his kingdom.
+
+During the German occupation it was necessary to keep secret the publishers' addresses and their
+
+---
+
+<sup>**Page 94**</sup>
+
+[Open Page 94 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=94)
+
+Yearbook
+
+93
+
+meeting places, because the Gestapo was out to get every one and send him off to concentration camp. Now public announcement concerning the location of the Kingdom Halls is made throughout all the country. When this public proclamation was begun, it was quite difficult for some of the publishers to get used to the sudden change. They felt like birds that had suddenly been delivered from their cage, and they hesitated before opening their wings in the free air. But now the brethren have become used to it again and are outspoken in declaring the truth. The fears of cruelty and torture no longer hover about them, and they move forward singing the joyful song.
+
+During the Nazi occupation the work from door to door was done only with the Bible; but now it is carried on with the aid also of books and booklets recently printed by the Society. The small stock of literature was quickly exhausted and there is a great demand for more literature. The shortage of paper compels certain restrictions at this time; however, this does not retard the publishers, for they go forth zealously and preach with their tongue. During the long years of war very little communication was had with the outside world; but in some manner good food reached the brethren continually, to sustain them. Now there is a steady flow of spiritual supplies into Belgium. An average of 983 are attending the _Watchtower_ studies, and from this group a peak of publishers was reached in August 1945, when 753 engaged in field service. Excerpts from the report of the Society's representative there are most interesting.
+
+All during the time of the Nazi occupation the publishers were obliged to study secretly in their homes. The reason was that great danger was continually present. The Gestapo were always alert to arrest Jehovah's witnesses and detain them in concentration camps. What a pleasure it is to now assemble freely and publicly! The transport difficulties hinder us now in having general assemblies; however, meetings are held in different points throughout the country. At these assemblies the new service instructions are explained, and all are anxious to go ahead and conduct the work according to the Lord's good pleasure.
+
+---
+
+<sup>**Page 95**</sup>
+
+[Open Page 95 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=95)
+
+94
+
+Yearbook
+
+It was a real joy to those in Belgium to receive back into the fold those brethren who had been taken away to concentration camps. After persecution for many years, they are recompensed for their fidelity to the Theocratic Government. Jehovah has preserved them. They have now returned and immediately they took part in the service by going from house to house as did the apostles in their time.
+
+### Receiving the Truth
+
+In carrying the gospel to the people from door to door, we now find how great is the thirst for truth. For many years the Roman Catholic Hierarchy has had great power over this country, principally in the Flemish part. The events of war have opened the people's eyes. The Nazi-Vatican collaboration has made the people lose their confidence in the Hierarchy. In Catholic cities where before the war the clergy had unlimited power to rule, the people are now alert as to who shall govern. They see the crookedness of the Hierarchy and their underground methods of collaboration with the Nazi totalitarians. The minds of the people are now ready to receive the Theocratic instruction, the truth from God's Word. We long for more books and booklets to satisfy the many hungry 'sheep'.
+
+It has been reported from one section of the country that the priests have told the people: 'The booklets Jehovah's witnesses place with you are better than the catechism; but take heed, they are not authorized by the Church for you to read. If you do read them they will take you out of the Church.'
+
+Not only is work being done in the homes and at meeting places, but public meetings are now held in Belgium. Some of the brethren have gone to the populous centers of town, the market places, and there have set up tables covered with the Society's books. They give short talks on the pressing events of the day and their connection with the Bible. This attracts the attention of the people and the Kingdom message is presented. Excellent discourses have been given to multitudes by this means. Knowing that the speaker will be at a given location regularly, people have come from afar to hear the message. The clergy's representatives have tried to break up these meetings or contradict the sayings, but always they are run off the place. The people are dissatisfied with the clergy. So, Onward, truth! And the publishers rejoice.
+
+In many places Jehovah's witnesses are favored by the authorities, because they recognize that during the Nazi occupation the Lord's servants were obliged to endure bitter trials and harsh treatment for refusing to collaborate with the Nazi regime. In the coal-mine center some of the Polish and Slovakian brethren refused to collaborate. Because of
+
+---
+
+<sup>**Page 96**</sup>
+
+[Open Page 96 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=96)
+
+Yearbook
+
+95
+
+their determined stand during the war they are now greatly aided in giving the testimony to the Kingdom. There is very little opposition now from the governmental authorities. But we are not blind to events, for the religious clique is working diligently against the message. The organization J.O.C. (a branch of Catholic Action) is trying to recover again their lost position; but the clergy's sympathies with the Nazis is now too well known. Recently several of the Hierarchy's members (monks and head friars) were arrested and condemned because they continued their collaboration with Nazis, hiding men who were being searched for by military police.
+
+### The Lines Kept Open
+
+The pioneers were a loyal troop for the Kingdom during the Nazi occupation. They did their work under the most difficult circumstances. They supplied their brothers and sisters regularly with _The Watchtower_. It is because of this special service which the pioneers were rendering that the pioneers have shown small hours in field service at the beginning of the service year. They were in the liaison service and kept the lines of difficult communication open between the companies and the main office. Now they are back in full-time field service, working at unity with all their brethren and giving instructions to the 'other sheep', which lead to life. Where company organizations are weak, pioneers have stepped in to take charge and act as servants, so as to help the publishers get on in their work correctly.
+
+The weekly service meetings are conducted so as to inform the brethren how to carry on in the house-to-house and back-call work. We rejoice in the _Course in Theocratic Ministry_. With this present the Lord has given to the publishers the best instruction, so that they may become able ministers in the public testimony work.
+
+### Field Service Report for Belgium, 1945
+
+|   | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- |
+|  Books | 151 | 991 | 1,142 | 684  |
+|  Booklets | 3,077 | 17,455 | 20,532 | 14,550  |
+|  Total | 3,228 | 18,446 | 21,674 | 15,234  |
+|  Publishers (mo. av.) | 10 | 590 | 600 | 432  |
+|  Hours | 9,894 | 93,275 | 103,169 | 62,553  |
+|  Ind. mags. | 10,583 | 31,200 | 41,783 | 1,302  |
+|  Back-calls | 1,457 | 15,632 | 17,089 | 13,159  |
+|  No. back-call book studies (av.) | 13 | 160 | 173 | 185  |
+
+---
+
+<sup>**Page 97**</sup>
+
+[Open Page 97 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=97)
+
+96
+
+Yearbook
+
+|   | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- |
+|  Average hours | 92.5 | 14.1 |  |   |
+|  Av. back-calls | 13.6 | 2.4 |  |   |
+|  Av. book studies | 1.3 | 0.3 |  |   |
+|  Companies in country |  |  | 21 |   |
+|  Peak number of publishers for 1945 service year |  |  | 753 |   |
+
+### LUXEMBOURG
+
+The Belgian office received some communications from our brethren in Luxembourg. Previously, no word had been received from them since 1940; and these brethren have been out of contact with others of the Lord's people throughout the world. This did not slacken their zeal, but they continued to praise the Lord as they had opportunity. Now that communications are again established, _The Watchtower_ and other publications are being sent into Luxembourg by our Belgian brethren. Sixteen publishers put in 925 hours during the past year, made 149 back-calls, and placed 140 pieces of literature. Every effort is being made to aid these brethren, so that the people of Luxembourg may be given the necessary message concerning the Kingdom, the only hope of the world.
+
+### CANADA
+
+Through another year of varied experiences the Lord has sustained his faithful people in this land and has fed them well with 'food convenient'. The peace, prosperity and increase which have attended the united efforts of Jehovah's name-people to make disciples of all nations have been a direct evidence of Jehovah's blessing. The faithful servants of the Lord in Canada had for several long years gone through many trials and much persecution at the hands of the government, and especially the religionists. The brethren in Canada do not expect such to cease now that the bans have been lifted on the corporations of the Society and on the people themselves; but they do rejoice because of their greater freedom. It is their belief that they can now do more in aiding the people of good-
+
+---
+
+<sup>**Page 98**</sup>
+
+[Open Page 98 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=98)
+
+_Yearbook_
+
+97
+
+will than they have heretofore, although during the years of strenuous opposition much good work was accomplished. This is reflected in the field service report of 1945.
+
+In the vast country of Canada there are scattered, from one end to the other, 11,500,000 persons, representing thirty different nationalities. Many have migrated to Canada from Europe within the present generation and are as yet unable to speak or understand English. Therefore they greatly appreciate literature in their own language. Approximately fifty percent of the entire population are members of the Catholic church. Many of these are getting their eyes opened now and are heeding the message of truth. The distances to be traveled in order to reach the many persons scattered throughout this expansive land are great indeed. The country roads are bad, making for difficult travel; but eventually the people in the back country are reached with the glad tidings.
+
+The experiences of the servants to the brethren are very interesting. They endure many hardships in order to reach Jehovah's witnesses at the far outposts of northern Canada. The pioneers have done their share in getting the message into territory where settlers are sparse. The company publishers have been diligent in the big cities, along with other pioneers; and Jehovah has added the increase. More publishers have engaged in the field service during the 1945 service year than at any other time, the average being 9,880; and the peak number of publishers in any one month, 11,049. Sixty-seven new companies were organized during the service year, bringing the total number of companies up to 470. The attendance at Memorial reached 15,479, and shows the splendid possibilities of aiding other persons to take up the preaching work.
+
+Canada probably has more publishers in proportion to its population than any other country; but our Canadian brethren do not feel satisfied with this. They are interested in only one thing, namely, feeding the
+
+---
+
+<sup>**Page 99**</sup>
+
+[Open Page 99 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=99)
+
+98
+
+Yearbook
+
+“other sheep” and directing them to the Lord’s organization. The good work accomplished by the Canadian brethren is set forth very well in the year’s report submitted by the Branch servant.
+
+### Reorganized
+
+The declaration of illegality still remained on the Watch Tower Bible & Tract Society and the Watchtower Bible and Tract Society, Inc., but in view of the restrictions being lifted on Jehovah’s witnesses and the I.B.S.A. of Canada the service year commenced with far better prospects of carrying out in closer detail the organization instructions than had been possible since 1940. There were times, however, when it appeared as though the work of the office would be broken into by those authorities having to do with regimentation of man power. The government has steadfastly and stubbornly refused to recognize our ministry, yet Jehovah has seen to it that no one in the office was removed from his assigned duty. The same has been true not only during the past year, but throughout the past five years.
+
+In September, 1944, the Branch office and Bethel home were still occupied by a religious organization, having been leased to such by the Alien Custodian. The work was being conducted from temporary quarters near the city limits. The Bethel family were scattered throughout the city, but were unified in their service by faithfully keeping to instructions and conforming insofar as was possible to the rules and regulations governing the Bethel homes. In December we were able to move into a section of the Bethel home, and the family were brought under the same roof. In March we had free access to all our premises. The reconstruction and renovation commenced in keeping with your instructions to arrange for the office, printery, shipping, etc., to be conveniently laid out so as to allow for expansion in the postwar period; also to arrange for the comfort and convenience of the Bethel family. This has been greatly appreciated by all members. Already we have reaped the benefits of these improved conditions.
+
+Circumstances have necessitated our machinery’s being operated on premises of a commercial printing firm. Pioneer brethren were invited to operate the machines. During the year it has been possible for us to produce paper-covered editions of the books “_The Truth Shall Make You Free_” and “_The Kingdom Is at Hand_”, question booklets for these books, the _Watchtower_ magazine, large supplies of the six last booklets, the _Informant_, _Kingdom News_, handbills, and service forms of all kinds. The books produced totaled
+
+---
+
+<sup>**Page 100**</sup>
+
+[Open Page 100 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=100)
+
+Yearbook
+
+99
+
+246,230; booklets, 2,301,909; _Kingdom News_, 813,000. All pieces of literature, including the foregoing, made a grand total of 16,441,013, to compare with 6,689,293 for the previous year. The 1945 production of magazines exceeded last year's by 330,000 copies. _The Watchtower_ was also translated and published in French and Ukrainian. Some machinery has been moved to 40 Irwin avenue, and we look forward to the time when it will all be installed there. It has been necessary at times to keep the machines going 24 hours a day. The brethren in the shipping department have had to work many extra hours in order that all publishers might be supplied with stock. This department handles the dispatching of the _Watchtower_ magazines in bulk and to individual subscribers. Large stocks of the prewar publications that had been safely stored for five years were also redistributed, and are now being placed with the public.
+
+The kindly letter of encouragement and counsel the president sent to all the pioneers under date of January 1 was a real blessing to these faithful servants, who are maintaining integrity amidst a perverse generation. Its glad reminder that the aim of the pioneer who is conscientious and regular in his service is to qualify for an invitation to Gilead College and thence for service in foreign fields was appreciated and the response in increased and improved field activity was noteworthy. Their peak of hours was 148.4.
+
+### Public Meetings
+
+The inauguration of the public meeting campaign was hailed by the Canadian publishers with great delight. The time was ripe for this feature of the Kingdom work to open up due to the approaching postwar period. The companies and pioneers have taken up this service with a zeal peculiar to the Lord's house and rejoice in this further opportunity to demonstrate their willing obedience to Theocratic direction. The total number of meetings was 2,552, with an attendance of 133,488. We are specially grateful for this feature of the ministry because the intensive advertising has searched out and located many who apparently had not been reached by other means, and who give evidence of being of the Lord's 'other sheep'. 'Happy are ye who sow beside all waters.'
+
+From the very opening of this public meeting campaign it was apparent why the Lord caused His 'faithful and wise servant' to inaugurate Theocratic ministry schools throughout the field. Brothers who but a year before had concluded that they would never be able to face an audience commenced delivering one-hour lectures. It is a constant source of joy and encouragement to see the progress being made by the young students, some of very tender years, who show
+
+---
+
+<sup>**Page 101**</sup>
+
+[Open Page 101 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=101)
+
+100
+
+Yearbook
+
+great aptitude and acquisitive ability. These children are being raised in the courts of Jehovah's temple organization, and without doubt will be of those who will go forth valiantly declaring the gospel message in the pioneer missionary work in the near future and demonstrate their worthiness to attain the New World.
+
+Having gone through the ministry course booklet the second time, we wondered just what would come next, but we never expected a 384-page bound book, _Theocratic Aid to Kingdom Publishers_, an unequaled textbook of instruction for the devoted publishers of the Kingdom! It is certainly true that 'as ye sow, so shall ye also reap', and those who have put away preconceived ideas of their own limitations and idiosyncrasies and have accepted the guidance of the Lord through his Theocratic organization by taking hold of the instruments he has provided in all humility, have met with signal success. Not only have those brethren delivering speeches from the platform greatly improved in their presentation of the message, but all publishers have benefited as the result of faithfully applying the lessons learned. Such training has been absolutely necessary, and we look forward with keen anticipation to the many future lessons.
+
+### Opposition
+
+The battle issues have included compulsory flag-salute, singing of the anthem, license tax, the status of ministers, and other charges brought against the brethren because of their immovableness for right worship.
+
+For five years a fight had been waged with the Hamilton (Ontario) school board, which board had caused expulsion of more than 30 of the children of Jehovah's witnesses. At last we were able to have the issue brought before the Supreme Court of Ontario for a ruling. Our case was presented before the Appeal Court by the Society's counsel. This court was greatly influenced by the decisions rendered in the United States on the same question, and particularly by the Barnette case. The three justices were unanimous in holding that the Board had acted illegally and the children should not be compelled either to salute the flag or to sing the anthem.
+
+The outstanding case involving the status of ministers is known as Greenlees vs. the Attorney-General of Canada. Since the authorities were determined to ignore the provisions of duly enacted statute and to deprive men who were engaged in the full-time ministry of their right to continue therein, it was decided to put the issue to the test. The brother involved had been engaged in full-time service without cessation since 1931, and was threatened with prose-
+
+---
+
+<sup>**Page 102**</sup>
+
+[Open Page 102 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=102)
+
+Yearbook
+
+101
+
+cution if he failed to report for military service. Instead of waiting for the authorities to take action the Society moved to challenge the validity of the legislation now being misapplied to an ordained minister. The case commenced before a superior court in the form of action for declaratory judgment.
+
+Valuable testimony was given by the general counsel of the Society from Brooklyn, who, to our joy, not only served as a witness but also remained throughout the trial to direct the presentation of our case. The Branch servant also appeared as a witness. The trial judge, though admitting the plaintiff was a minister, did not choose to independently affirm the justice of our cause, but ruled against us, following particularly the decision in a Scottish case (Saltmarsh). His judgment has been appealed to Ontario's highest court, where it will be heard before three justices. Much hinges upon the outcome of this case, and our prayer is that Jehovah will grant the victory.
+
+In Montreal (Quebec) the fight to hold on to and exercise our God-given right to preach the gospel is especially strenuous. The enemy continues to harass the publishers by repeated arrests. The brethren are undaunted. A test case is under way with a view to carrying the issue of freedom of worship in Canada's darkest province to the highest court of the Dominion if possible. Jehovah has richly blessed the fearless stand of the brethren in this part of the field. Since 1940 the number of publishers has trebled.
+
+Another means the enemy has used to break into the unity and integrity of Jehovah's covenant-keeping people has been interference with brothers of military age. Only the operation of the Lord's spirit upon their minds could have actuated so many individuals scattered throughout the field to take the same unequivocal stand for 'right worship' and to maintain it in spite of subtle schemes and coercive measures. These faithful ones have continued to redeem the time by diligent study of Freedom's Textbook, so demonstrating that they are still the Lord's freemen though under bonds. We look forward to the time when Jehovah will grant them enlarged privileges of service in the field.
+
+Efforts to have our brothers recognized as ministers were rendered all the more difficult by the fact that the Watch Tower Societies yet remained under ban of illegality. Repeated attempts had been made to have this unjust ban removed, but without success. In the month of April the Society's counsel from Brooklyn and the Branch servant interviewed the minister of justice. Lengthy discussion was had and the injustice of the situation was brought forcibly to his attention. He continued adamant, declaring that he did not intend to take any action. Whereupon he was in-
+
+---
+
+<sup>**Page 103**</sup>
+
+[Open Page 103 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=103)
+
+102
+
+Yearbook
+
+formed in cool, measured terms that a nation-wide petition campaign by Jehovah's witnesses would be opened May 1 if the ban was not removed, and that we expected to obtain one million signatures. A visit was also made to the office of the prime minister, and the facts laid before him. The campaign went into full swing at the date set, and was called off only when the prime minister caused the ban to be removed.
+
+### Assemblies
+
+Soon came the glad news that the president of the Society would visit Canada, and had consented to arrangements for an assembly in Toronto, Ontario. It was most appropriate to have a Reconstructors Theocratic Assembly in Canada at this particular time, after more than four years of ban! Tremendous advertising effort was put forth and the Lord's blessing was with us. The speech 'One World, One Government' was listened to with rapt attention by approximately 11,000 in the Maple Leaf Gardens, November 12, 1944, which will go down in memory as a momentous occasion.
+
+From the time when the _Informant_ advised the brethren to reserve the dates April 28 and 29 for special meetings, there was much conjecture as to what form these meetings would take. What a joy and added appreciation of Theocratic alignment we received as the identical program was presented at the arranged points in Canada as that provided at all other company meeting points throughout the world. There was a grand total of 14,908 attending the public lecture 'The Meek Inherit the Earth' on Sunday, April 29, with an estimated attendance of 5,793 strangers.
+
+A peak of blessedness was reached when the president announced the intention of extending his tour of South, Central and North America to this land, where he would spend several weeks in western Canada visiting the larger companies. As recounted in the July 15 issue of _The Watchtower_, it was most fitting that he should personally announce to the brethren of this land that the ban on the Society had been removed and literature from Brooklyn could now enter the country. His meeting with the 3,000 brethren in Toronto provided a fitting climax to the Canadian visit. We are grateful to the Lord that it was possible for the majority of the brethren in western Canada and Ontario to be present at these meetings. Though time did not permit an extension of the visit to include the eastern provinces, we do hope that it will be possible on some future occasion for him to visit these faithful brethren in their own districts.
+
+---
+
+<sup>**Page 104**</sup>
+
+[Open Page 104 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=104)
+
+Yearbook
+
+103
+
+Field Service Report for Canada, 1945
+
+|   | Special  |   |   |   |   |   |
+| --- | --- | --- | --- | --- | --- | --- |
+|   |  Pioneers | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+|  Books | 9,569 | 51,112 | 115,358 | 292 | 176,331 | 50,809  |
+|  Booklets | 30,303 | 169,963 | 572,050 | 873 | 773,189 | 476,373  |
+|  Total | 39,872 | 221,075 | 687,408 | 1,165 | 949,520 | 527,182  |
+|  Pub's (mo. av.) | 43 | 282 | 9,555 |  | 9,880 | 9,087  |
+|  Hours | 82,151 | 462,757 | 1,371,589 |  | 1,916,497 | 1,762,463  |
+|  New subs. | 488 | 2,632 | 7,134 | 29 | 10,283 | 23,357  |
+|  Ind. mags. | 10,853 | 65,914 | 303,038 | 38 | 379,843 | 230,781  |
+|  Back-calls | 25,677 | 102,394 | 274,078 |  | 402,149 | 542,733  |
+|  No. back-call book studies (av.) | 273 | 1,378 | 3,902 |  | 5,553 | 6,943  |
+|  Average hours | 159.2 | 136.6 | 12.0 |  |  |   |
+|  Av. back-calls | 49.8 | 30.2 | 2.4 |  |  |   |
+|  Av. book studies | 6.4 | 4.9 | 0.4 |  |  |   |
+
+Companies in country 470
+Peak number of publishers for 1945 service year 11,049
+
+Though integrity outlived the vicious attacks of the enemy in this land to tread underfoot Jehovah's name-people and their message, and though the brethren throughout the country loyally continued to proclaim the glad tidings from door to door and on back-calls, yet we needed just what this year brought, namely, the lifting of all restrictions and the president's visits to place us once again in the public eye before the nation as those who bear the only message of salvation by the Kingdom. Since nothing can be gained by dwelling on what has taken place during the past five years under the declaration of ban, and everything can be gained by pressing forward in the work of the postwar period, and lifting high the standard of truth, we are determined that our thoughts henceforth will be always concentrated upon the service of the present and the immediate future and to encourage our brethren to do likewise.
+
+As this report is completed we give heartfelt thanks to the gracious Creator for the marvelous blessings granted us, and pray that in the Lord's providence it will be possible for the Society's president to visit us again. We continue to pray for the prosperity of Zion, and that the Lord may speed the president's visit to the faithful integrity-keepers who have braved the horrors of concentration camps and war conditions in so many countries and yet remain unspotted from the world.
+
+---
+
+<sup>**Page 105**</sup>
+
+[Open Page 105 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=105)
+
+104
+
+_Yearbook_
+
+### CHILE
+
+The witness work in this land has moved ahead very well during the past year. Jehovah's witnesses here are few in number and their task is great, for it is their responsibility to take the good news of the Kingdom to more than five million people. But, backed up by the stirring command of the Lord to 'go ye therefore, and make disciples of all the nations', the publishers of this land have moved forward. Here, as in other Latin-American countries, the Hierarchy and its clergy have overrun the land. There exists mass poverty. Wretched and miserable is the condition of the people, while the clergy and the rich live in luxury. Because of such religious oppression many have apparently lost all hope and ambition, the same being evidenced by the depths of degradation into which men and women have descended. Adding to this the illiteracy so prevalent throughout the country, it is seen to be difficult to awaken the people to the glorious hope of the New World and to bring them freedom. For this condition the Roman Catholic Hierarchy must make answer to the Lord.
+
+How to reach all the inhabitants in the cities, towns and hamlets of this long and narrow country is a real problem. The few company publishers and pioneers, although working well during the past year, have merely scratched the surface. The territory is virgin as far as the truth is concerned. So that the work might progress better, a branch office was opened in Chile this year and the country now comes under the direct supervision of the president's office. Some pioneers from the Watchtower Bible College have been sent to Chile, there to help the brethren with organization. Good progress has been made, as the report shows. Publishers increased from 58 to 65; and a new peak of publishers was reached in August, with 83 serving the interests of the Kingdom.
+
+It is expected that early in the service year 1946 quite a few more graduates of the college will arrive there to assist in preaching the gospel and helping
+
+---
+
+<sup>**Page 106**</sup>
+
+[Open Page 106 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=106)
+
+Yearbook
+
+105
+
+many of the Chilean people to 'be glad . . . with his people'. The Branch servant sends in an interesting report, and, among other things, says:
+
+It is a joy to find the people of good-will, the Lord's 'other sheep', and to satisfy their thirst with the life-giving water of truth. All indications are that there are many persons of good-will who desire to come out from under the yoke of religion and grasp onto something more solid and life-sustaining. The truth is what they need, and, by the Lord's grace, we will do all we can to help them. We will look to Him to send more laborers into the field in his own due time, to help us press forward with the witness work with ever-increasing speed, knowing that the time is short.
+
+During the year a faithful pioneer sister who came to Chile some years ago and continued in the pioneer service was enrolled as a special pioneer and assigned to work in Santiago. After five months this publisher now reports 10 back-call book studies, with an attendance of 31. As a result of the back-call and book-study work some of these interested people have already attended some of the company meetings.
+
+Two other special pioneers from Gilead arrived in Chile during the year. They have also been assigned to work in Santiago. Although handicapped to some extent because of the language they have done what they could, and it is gratifying to see that the effort is resulting in back-calls and book studies.
+
+### Better Organization
+
+The Lord's people in Chile have seen the rich blessing of Jehovah upon the application of organization instructions in other countries of the world. Those concerned with the Kingdom interests realize that it must even be so in this land. They desire to be in complete unity and harmony with their brethren throughout the world. They recognize Jehovah's 'faithful and wise servant' and the need of proper organization in line with organization instructions from the Lord through that servant.
+
+Accordingly, during the year the _Watchtower_ study was reorganized and brought in line with _Organization Instructions_. At least the three largest companies have taken up the new method of study and express their appreciation therefor.
+
+Going to the field work, we are glad to report that regular street magazine work is now in progress in Santiago. The experiences are interesting and encouraging. One well-dressed gentleman approached one of the publishers and in the course of the conversation stated: 'I am glad that some
+
+---
+
+<sup>**Page 107**</sup>
+
+[Open Page 107 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=107)
+
+106
+
+Yearbook
+
+Protestant organizations are coming down here to tell the truth about the Catholic Church.'
+
+Regular weekly group witnessing is aiding many of the weaker publishers to get into the field service more regularly. At the same time they are admonished to take out and work an individual territory near their homes and thus increase their Kingdom activity.
+
+The brethren here have never had instruction on the proper manner of keeping records, nor have they seen the Society's system of filing in connection with company activities. But they are willing to learn, and they show their appreciation for the instruction given by taking hold of their duties when shown.
+
+Early in January word was received by the Depot servant of Brother Knorr's intended trip to South America and subsequent visit to Chile. Brother Knorr advised that a two-day assembly be arranged for March 24 and 25, when he would be with the Chilean brethren on his return trip from Argentina. Being the first time that a president of the Society was to visit this land it caused great rejoicing among the friends.
+
+On the 27th of February the Depot servant accompanied by his wife and one other publisher had the pleasure of meeting Brother Knorr and Brother Franz at 'Los Cerrillos', the local airport. Their itinerary called for an overnight stop in Santiago, being on their way east to Argentina and other South American countries. This brief stay afforded an opportunity to discuss the Kingdom activity and arrangements for the coming assembly.
+
+### Things Happened Fast
+
+This was the start of a chain of fast-moving events which clearly indicate the rapid movement of Jehovah's organization in the earth towards the fulfillment of the command 'Go ye therefore, and make disciples of all the nations'. On March 3 the first Gilead College graduate landed at 'Los Cerrillos', being assigned to work with the brethren in Santiago. On March 16 another graduate arrived by plane. He was on his way to his new assignment to work with the friends in Uruguay.
+
+Wednesday afternoon, March 21, a group of publishers were gathered at the airport to welcome Brother Knorr and Brother Franz on their return trip from the eastern countries of South America. To our disappointment the airport officials announced the postponement of Flight 332 because of bad weather over the 'Cordillera'. It is remembered that this is the lofty Andes mountain range forming the Argentine-Chilean boundary, and which must be crossed by airplanes traveling east and west. The follow-
+
+---
+
+<sup>**Page 108**</sup>
+
+[Open Page 108 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=108)
+
+Yearbook
+
+107
+
+ing day, March 22, our traveling brethren came through safely, to our joy.
+
+No time to be lost. The president of the Society immediately set to work inspecting and going over the Society's business at the depot and generally instructing for a more efficient organization for the furtherance of the Kingdom interests. A new branch organization was authorized for Chile directly under the Brooklyn office. Heretofore the work in Chile was carried on under the supervision of the Argentine branch. The brethren hailed the new arrangement, recognizing that it was another step towards the advancement of the witness work throughout the land.
+
+By Saturday morning the assembly was in full swing. That afternoon and evening Brother Knorr, with the aid of Brother Franz, who interpreted, went thoroughly into a discussion on organization. Clearly and Scripturally it was established how Christ Jesus left a marvelous organization in heaven; how he came to this earth and set about to teach and instruct his disciples in order to set in motion an organization on this earth that could carry on in the witness work after he would leave them. The work was traced to modern times showing the need of organization today in order to properly advance the Kingdom interests. Clearly it was shown how the rich blessing of the Lord has accompanied the application of organization instructions in countries like Cuba and others. The same would be true for Chile. Particular stress was placed on the back-call and book-study activity, showing the grand privilege of aiding the Lord's 'other sheep' through this branch of service.
+
+During the entire week the public talk scheduled for Sunday, March 25, by the president of the Society, had been given wide publicity. It resulted in 340 attending the lecture to hear 'One World, One Government', which Brother Knorr decided to give instead of the advertised talk. Four hundred and ten booklets containing the advertised theme were distributed at the conclusion of the lecture and many names were turned in requesting more information. At the same time Brother Franz delivered the talk advertised over the radio, which was carried by four stations. The assembly came to a climax by Brother Knorr's discussion on 'Jehovah's Universal Sovereignty Vindicated' that evening. Five symbolized their consecration to do God's will during the assembly.
+
+The chain of rapid-moving events continued. On March 29 the second graduate assigned to Chile arrived by plane. On April 12 two brethren from Argentina landed at the airport, completing the first hop of their long journey by air to the United States to attend the sixth class of the Watchtower Bible College of Gilead. More followed. During April
+
+---
+
+<sup>**Page 109**</sup>
+
+[Open Page 109 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=109)
+
+108
+
+Yearbook
+
+the friends were busy arranging for a special meeting to be held in Concepción in conjunction with similar meetings to be held in the United States and other countries. All the material had been received and translated in time. The brethren were grateful for this, another opportunity to assemble for worship and to have a part in telling others of the faithful promise that the "meek shall inherit the earth".
+
+Field Service Report for Chile, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 650 | 2,372 | 2,035 | 6 | 5,063 | 2,853  |
+|  Booklets | 1,930 | 28,756 | 29,127 | 6 | 59,819 | 40,056  |
+|  Total | 2,580 | 31,128 | 31,162 | 12 | 64,882 | 42,909  |
+|  Pub's (mo. av.) | 1 | 5 | 59 |  | 65 | 58  |
+|  Hours | 1,958 | 8,209 | 11,124 |  | 21,291 | 9,531  |
+|  New subs. | 18 | 22 | 35 | 2 | 77 | 20  |
+|  Ind. mags. | 779 | 1,249 | 3,205 | 56 | 5,289 | 4,161  |
+|  Back-calls | 599 | 388 | 519 |  | 1,506 | 350  |
+|  No. back-call book studies (av.) | 4 | 5 | 12 |  | 21 | 21  |
+|  Average hours | 115.2 | 130.3 | 15.6 |  |  |   |
+|  Av. back-calls | 35.2 | 6.2 | 0.7 |  |  |   |
+|  Av. book studies | 3.1 | 0.9 | 0.2 |  |  |   |
+|  Companies in country |   |   |   |   | 8 |   |
+|  Peak number of publishers for 1945 service year |   |   |   |   | 83 |   |
+
+This report would not be complete without mentioning that early in August authorization was granted by the Chilean Government for the entry of 10 more college graduates into the country to carry on their missionary activity. The irresistible spirit or active force of Jehovah will continue to go forth in behalf of his people until his purpose shall have been fully accomplished to his everlasting praise and vindication. We therefore look forward with keen interest to the arrival of more laborers to help us in the great work of reconstruction.
+
+### CHINA
+
+Several brief letters have been received from China telling of the safety of some of our brethren at Shanghai. Because of the conditions existing there for many years, very little witnessing has been done.
+
+---
+
+<sup>**Page 110**</sup>
+
+[Open Page 110 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=110)
+
+Yearbook
+
+109
+
+When the Japanese entered Shanghai they confiscated some sixty cartons of literature and interned some of the brethren. The pioneers had to leave that field of service because of lack of literature; but all continue to hold to the truth and preach it as opportunity affords. They are anxious to receive instructions as to how to proceed, and supplies of literature with which to work. As one brother states it, they want “everything necessary to put us on a war basis”. To receive spiritual food is their ardent desire.
+
+During these years, the brief report at hand shows, three Jonadabs were baptized; and there are many others interested in the truth. The brethren there are anxious to have someone sent to organize the work and energetically push it ahead. A few brethren in Chungking have stood fast for freedom, continuing to preach the gospel, and these Chinese brethren have likewise requested aid, wanting an instructor and literature. As soon as the way opens up for things to be sent to China, literature will go forward; and we hope to send some young ministers to “go, disciple” these people.
+
+### COSTA RICA
+
+The work in this land has moved along marvelously during the past service year. ‘Planting’ was done, the ‘watering’ was cared for, and Jehovah gave the increase. In 1944 the average number of publishers serving the interests of the Kingdom was 128. This increased to 203, with a peak of 253 being reached during the year. Still there is much work to be done in the land, and the brethren there are anxious to do it. The work has gone on unhindered, despite efforts on the part of religionists to stop it. An occasional attempt at persecution crops up, but the publishers have defeated all such by going right ahead with their good work of preaching this gospel.
+
+All the companies in the land show a good increase, either in publishers or in looking after the back-call
+
+---
+
+<sup>**Page 111**</sup>
+
+[Open Page 111 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=111)
+
+110
+
+Yearbook
+
+and book-study work. The San Jose company has shown the greatest increase, and this can be attributed to the fact that there are now seven graduates from the Watchtower Bible College associated with the company. All these brethren are becoming more fluent in the use of Spanish. They make frequent comments at meetings, help in the service meeting demonstrations, and get on quite well in their field activity. The Branch servant reviews the work very well, and parts of his report are herewith published.
+
+During the 1944 service year the San Jose company averaged 27 publishers, leaving a quota of 30 publishers for the 1945 service year. The quota was passed the first month, and the company averaged 64 publishers per month for the entire year. This is indeed a cause for rejoicing, and we give thanks to Jehovah for having made it possible.
+
+The Puntarenas company (Spanish) has also made some good progress. Last year they reported a peak of 10 publishers, but during the service year ending August 31 they have been reporting from 15 to 18 publishers regularly.
+
+Five new companies have been formed during the past year. The ones at Grecia and Quepos are Spanish and completely new. The companies organized at Rio Hondo, Buffalo and Guacimo Junction were formed from groups that had been reporting to one of the old established companies.
+
+The magazine work continues to be most interesting and with continued good success. One publisher has placed as high as 45 magazines in three or four hours' street work. More publishers are taking part in this feature of the work, and in San Jose alone 250 copies of each issue of _La Atalaya_ are placed besides the English magazines and the Spanish _Consolation_.
+
+The companies and pioneers were organized for the _Watchtower_ Campaign at the same time that it was in progress in the States, and with good success, placing 282 new subscriptions in the four-month period.
+
+#### A Visit
+
+The high light of the entire service year was Brother Knorr and Brother Franz's visit to Costa Rica, when two assemblies were arranged for, one in Port Limon for the English-speaking brethren and the other in San Jose for the Spanish-speaking brethren. This visit will be long remembered by the brethren that attended either assembly.
+
+First came the 103-mile train ride from San Jose to Port Limon in the caboose of an excursion train. Brothers Knorr and Franz were joined by the Branch servant and his wife
+
+---
+
+<sup>**Page 112**</sup>
+
+[Open Page 112 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=112)
+
+Yearbook
+
+111
+
+and the entire party enjoyed the trip in spite of the smoke from the oil-burning locomotive to which the caboose was coupled. Then to get to the hotel and find that the reservations that had been made in January to insure having rooms from March 29 to April 2 had been canceled because the party did not come in on the regular passenger train did not daunt the zeal of our brethren from the States. Such things do happen, but a kind sister opened her home to the four for the night and the next day other arrangements were made. Finally, on Saturday, the 31st, rooms were available at the hotel and also Brother and Sister Palmer joined the group that day for the rest of the assembly.
+
+The assembly was held in the hall of the Universal Negro Improvement Association, which affords good convention headquarters. The management is very kindly disposed toward Jehovah's witnesses and rented us the hall for a very small amount. Another organization wanted the hall at the same time for an Easter celebration, but Jehovah's witnesses were given the preference because they clean up the hall to move in, keep it clean while using it, clean it up on leaving it, and maintain an orderly assembly.
+
+The high light of the assembly came on Sunday afternoon when Brother Knorr addressed 382 people of good-will and witnesses on the subject 'The Meek Inherit the Earth', which was greatly appreciated by all who heard it. Even the Port Limon newspaper commented favorably upon it. At the conclusion of this talk all were invited to attend the evening and closing session of the assembly, when Brother Franz talked to 388 listeners, basing his remarks on the _Watchtower_ article 'The Kingdom Sabbath and Its Lord'. This talk was put in the program because many good-will people of Port Limon have wanted to hear something from Jehovah's witnesses concerning the Sabbath question; and they were not disappointed!
+
+#### Another Assembly
+
+In San Jose the assembly was scheduled for the following week-end, beginning with a 'model' service meeting on Friday, April 6. For weeks prior to the assembly date the town was gone over time and again in search of a suitable place for the convention, but nothing was available; so we used the local Kingdom Hall for all sessions except the public meeting.
+
+The public meeting was scheduled for Sunday morning, and because the theater which was rented for the occasion could be had only long enough to deliver a one-hour discourse, Brother Franz gave the lecture from manuscript instead of translating for Brother Knorr. 'One World, One Government' was the subject chosen and delivered to
+
+---
+
+<sup>**Page 113**</sup>
+
+[Open Page 113 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=113)
+
+112
+
+Yearbook
+
+467 listeners, the largest single gathering in Costa Rica to date.
+
+This lecture, as the one in Port Limon, was advertised with handbills, and placards placed in the windows of business houses, the ordinary way of advertising a coming event, but this year Jehovah's witnesses added something new, and for the first time in Costa Rica information walkers appeared on the streets wearing placards advertising the public meetings. The comments from the onlookers were the same as one usually encounters when engaged in thus advertising, but the end results showed that the Lord's approval was upon the activity, as witnessed by the attendance.
+
+Sunday night then 135 heard Brother Knorr in his closing remarks give some timely admonition concerning living a life in harmony with the Scriptures. Many of his listeners have followed the Scriptural counsel, while a few took offense and have tried to justify their acts, failing to see the necessity of following admonition that is for their welfare if they expect to gain life in the New World. Those that did receive the instruction in the light that it was given have reaped the benefits of well-doing and the Lord's added blessings as they press on doing the work 'discipling all nations' and attending the company headquarters meetings.
+
+It was also at the San Jose assembly that the president of the Society announced to the brethren that soon 'The Truth Shall Make You Free' in Spanish would be available to work with in the field. The Spanish brethren had been awaiting a new bound book in Spanish, and the announcement of this new instrument was a thrill to all. And when it did arrive, a short time later, all went to work with it, placing it on many back-calls as well as on initial calls, and then starting studies in it.
+
+# Field Service Report for Costa Rica, 1945
+
+|   | Special Pioneers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 1,295 | 1,768 | 2,587 | 1 | 5,851 | 4,067  |
+|  Booklets | 4,844 | 5,416 | 13,567 | 200 | 24,027 | 22,911  |
+|  Total | 6,139 | 7,184 | 16,154 | 201 | 29,678 | 26,978  |
+|  Pub's (mo. av.) | 4 | 9 | 190 |  | 203 | 128  |
+|  Hours | 5,742 | 14,321 | 31,277 |  | 51,340 | 25,836  |
+|  New subs. | 123 | 59 | 181 | 1 | 364 | 176  |
+|  Ind. mags. | 2,198 | 2,262 | 7,840 |  | 12,300 | 5,917  |
+|  Back-calls | 2,176 | 3,545 | 6,774 |  | 12,495 | 4,005  |
+|  No. back-call book studies (av.) | 30 | 65 | 103 |  | 198 | 112  |
+
+---
+
+<sup>**Page 114**</sup>
+
+[Open Page 114 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=114)
+
+Yearbook
+
+113
+
+|   | Special Pioneers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Average hours | 110.4 | 131.4 | 13.7 |  |  |   |
+|  Av. back-calls | 41.8 | 32.5 | 2.9 |  |  |   |
+|  Av. book studies | 6.8 | 7.1 | 0.5 |  |  |   |
+
+Peak number of publishers for 1945 service year 253
+
+We rejoice over the victories the Lord's people have gained in other lands, and the trials and tribulations they have undergone make ours seem very trivial. We thank Jehovah daily that we are permitted to be associated with his organization and have a share in bringing the truth of the glorious gospel to others. Be assured that the Lord's people in this land were busy 'discipling' those who had hearing ears in this land of superstition and fear. It is our desire to keep busy, come what may, doing our assigned duty in harmony with the organization and to the honor of Jehovah's name.
+
+### CUBA
+
+Jehovah's witnesses in this land are letting their light shine. The people are literally hungry for the word of truth, and many of this nation are now 'glad with his people'. In the service year of 1944 a new peak of publishers was reached in August, namely, 1,260; but in 1945, in the same month, the number went up to 1,894 Kingdom announcers participating in Kingdom service. Those heeding the message carried by Jehovah's witnesses are certainly 'glad'. The average number of publishers for the entire year was 1,533. Fifteen new companies were organized; the public meeting campaign got off to a good start; and the course in Theocratic ministry is greatly appreciated by the ministers in Cuba. Everything that can be used to further the spreading of the gospel is a joy to these faithful workers in the 'Pearl of the Antilles'.
+
+The Branch servant's report emphasizes the tempo of the Cuban work.
+
+The organized company book-study work has much to do with the great increase in publishers. The results show that the companies that have organized the company book-study work in accordance with the Society's instructions have been richly blessed of the Lord. The majority of the com-
+
+---
+
+<sup>**Page 115**</sup>
+
+[Open Page 115 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=115)
+
+114
+
+_Yearbook_
+
+panies that have been established during the past year have been begun as a result of the organized book-study work. About a year and a half ago, when the eight company book studies were organized in the Havana company, one of the study groups had five publishers reporting; today this group is an organized company with 65 publishers reporting. In another instance, one of the companies established eight company book studies; and just recently three of these book studies were organized into companies.
+
+The brethren living in the rurals have many hindrances, such as muddy roads, lack of transportation, mountains, and great distances to their territory, with which to contend. But in spite of these many hindrances, the brethren continue on faithfully in the Kingdom work. One of the rural companies having the above conditions to contend with has 120 publishers reporting regularly, with a monthly average of 19 hours. One of the publishers in this company has a territory 42 miles from his home. The territory near his home is taken by another publisher. It takes him a day to travel to his territory and a day to return. All of his traveling is done on foot. While in the territory he stops for the night with the people of good-will. It takes him about 8 or more days of steady work to cover his territory. Sometimes he puts in as much as 12 to 13 hours a day in the service.
+
+Another hindrance that some of the brethren have to contend with is the lack of an education. This lack of an education, however, does not prevent the brethren from taking an active part in all features of the work. One of the publishers, a sister, can neither read nor write, and yet she conducts six book studies weekly. Furthermore, she has to walk five miles to her territory. She also has her five children to take care of. When she meets a family of good-will she arranges for a book study. She lets them do all the reading, and she directs the study, giving the explanation when necessary as well as explaining the Scripture texts.
+
+### Special Pioneer Publishers
+
+At the present there are 35 special pioneers working in Cuba. Nine of these are native Cuban brethren; the other 26 are Watchtower College graduates. A very good work has been accomplished by these brethren. Many of the companies have been organized and aided by the special pioneers.
+
+A few months ago, thirteen more college graduates were sent into Cuba. Seven of these were sent into the fourth-largest city, Camaguey, to work there with a native special pioneer and a small company. In the few short months that these brethren have been in Camaguey the company
+
+---
+
+<sup>**Page 116**</sup>
+
+[Open Page 116 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=116)
+
+Yearbook
+
+115
+
+has doubled in publishers. These brethren are now conducting 203 book studies weekly in a territory where a few months ago only 2 book studies were being conducted. These brethren claim that their problem is not how to get studies, but how to keep from getting so many that they won't be able to engage in the other features of the work. The other six graduates were sent into Santa Clara, the sixth-largest city. These brethren have also aided some new ones in becoming publishers.
+
+There has been a very good increase in general pioneers during the past year. A peak of 121 pioneers was reached in August. This is an increase of 36 over last year's peak. During the year these brethren averaged 133.4 hours, the highest yet. Quite a few companies were organized by these brethren during the year. One pioneer sister recently organized a new company in an isolated territory that she had been working by herself for two years. Today this company has 32 publishers. In another instance about eight months ago one of the pioneers started to work an isolated territory that has never been worked. A few months ago he organized a company there, and now 18 publishers are reporting in this new company.
+
+### Servants to the Brethren
+
+There are two brethren serving as servants to the brethren. One is a native Cuban, the other is an American, a graduate of the Watchtower Bible College of Gilead. The longer visits by the servants to the brethren have been of great benefit to the brethren. These extended visits have given them more time to thoroughly explain to the servants every feature of the expanding work, as well as personally aid the publishers in all features of the work. The companies that have applied the counsel given to them by the servants to the brethren have become better organized and have prospered. Before the servant to the brethren's visit one company had been averaging between 75 to 85 publishers monthly. After his visit they jumped to 122 publishers. Another company went from 65 to 90 publishers. Another went from 80 to 105. These are just a few examples showing the benefit derived by the companies after the visit of the servant to the brethren. Truly, as Jehovah prophesied through the prophet Isaiah, 'for brass he would bring gold' with his organization and 'for iron he would bring silver'.
+
+### Brother Knorr's Visit
+
+For the second successive year the brethren in Cuba were blessed by the Lord with a visit by Brother Knorr. Early in February the Society's president, accompanied by a com-
+
+---
+
+<sup>**Page 117**</sup>
+
+[Open Page 117 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=117)
+
+116
+
+Yearbook
+
+panion director of the Society, arrived in Cuba for a series of three conventions, held in different sections of the country. The first convention that was served by Brother Knorr was at the eastern end of the island, in the city of Santiago de Cuba. There an attendance of 456 heard the president deliver the talk "One World, One Government". The next convention visited by Brother Knorr was at Cienfuegos. This convention served the brethren living in the center portion of the island. A very enthusiastic crowd of 800 heard the public talk in Cienfuegos. Over 250 of these were good-will interest. The next and last convention was held in Havana, the scene of last year's general assembly. In Havana an overflow crowd of 1,034 packed out two halls to hear Brother Knorr deliver the public lecture.
+
+The new book "The Truth Shall Make You Free" and the booklet Religion Reaps the Whirlwind, both in Spanish, were released by Brother Knorr at the three convention cities. This was a complete surprise, and the brethren "shook the house" with thunderous applause at their release. This was the first time that a Spanish book was ever released at a Cuban convention.
+
+These conventions and the rich spiritual food obtained thereat, as well as the visit of Brother Knorr, were a great source of joy and inspiration to the brethren. They had much to do with the increased activity in the field service.
+
+Field Service Report for Cuba, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- |
+|  Books | 5,671 | 18,437 | 15,944 | 40,052 | 22,979  |
+|  Booklets | 19,108 | 49,324 | 78,860 | 147,292 | 86,393  |
+|  Total | 24,779 | 67,761 | 94,804 | 187,344 | 109,372  |
+|  Pub's (mo. av.) | 19 | 90 | 1,424 | 1,533 | 954  |
+|  Hours | 40,080 | 145,523 | 287,915 | 473,518 | 362,377  |
+|  New subs. | 324 | 487 | 799 | 1,610 | 1,086  |
+|  Ind. mags. | 3,950 | 12,594 | 27,815 | 44,359 | 27,380  |
+|  Back-calls | 16,354 | 32,217 | 60,396 | 108,967 | 77,659  |
+|  No. back-call book studies (av.) | 288 | 532 | 705 | 1,525 | 1,250  |
+|  Average hours | 175.0 | 133.4 | 16.9 |  |   |
+|  Av. back-calls | 71.4 | 29.5 | 3.5 |  |   |
+|  Av. book studies | 15.1 | 5.8 | 0.5 |  |   |
+
+Companies in country 61
+Peak number of publishers for 1945 service year 1,894
+
+---
+
+<sup>**Page 118**</sup>
+
+[Open Page 118 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=118)
+
+_Yearbook_
+
+117
+
+# **Branch Home and Office**
+
+At the time of this writing, the Branch home and office had just been moved to larger quarters in the suburbs of Havana. Due to the great increase of the work during the past year it was necessary to obtain a larger building for the Branch.
+
+The Kingdom announcers here in Cuba appreciate the part they have in announcing that 'the kingdom of heaven is at hand'. They fully realize the grand privilege as well as the great responsibility they have as announcers of the Kingdom. They will continue to move shoulder to shoulder with their brethren in other parts of the world, ever moving forward and increasing their activities until all shall know that 'the kingdom of heaven is at hand' and that Jehovah is the True and Most High God.
+
+# **CZECHOSLOVAKIA**
+
+The Society's branch office in Prague has been closed since 1939. We were forced to dispose of the machinery, office supplies and other equipment before the Nazis moved in. Our brethren remained faithful and true to their covenant to God through all the years of war, which brought great trial, persecution and suffering. Many were sent away to concentration camps; some were killed. But now, to the joy of those remaining, many have returned alive to again preach the truth. Several letters have been received. Not too many details are contained therein, but sufficient to indicate that some brethren have returned to Prague, Czechoslovakia, from concentration camps, there to meet together again and carry on in discipling all nations.
+
+The report compiled by the Berne, Switzerland, office, from communications received, gives as much information about our brethren in Czechoslovakia as we have been able to gather up to the present time.
+
+At the beginning of the year 1939, as the Hitler-Nazis invaded our land, divided it up and began to introduce a rule of violence such as our country had never experienced, not even in the time of the crusades in the Middle Ages, cruel trials also came over the Lord's people here, especially in the former protectorate of Bohemia and Moravia.
+
+In the Prague Bethel there was still a large quantity of Czech literature, which the Gestapo on their first visit
+
+---
+
+<sup>**Page 119**</sup>
+
+[Open Page 119 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=119)
+
+118
+
+Yearbook
+
+passed over disdainfully with the remark: 'Give the Czechs what you want.' After several days they reconsidered the matter and wanted to carry this literature away too; but how great was their surprise and their wrath when they did not find one single booklet left! All had been taken good care of and were gradually distributed among the people of good-will.
+
+The hate and persecution increased, however, and especially from the year 1943 the demons and their visible accomplices poured out a full cup of bitterness for the devoted servants of God to drink. Domiciliary visits and arrests were daily occurrences. Brothers and sisters, young and old, were led by the sadistic Gestapo gangsters to their Nazi torture chambers, where by extortion they should betray their brethren in the faith. Brutal and barbarous Gestapos slogged and tortured our sisters, but many of them were very valiant and some sealed their devotion even with their death. Some brethren were brought before the People's Court and sentenced to long years of imprisonment, but most of them were dragged off to the concentration camps. The Gestapo agents did not conceal the fact that Jehovah's witnesses were their deadliest enemies. A good half of the brethren in Bohemia and Moravia were incarcerated in this manner, and Satan tried to shake their faith and to force them to disobedience against God and His laws. His efforts were futile, however.
+
+The faithful did not cease to be witnesses for Jehovah and His kingdom, and when they had no more literature to distribute, and were also cut off from the source of _The Watchtower_ in the last two years, they went with the Bible in their hands among the people and taught them of Jehovah's purpose. During these years, many people of good-will came to a knowledge of Jehovah God and recognized the way to deliverance, and in this most dangerous time resolved to take their stand on the side of The Theocracy, consecrating themselves to do the will of the Most High.
+
+Those who lived through the sufferings of the Nazi concentration camps have almost all returned home now. The enemy did not shake their faith and devotion, but through the adversities they only became more steadfast, and their ardent longing is that they may continue to be servants of the great Theocrat.
+
+While compiling the report, a letter was received from the Branch servant at Prague. He says the following:
+
+I must tell you that for many years I have not had so much joy as when I returned to Prague, and found there a great number of quite young brothers and sisters, who had
+
+---
+
+<sup>**Page 120**</sup>
+
+[Open Page 120 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=120)
+
+Yearbook
+
+119
+
+taken their stand without compromise on the side of righteousness during the time of the greatest danger, and who now joyfully receive us back as we return from the concentration camps and prisons. These young people of good-will were not only ready to suffer for the sake of the truth, but have in fact also suffered. A number of them languished in concentration camps too. Now we have almost all come home again and are determined to go on shoulder to shoulder, even as Jonadab once rode in the chariot with Jehu to see with him his work.
+
+On Sunday, the 17th of July, we assembled unhindered again in Prague for the first time for many years. Although not all the brethren had returned home by then, yet 85 brothers and sisters came together and our joy was overflowing. The keynote of the convention was: 'Praise ye the LORD: for it is good to sing praises unto our God; for it is pleasant; and praise is comely.' (Psalm 147:1) The directions to more intensively serve and praise our God Jehovah were received with enthusiasm from all those present. We could again after years also sing our songs together in praise to Jehovah, and all this caused a sparkling in the eyes of those who wait in determination and expectancy for the new things toward the accomplishment of which we are sure that the Lord will also grant us the privilege of being used. Many, among them men of maturity, could not keep back the tears; these were not tears of sorrow, but tears of joy and emotion for the goodness and grandeur of our God Jehovah. He has done great wonders for us which we shall never forget.
+
+I have also visited the brethren in other places in this country, and have found great joy everywhere. We are, however, failing nearer relations with you, dear brethren, but we hope that this cleft may soon be bridged over. Wouldn't it be at all possible to send us something?
+
+We have already registered the activities of the Society anew, and with the help of the Lord have taken up the service again.
+
+Heartfelt greetings to you all.
+
+### Slovakia
+
+Our brethren in Slovakia were not exposed to trials and suffering of this kind, for the 'arm of prey' of the Gestapo did not reach as far as this country. For this reason the companies of Jehovah's people in this land remained organized and, although they were often entirely without _The Watchtower_ and booklets, they went with the Scriptures in their hands from door to door and sought the 'other sheep' of the Lord. They often lent the people booklets to read, which were returned to them at the next visit. Their
+
+---
+
+<sup>**Page 121**</sup>
+
+[Open Page 121 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=121)
+
+120
+
+Yearbook
+
+efforts were not without success, for the companies grew to the joy of all sincere ones.
+
+Although the witness activity during the year under consideration in Czechoslovakia has been quite considerable, we have no exact reports to hand, for most of the brethren were scattered and thrown back upon their own resources. The companies have now been reorganized and the reports will be kept regularly in future.
+
+### DENMARK
+
+It is a joy to know that Jehovah, through his organization, has continually fed his people in Denmark and that the _Watchtower_ magazine reached them regularly. This has helped the brethren to carry on at unity in the service of Jehovah. Never before has the spirit of the Lord's people been better in this land; and never before has there been a keener appreciation of the real work of the hour. For such unanimity we give praise to the 'Commander to the peoples', who has been directing the affairs of his servants in the earth since his coming to the temple.
+
+Not only did this country come under the oppression of the Nazi heel, which affected all the people, but the clergymen, as usual, took occasion to try to dislodge Jehovah's witnesses completely. In this they failed miserably. Various periodicals were used by the religionists to hurl the accusation that Jehovah's witnesses hold very unacceptable political convictions; also that they are a general nuisance and a menace to the state. During these days of real trial to the people of the land, Jehovah's witnesses proved to be a real comfort; for they brought to the nation the truth from God's Word. The field service report for the service year 1945 bears out the sincerity of purpose of the Lord's people in Denmark, because of the good work done.
+
+At the very opening of the new service year, September 1-3, the brethren in Denmark traveled from all parts of the country to Copenhagen for an assembly. The Lord's rich blessing was upon their efforts. The public meeting was crowned with success; and all
+
+---
+
+<sup>**Page 122**</sup>
+
+[Open Page 122 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=122)
+
+Yearbook
+
+121
+
+Jehovah's witnesses attending the assembly sent their greetings to the brethren throughout the world. They expressed their determination to press on in the most glorious cause for which men have ever fought. It is their determination that, by Jehovah's grace, his name shall be glorified and the proclamation concerning the King and the Kingdom made in the territory allocated to them. The report from the Branch servant is most interesting.
+
+That which has strengthened us for the fight has been the food which Jehovah has given us through his organization. The constant reminders in the columns of _The Watchtower_, of the privileged position we occupy and the corresponding responsibility which is ours, have supported us in the way. Despite the fact that we were, from the standpoint of the world, cut off from our brethren, never did the enemy really succeed in completely cutting our lines of communication. Those who knew how we got the word in said nothing; and those who did not know (may their discretion be here recorded to their credit) never asked how. The main thing was, we got the food and made good use of it.
+
+Before the war the Norwegian brethren received the Danish _Watchtower_, and it was therefore but natural that we did our utmost during the war to help our beloved brethren in that country to receive the food they so much needed. A full description of the various routes and tactics to get them delivered in Norway is a tale in itself, but suffice it to say that we did what we could for our brethren up there and generally we succeeded. At the moment the situation has slightly improved and we have the pleasure of supplying our brethren in Norway with _The Watchtower_ in a normal way again; a good consignment of books has also been sent to give them a start. If and when the Norwegians get _The Watchtower_ in their own language, we have hundreds of people of good-will who can make good use of the Danish copies thus released. Our subscription list would certainly grow.
+
+#### Difficulties
+
+The war period brought with it, of course, its crop of difficulties. Restriction with regard to paper, electricity, transport and personal freedom of action was a very acceptable arrangement for the Devil. Our business was, by the help of the Lord, to see that this interfered as little as possible with the progress of the witness work. Twentieth-century miracles accounted for our paper supplies' being so good; our stocks always got through to the publishers;
+
+---
+
+<sup>**Page 123**</sup>
+
+[Open Page 123 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=123)
+
+122
+
+_Yearbook_
+
+and the effort of the Devil to shock us into remaining home failed in its purpose. It was prohibited to call on people and offer goods of any kind or personally take orders outside of one's home district. The penalty for breaking this law was a couple of years of bad board and lousy lodging in Germany. Not in any spirit of indifference or recklessness, but with trust in Jehovah's help to carry out our commission, we ignored the law and carried on our Biblical educational work.
+
+With so many soldiers in the country, halls and schools were requisitioned, and additionally public meetings were prohibited. It was, however, permitted to 'hold divine service'; and, being fully persuaded that if any service was according to the divine will, it was ours, we did not deem it a breach of the regulations to invite truth-seekers to our Biblical studies and lectures where it was possible for these to be held. That much good resulted from this work is proved by our figures.
+
+It was our custom to 'hold divine service', on as large a scale as circumstances permitted, once a year. This generally fell at the end of the service year, and among other things we discussed plans for the Society's new year. The Devil, desiring to draw us into a trap, caused a crisis in 1943 on the very day we had gathered together. A German military order, prohibiting more than five persons to stand together on the street, resulted in almost a thousand innocent persons' being shot. On that afternoon we were 1,354 publishers peacefully gathered together and saw no reason for letting this German order interfere with our program. The hall where these meetings were held was situated just opposite one of the staff headquarters of the German military authorities and the yard was used as a parking place for their cars. Such discipline and patience was manifest by the servants of Jehovah that it was possible for us to leave the hall two and three at a time, thus causing no disturbance, and no casualties resulted. One of the results of this crisis was that the Germans subsequently, from time to time, forbade all Danes to go out after dark, thus limiting our possibilities for service.
+
+The Danes are a nation of cyclists, and this velocipede is therefore to us what the car is to the Americans. Whereas, however, a car is not of much use without gasoline, a cycle can go as long as one has muscles. One thing, however, both conveyances have in common: they need tires; and it is here we have been badly hit during the war. To see some of the contrivances that people have instead of tires would make one laugh in better days.
+
+As our country is relatively small, we have endeavored to reach our rural districts despite cycle difficulties, so that
+
+---
+
+<sup>**Page 124**</sup>
+
+[Open Page 124 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=124)
+
+Yearbook
+
+123
+
+no part of our territory should be neglected. This has by no means been easy, but the message has been proclaimed and, as one would expect, people have taken their stand on the side of Jehovah.
+
+By co-operation on the part of all the Lord's people here, we have managed up until now to keep the pioneers rolling. At the moment we are in a rather difficult situation, but we hope the near future will bring a solution.
+
+### Brethren from Concentration Camps
+
+It has been our privilege to be the instruments of Jehovah in helping some of the faithful brethren who have been in German concentration camps. A small company of these brethren, as previously reported to you, were forced to land on one of the Danish islands, and so efficient is the Theocratic organization that within a few hours Danish brethren were on the spot with food. Most of these brethren from camp were sick, and all were needing care and nourishment. They had been from two to nine years in prison and concentration camp. To get permission to take care of these brethren was not easy, as the military regulations prescribe that Germans shall be confined to barracks and schools. The Lord, however, knows His own and cares for them. After the Society had presented the facts to the responsible American officer at the Supreme Headquarters Allied Expeditionary Force (Danish Mission), and the Danish Ministry for Social Affairs had supported the Society's request, an exception was made in the case of these brethren and they were allowed to go free provided the Society would be responsible for them until such times as they could be repatriated.
+
+These brethren have been housed in the Society's property on the island of Langeland and all expenses in connection with their transport, clothing and feeding have been willingly borne by the Danish friends who esteem it an honor thus to do good unto the Lord's little ones. By reason of the fact that some Danish brethren have financed a nursery-garden in the neighborhood and put it at the disposal of the Society, we have been able to provide these sick brethren with vegetables and milk that they so much need. Gradually they are being brought back to normal health and strength, and all look forward to the time when they will be repatriated and privileged to take up the work in their respective languages (German, Polish, Russian, Lettish, and Lithuanian). A Russian girl who received the truth in concentration camp has already gone back, and it is expected that soon some of the others will leave, to carry the message wherever they come.
+
+---
+
+<sup>**Page 125**</sup>
+
+[Open Page 125 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=125)
+
+124
+
+Yearbook
+
+# Field Service Report for Denmark, 1945
+
+|   | Special Pio- neers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 2,057 | 19,166 | 53,774 | 774 | 75,771 | 38,673  |
+|  Booklets | 8,314 | 82,779 | 429,650 | 631 | 521,374 | 455,136  |
+|  Total | 10,371 | 101,945 | 483,424 | 1,405 | 597,145 | 493,809  |
+|  Pub's (mo. av.) | 5 | 38 | 1,637 |  | 1,680 | 1,556  |
+|  Hours | 10,123 | 53,446 | 293,327 |  | 356,906 | 326,578  |
+|  New subs. | 364 | 1,822 | 9,716 | 38 | 11,940 | 9,053  |
+|  Ind. mags. | 5,630 | 40,173 | 170,235 | 2,046 | 218,084 | 358,191  |
+|  Back-calls | 3,717 | 13,310 | 88,271 |  | 105,298 | 83,130  |
+|  Av. no. back-call book studies | 22 | 73 | 813 |  | 908 | 544  |
+|  Average hours | 145.2 | 110.8 | 10.0 |  |  |   |
+|  Av. back-calls | 57.3 | 27.7 | 3.0 |  |  |   |
+|  Av. book studies | 3.9 | 1.8 | 0.3 |  |  |   |
+
+Peak number of publishers for 1945 service year 2,620
+
+The spirit of Jehovah's servants in this land is good and, as the keynote of the convention was more hours in Theocratic service, we confidently expect improved results in the future; especially as we now have light on the streets and in the houses and people are more ready to open their doors than they were when they could risk getting shot.
+
+It has been a grand year and all praise and honor shall be given to Jehovah who has used so feeble a people to do great things in his name.
+
+### FINLAND
+
+This country, with its population of about 3,800,000 people, is again hearing the glad message of the Kingdom openly. During the past years of war the truth was suppressed in Finland. Jehovah's witnesses continued, however, to preach the gospel and constantly looked forward to the time when a greater witness might be given. When the Nazi rule collapsed and an armistice was concluded between Finland and Russia, then a great change took place. The servants of God were again free to go forth at will and preach the good news. Many brethren that had been taken
+
+---
+
+<sup>**Page 126**</sup>
+
+[Open Page 126 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=126)
+
+Yearbook
+
+125
+
+away to prisons were released, and soon there began the great reconstruction work; and it is still going on. Literature is being printed locally. However, during the Nazi reign all publications of the Society were confiscated. Now, to the great joy of the brethren, the authorities are returning the seized literature and the brethren once again have opportunity of using it.
+
+Here as in all countries there exists a great field for pioneers. There is much work yet to be done; and our brethren in Finland are anxious to do it, getting at it with real zeal. The report of the Branch servant gives us some interesting side lights as to what took place in Finland during the service year 1945.
+
+Two servants to the brethren have started in the field and they have done very good work. The majority of the companies in Finland are small and they need much help, especially where so many of them are comprised of new publishers.
+
+Much joy was expressed by the brethren when we began publishing the two papers again, _God's Kingdom_ (the Finnish title for _The Watchtower_) and _Consolation_. During the year, however, the title _God's Kingdom_ was dropped and there was adopted the Finnish equivalent of the English title, _The Watchtower_. _The Watchtower_ had a distribution of over 3,000 before the severe persecution started, but finally the ban brought it to a close. Now there are 12,000 subscribers for the magazine; but it is necessary to print 20,000 copies of each issue, because of the distributing done by the brethren throughout the territory.
+
+_Consolation_ magazine had a subscription list of about 10,000 before the war, but now it is up to 32,000. Due to the demand for distributors' copies, the edition printed amounts to 50,000.
+
+The religionists were quite pleased with the closing down of our magazines, and they thought the work was done. Now they are quite disturbed to see these magazines back on the streets and continually going into the homes of the people in greater numbers than ever before. As far as the street magazine witnessing is concerned, there were many obstacles in the way and it seemed almost hopeless to try to carry on the work in Finland the same as in other countries. The work went forward, nevertheless. Sometimes there was a little disturbance; but the police have helped our brethren and many times they had to tell the disturbers to keep moving and get out of the way and let the good work go on.
+
+---
+
+<sup>**Page 127**</sup>
+
+[Open Page 127 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=127)
+
+126
+
+Yearbook
+
+### Printing
+
+When we started our own printing the editions of publications, books and booklets, were not very large. Most of the literature was received from Magdeburg, Berne and Brooklyn in former years. Now it is impossible to get anything. If it were not for the fact that we had our own printery, the work in Finland would not be going along the way it is now. During the year it was possible to print more than 650,000 copies of magazines, over 1,000,000 booklets, 24,000 books, and other advertising material. The total number of pieces printed by the local plant was 2,530,230. Compared with former years, this is excellent, because previously we did from 800,000 to 900,000 per year.
+
+### A Public Lecture
+
+Not many public lectures have been arranged for up to the present time, but there was one outstanding lecture held that should be mentioned. It was the one of April 29, at the Stadium in Helsinki, which Stadium was especially constructed for the Olympic games. To get a reasonably-sized crowd into this Stadium would mean the doing of a lot of advertising; and this the brethren did very well. Information marching was introduced; the brethren traveled throughout the city with placards on their bicycles and megaphones in their hands, calling out the information about the lecture. This caused considerable excitement. One of the newspapers had this to say about the advertising:
+
+'A tremendous advertising had preceded the meeting. On all greatest and smallest fences in the city, and in every window, there were advertisements placed. So also in all villages and communities for several tens of miles outside the city the advertising could be seen. A sound-car drove around on the streets of the city and made propaganda. 'The faithful ones' bore in front and on their backs placards with propaganda for the meeting and the teaching, old bent women and men, young and middle-aged men and women. What a zeal! Boys and other people of all ages sold their magazines as eagerly as if they were quick sellers of extra leaflets with latest news from the Eastern and Western fronts. They cried and offered. What a zeal!' Concluding, the newspaper says: 'What a systematic arrangement! What an organization! Why can't we Christians go to arrange like vast meetings?'
+
+It is easily understood why these so-called 'Christian' organizations cannot put on a meeting like that and advertise it the way Jehovah's witnesses do. Their people would refuse to do work such as Jehovah's witnesses carry on, unless they were heavily paid for it. Jehovah's witnesses do it freely and enjoy it. The Lord rewarded their
+
+---
+
+<sup>**Page 128**</sup>
+
+[Open Page 128 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=128)
+
+Yearbook
+
+127
+
+efforts, because the finest meeting ever held in Helsinki took place on April 29. There were 12,000 strangers in attendance at the meeting to hear the lecture "The Meek Inherit the Earth". Much literature was distributed. At the same time, there were seventeen other places throughout the country where meetings were being held. The grand total in attendance at these public meetings was upward of 16,000.
+
+For many years the brethren had tried to broadcast the truth over the radio; but it was not until this grand lecture, "The Meek Inherit the Earth," was to be delivered that the radio company of Finland accepted a broadcast. It was a wonderful occasion, because all the radio stations in Finland except two took the lecture in its completeness, and thousands of persons heard this comforting talk. Jehovah God knows how to maneuver matters, all to his praise and honor. Since that time the people throughout the land have been very receptive and anxious to hear what Jehovah's witnesses have to say.
+
+It can easily be seen that the people are anxious to hear, because of the large quantities of literature distributed. Books and booklets placed in the hands of the people totaled 561,137; and, in addition, magazines were distributed to the amount of 388,118. On an average each month there were 1,388 publishers in the field, and a peak of 1,632 was reached. The back-call work is going on very well, the brethren having made 69,481 back-calls and conducted 473 book studies. There is much room for improvement with regard to the book studies, but this work is just being organized.
+
+The general organization throughout Finland has been more and more stabilized, and the brethren are filled with zeal and delight to perform the Lord's will.
+
+### FRANCE
+
+This nation has been the battle ground for two world wars within a third of a century. Thousands of people lost their lives in its most recent struggle, and many lost their homes. The enemy robbed the land of its wealth, destroyed its roads and railroads, and disrupted its communication facilities. Now that liberation has come, this does not mean plenty of food and clothing and adequate shelter; but all such must be restored, and the process is slow. These conditions affect the Lord's servants the same as they do all other
+
+---
+
+<sup>**Page 129**</sup>
+
+[Open Page 129 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=129)
+
+128
+
+Yearbook
+
+people; but God's servants have a hope and remain steadfast in their faith. They have confidence in their God and his purpose to bring about a New World, not something that is merely a patched-up relic of the old, dying organization that is going out for good.
+
+Our brethren in France have suffered, but with all their suffering they have kept their eye single to the doing of Jehovah's will. Not upon the earthly, transitory things were they stayed; for they have kept their eye upon those things that are unseen and eternal, Jehovah God, his King and the Kingdom. Regarding the Kingdom they preached incessantly through the years of war. The Lord blessed their efforts, because now it is seen that many of that nation are 'glad' with his faithful servants in the earth. The number of publishers for the Kingdom today is far greater than that before the war; the Good Shepherd has gathered his 'other sheep'. A peak of 1,713 publishers was reached; and approximately 6,000 persons are regularly associated with the company organizations, studying _The Watchtower_. Never before has such interest been shown in the truth as during the past few years in the country of France. The people cannot 'be glad' with the old conditions or because of any prospects the world holds forth for them; the nations can only 'be glad . . . with his people'. With his people they can have the joy of the Lord and can put their faith in something unchangeable, namely, the Word of God and his kingdom.
+
+The servant's report on conditions in France and the work done there is very interesting.
+
+For us the outstanding event of this very year was the resuming of the relations with the central office of the Lord's organization in Brooklyn. Immediately after the Nazi-foe was driven out of this country and the postal relations were re-established, we sent a little message to Brooklyn, informing them that we are all well and that the Father's work in France is going on. Great was our joy when we got the first letter from the Society's president, our beloved brother Knorr. His words were for us stimulating and encouraging.
+
+---
+
+<sup>**Page 130**</sup>
+
+[Open Page 130 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=130)
+
+Yearbook
+
+129
+
+Our hearts rejoiced and delighted when we saw first how the work was advancing on earth. We were amazed on hearing about the new institutions: Gilead, the Theocratic college training, about the manner of the work of proclamation and the instruction of the 'great multitude'. We saw that the Lord is good, that he is leading and guiding his people, and that he is abundantly blessing the same. We realized that we are over here in the backrear and that we may have much to learn and a big job is waiting for us. The effect it produced on us was a joyful zeal, and, by the Lord's grace and help, we shall catch up on all we are yet missing.
+
+The conditions in our situation in this country don't allow us to apply also over here the general manner of working as it is applied elsewhere. We work from house to house with the Bible; some days later we visit all the people who show some interest with literature. We are continuing to make back-calls over here, and when we find people of good-will, we start a book study in their home. This method doesn't allow us to place many books and booklets. But it permits us to carefully manage with the stock of literature we possess, to locate the people of good-will and to help them to find Jehovah and to learn about his gracious dispositions, in order that they associate in his work. This year's number of those who by water-immersion symbolized to do Jehovah's will with all their might was 516.
+
+Later on when the postal communications with the different parts of the country had been resumed again, the organization instructions were mailed to the different groups. In the month of June last the railway communications were so far re-established that we could arrange traveling itineraries, to visit the different groups, to aid and reorganize them. In the whole country there exist 90 organized groups, with about 6,000 regular _Watchtower_ study attendants.
+
+### 'Watchtower'
+
+For the conducting of the studies the Lord has permitted us to make up the necessary Bible-study copies. In French we are printing 2,800 copies, in Polish 1,200 copies, and in German 500 copies. In French we got printed 10,000 copies of the book _Children_. It was then followed by 50,000 copies in French also of '_The Kingdom of God Is Nigh_'. Next month we expect to get 5,000 copies of _Children_ in Polish, and 20,000 copies of '_The Kingdom of God Is Nigh_' in the same language.
+
+In French we have _One World, One Government_ in preparation; also both books '_The Truth Shall Make You Free_' and '_The Kingdom Is at Hand_'.
+
+---
+
+<sup>**Page 131**</sup>
+
+[Open Page 131 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=131)
+
+130
+
+Yearbook
+
+Field Service Report for France, 1945
+
+|   | 1945 Companies | 1944 Companies  |
+| --- | --- | --- |
+|  Books | 7,705 | 5,736  |
+|  Booklets | 46,982 | 17,810  |
+|  Total | 54,687 | 23,546  |
+|  Publishers (mo. av.) | 1,335 | 850  |
+|  Hours | 116,795 | 65,120  |
+|  Back-calls | 23,179 | 11,616  |
+|  Book studies | 803 | 648  |
+|  Companies in country | 90 |   |
+|  Peak number of publishers for 1945 service year | 1,713 |   |
+
+### Alsace
+
+August last we spent 12 days in Alsace to visit the different groups over there. During the occupation by the Nazis, Alsace was considered as a German country and was treated by the Nazis accordingly. Our brethren had to endure the same persecutions and evils as in Germany. Imprisonment, concentration camps and deportation to the Russian boundaries far away constituted the punishment for their faithfulness toward Jehovah and his kingdom. All of them did persevere nonetheless in their faithfulness, some even unto death. The faithful who fell not into the hands of the Gestapo continued, too, to remain steadfast in their confidence to the Lord. These aided the friends and were zealous to bring the message to the people of good-will and to help them to find a refuge in the Kingdom. During the nighttime, The Watchtower was typed and manifolded in the basements and sewers. We had much pleasure in their company and we could help them in view of their reorganization and in order to restart their activity in accordance with us. In Mulhouse we were assembled 140 in a hall, and in Strasbourg 155. After the address and the exposition of the service, all testified and took part, i.e., manifested their will to continue and persevere faithfully in their attachment to the Kingdom and to serve it wholeheartedly.
+
+### Opposition
+
+In the year 1942 we got a message from Brother Rutherford which has been a great help to us. He said: "If we meet difficulties in a country, the faithful brethren of this country will always find, by the Lord's grace, ways and means to continue the work in that land with the means the Lord still gives them." We have arranged our working method in accordance and have pursued the work.
+
+---
+
+<sup>**Page 132**</sup>
+
+[Open Page 132 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=132)
+
+_Yearbook_
+
+131
+
+A Roman Catholic clergyman had preached against us in a certain locality and incited the Gendarmerie (mounted police) to take action against 4 sisters working in that village. They were arrested and took the opportunity to give a witness of the hope they have to the captain of the said police. This gentleman was very attentive, and finally he said: 'This message is too beautiful; the people of this town by whom you have been persecuted and denounced are not worthy to hear the same. Go over to other places in the neighborhood.' So did the sisters, and they could find there 17 people of good-will.
+
+All we joyfully hope that the Lord will permit that you, dear brother Knorr, may be able to come over here in this very autumn and spend a visit to us. All the brethren here in France will bid you a hearty welcome. We are looking up to the Lord that he may give us the grace and the forces and that he may make us fit for his service in his Kingdom, till the day will be here when he wipes out his enemies and his victorious reign is shining all over the whole earth.
+
+The Bethel family have plenty to do over here and they have much pleasure. They all feel themselves linked in heart with you and all that are with you. They send you and all over there their best wishes and greetings.
+
+### GERMANY
+
+Much has been said about the atrocities committed against our faithful brethren in Germany. The uncompromising stand of Jehovah's witnesses in this land, as a body, rises like a towering column of unshakable faithfulness, blamelessness and loyalty toward their God, Jehovah. They have proved the Devil a liar. Jehovah God can place on earth individuals who will maintain their integrity through the greatest of difficulty and adversity, experiencing persecution and torture of the extreme kind. Yes, there are people on this earth that have taken the name of the Lord—and not in vain! They have sung loud and long the praises of their Maker. Jehovah's witnesses in Germany, and throughout the entire world, have stood shoulder to shoulder piling up a heap of witness that the Devil and his entire organization can never remove. The heap of witness is to Jehovah's praise and honor.
+
+---
+
+<sup>**Page 133**</sup>
+
+[Open Page 133 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=133)
+
+132
+
+Yearbook
+
+It has been reported that the Society's property in Magdeburg, the location of the branch office in Germany, is still in fair condition. The main buildings remain; but some have been damaged by shellfire. Many brethren are meeting together, however, in Magdeburg. The last report shows a company of more than 130 studying _The Watchtower_ regularly and going forth to comfort those that mourn. Companies are in like manner gathering all over Germany, and the report which follows shows again that many of the German people are now 'glad . . . with his people', Jehovah's witnesses. Only a few items can be set out here. _The Watchtower_ magazine and _Consolation_ have published detailed stories about the atrocities committed against God's servants for their faithfulness.
+
+The Society's office in Berne left no ways untried in their endeavors to provide our beloved brethren in Germany with the food from the Lord's temple, and it was always a great joy for them to learn that the food which they had been privileged to send to their brethren had accomplished that whereunto it had been sent. Jehovah gave success, and to Him be all thanks therefor.
+
+With the overthrow of the Nazi rule and the opening of the gates of the concentration camps, reports, letters and telegrams reached us for a time almost daily, from brothers and sisters who had been held in the camps. Space is lacking to quote them all here. We would just like to quote one passage from a letter which characterizes the attitude of the brethren now liberated:
+
+' . . . I shall not write today about the cruel, inhuman and barbarous chicanery to which we have been exposed here; I shall be able to do that later at home. But rather I shall testify to the steadfastness of the brothers and sisters in this camp. We remained unflinching in our immovable faith and confidence in Jehovah, and through the long years of hard testing only became still more resolute. Today, standing before the open camp gate, we declare our readiness to further carry on the fight for the truth and the vindication of the name of Jehovah the great Theocrat, to the final victory. We rejoice in the opportunity of a further work, and cry aloud with the psalmist: 'Some trust in chariots, and some in horses: but we will remember \[praise or magnify, _Elberfelder_ Bible] the name of the Lord our God. They are brought down and fallen: but we are risen, and stand upright.'—Ps. 20: 7, 8.'
+
+---
+
+<sup>**Page 134**</sup>
+
+[Open Page 134 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=134)
+
+Yearbook
+
+133
+
+Neither this letter nor any other report contains a trace of complaint, regret or disappointment, but everywhere we find expressions of gratitude for the privilege to 'fill up that which is behind of the afflictions of Christ'. These brothers and sisters express a measure of joy, strength and virility never before experienced by them, for they have now learned even better what it means that 'the joy of Jehovah is our strength' and 'the name of Jehovah is a strong tower'. Not the sufferings endured are put to the fore, as is the case of sentimental religionists, but what anxiously occupies them is how they can most speedily and most effectively engage again in the witness work. This fact can be seen in the wonderful reports which we have received from brethren who to the number of 230 were led out of their camp, and after a fatiguing trek of several days arrived eventually in a town of Mecklenburg. Hardly had they settled down in the barracks placed at their disposal when they set about giving the witness by means of literature which they had, with good foresight, brought along with them, and which they could now mimeograph. One of these reports says:
+
+'While giving the witness from house to house, we have had experiences which it is hard to describe in words. The people received us in such a friendly manner; insisted that we sit down, left everything else and listened reverently to what we had to say. The first family I called upon promptly gave me reichsmarks 5, for a booklet. I could scarcely believe my eyes at first, but this was no exception, for I often got as much as this. It even happened that people gave 20 marks or more for a booklet and provided us with food. Yes, we found people who formerly held higher positions in the party, but not having belonged to the S.S. were not arrested. In astonishment they asked how it was possible for us to already have taken up our work again, and above all were surprised that we should have literature. 'Wherever did you get these from?' After we had drawn their attention to the wonderful acts of liberation accomplished by Jehovah, and the work which the Lord was now doing, they said: 'Yes, yes, we know that we have done wrong, we see it, and we really want to show sympathy to your movement now and examine your literature, for we see that behind you there must be a power far greater than that which inspired the work of the Führer.' We could relate many more wonderful experiences, confirming that the hunger for spiritual food in Germany is now excessively acute. Many people recognize that God has been with us, and they openly take sides for us.'
+
+From another letter we take the following:
+
+'Our quarters in these barracks are like an anthill: there is a ceaseless going to and fro. We have naturally
+
+---
+
+<sup>**Page 135**</sup>
+
+[Open Page 135 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=135)
+
+134
+
+Yearbook
+
+many, many wonderful things to tell you, but we cannot possibly write it all down now, and so we just report the more essential things.
+
+'When after a never-to-be-forgotten hard, but very blessed march, we arrived here in Schwerin, the Lord gave us within a few days all the means we needed to revive His work in this and surrounding parts. Here a few things by way of allusion: It pleased Jehovah to give us the necessary typewriters and duplicating machines, and so we could mimeograph the _Watchtower_ articles, several copies of which we still had. The Lord moves indeed in a mysterious way. But we really got everything that was needed for the service. Stencils, paper and ink. Brother K. F—, whom you know well, has to date duplicated 38 different articles in 13,000 copies, the pages totaling about 183,000, and the stencils required about 600.
+
+'The city of Schwerin has already been worked through according to the former method of working and today we undertook the second overland excursion. Last Sunday and again today we carried 50 brethren each on two carts at our disposal into the country, so as to reach also the outlying little villages with the message of truth. We were often asked in surprise: 'How did you manage to organize this all again, and where did you get the literature from?' (Our duplicated copies!) We could relate interesting experiences to you for hours. Now it is quite different to work than before 1933, or during the period of the Nazi rule till we were arrested. Most people make their decision upon our first visit. The 'dividing' proceeds now very quickly. One thing will also interest you, namely, those persons whose hearts are touched at hearing the message of truth quickly open their purses. We received reichsmarks 1, 5, 10, 20, 50 and 100 for one copy, and in one instance even reichsmarks 1,000.
+
+'Whether the amount is small or great, in every case the brethren tell the donors that the money is not used for our personal needs, but that it is spent exclusively for the free proclamation of the glad message of the establishment of the Theocratic kingdom of Jehovah and Christ Jesus.
+
+'Sometimes the people whom we visit exclaim with joy: 'At last one of you has come; how long I have been waiting for a witness of Jehovah!' There are sometimes thrilling visits with people of good-will, but, of course, the 'goats' are not lacking either, and they turn us off coldly and scoffingly. The Catholic chaplain has also warned his 'sheep' against our activity. These men would probably have liked to see us all exterminated by the Nazis, for now they will more than ever be unmasked by Jehovah's witnesses . . .'
+
+The work has been revived not only in one place in Germany, but even before this connections could be re-
+
+---
+
+<sup>**Page 136**</sup>
+
+[Open Page 136 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=136)
+
+Yearbook
+
+135
+
+established with the brethren in southern Germany, from where we obtained news that a printing plant is already printing _The Watchtower_, _Consolation_, and booklets. Couriers transmit the instructions to the companies and many of the brethren who have been in the camps declare that they have no interest in professional work, but that they impatiently await the time when there will be enough literature and opportunity, of entering fully the pioneer service and of devoting all their strength to the Lord's work.
+
+Here we think of the words in one of the latest _Watchtower_ articles, entitled 'Organized for Final Work': 'According to all indications of Bible prophecy, a tremendous earth-wide work confronts these consecrated people of Jehovah God, and that in the face of the greatest difficulties and antagonism, Jehovah's witnesses stand on the brink of a grand opportunity. It brings with it a great responsibility; and therefore let them not fail of the opportunity.'
+
+Although it is stated in this report that the brethren in Germany do not put their suffering to the fore, yet we consider it just and proper to quote here some testimonies regarding the sufferings of our beloved brothers and sisters in Germany, testimonies from outsiders who were in the camps with them, and who were eyewitnesses of the tortures which were inflicted upon our brethren. One such testimony we received from Miss Geneviève de Gaulle, niece of General de Gaulle, head of the French government. Miss de Gaulle was also interned in the Womens' Concentration Camp Ravensbruck. After her liberation she gave a number of lectures in Swiss cities. For instance, in the House of Art in Zürich, before an audience of 2,000, she described her experiences, saying among other things:
+
+'German Bible Students were the first prisoners here: increasing ever in number, these imprisoned women drained marshes, leveled the dunes, and built barracks and walls . . .'
+
+The _Neuer Zürcher Zeitung_ of June 27, 1945, published a resumé of her speech.
+
+We then wrote a letter to Miss de Gaulle requesting an interview, or a written statement concerning her impressions in association with our sisters. Miss de Gaulle replied in the following letter:
+
+'Gentlemen:
+
+'I am very glad to be able to convey to you my testimony regarding the Bible Students whom I met in the Ravensbruck \[Women's] camp.
+
+'Indeed, I have true admiration for them. They belonged to various nationalities: German, Polish, Russian and Czech, and have endured very great sufferings for their beliefs.
+
+---
+
+<sup>**Page 137**</sup>
+
+[Open Page 137 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=137)
+
+136
+
+Yearbook
+
+'The first arrests began ten years ago, and the majority of those who had been brought into the camp at that time died from the bad treatment inflicted upon them, or were executed.
+
+'I knew, however, some survivors of that time and other prisoners who had arrived more recently; all of them showed very great courage and their attitude commanded eventually even the respect of the S.S. They could have been immediately freed if they had renounced their faith. But, on the contrary, they did not cease resistance, even succeeding in introducing books and tracts into the camp, which writings caused several among them to be hanged.
+
+'In my block I knew three Bible Students of Czech nationality fairly well. As a protest they refused several times, together with other members of their faith, to go to the roll call. I was present myself at very painful scenes where I saw them beaten and bitten by the dogs without their renouncing their resolutions.
+
+'Moreover, in faithfulness to their belief, the majority of them always refused to participate in war industries, for which attitude they suffered maltreatment and even death.
+
+'I regret being unable to give you all these details personally as you request, because I am at present really obliged to stay for a while in the mountains for my health; I hope that this information may suffice, however, and is what you desire to know.
+
+'Assuring you, gentlemen, of my best wishes, I remain,
+
+(Signed) GENEVIÈVE DE GAULLE.'
+
+Upon receipt of this wonderful testimony, we asked her if she would agree to our publishing same in our periodical. She answered as follows:
+
+'Gentlemen:
+
+'All the information I have communicated to you regarding the Bible Students in the Women's Camp in Ravensbruck is at your entire disposal to publish. I am only too happy to be able to render this testimony to women whose courage I have not ceased to admire.
+
+'I am greatly interested in the beautiful book which you have sent me regarding the religious persecutions in Germany.
+
+'I thank you sincerely for same, and ask you, gentlemen, to be assured of my best sentiments.
+
+(Signed) 'G. DE GAULLE.'
+
+#### More About Ravensbruck
+
+One of the most outstanding attempts on the part of the wicked organization of the Devil to destroy Jehovah's wit-
+
+---
+
+<sup>**Page 138**</sup>
+
+[Open Page 138 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=138)
+
+Yearbook
+
+137
+
+nesses points to the German theater, a spectacle to men and angels. The wickedness parallels that of the Catholic Inquisition. The Roman Catholic Hierarchy supported the German government in all of its moves to destroy that which was opposed to the Nazi form of worship. The concordat made between the Vatican and the German Third Reich clearly discloses that the bishops and their priests did everything to protect and uphold the German government and would ward off all evils against it.
+
+In 1933, when Hitler took his power the first thing he thought to be warded off was the organization of Jehovah's witnesses; and he did not stop with just men associated with the organization, but included women and children. The happenings at the Ravensbruck women's camp show the vile practices carried out against Jehovah's witnesses by the Catholic SS troops. In this women's camp alone there were 50 Polish women in the truth, 15 Ukrainians, 10 Czechs, 10 Hungarians, 25 Hollanders, 2 Belgians, 500 Germans, and 300 young Russian Jonadabs that learned of the truth in the camp itself. Here nearly one thousand Christian women went through the tortures of a Catholic 'purgatory'. These Roman religionists, not too certain of a torture for their enemies in the future, put it into effect in their camps. They know only too well their lies are not supported by God's Word, and their fiendish minds and sadistic brains must put into operation their schemes and hopes now if they would ever be fulfilled.
+
+Reports from Jehovah's witnesses who have come out of the Ravensbruck women's camp show that roll was called at five o'clock in the morning and the inmates of the camp were forced to stand outdoors for several hours in the cold winter weather, with few clothes on. They had to repeat the same practice every evening to be sure that none escaped their tortures. During the day these women were forced to do hard labor: digging foundations for buildings, constructing roads, carrying coal, handling heavy trunks and boxes in the luggage department, building barracks, and performing many other tasks too heavy for underfed, underclothed and badly-treated people.
+
+Because 495 of Jehovah's witnesses refused to make ammunition cases, they were sentenced to eight weeks in dark arrest (meaning confinement in a cell without windows). This confinement was in very small, cold rooms. They had to lie side by side and one on top of the other when they tried to sleep. For the first four days they received no food, and after that, very little. Following three weeks of such confinement word came from Berlin that they were to be freed from their prison cells; and by that time the smell of their bodies was like that of corpses. While being ill and nearly dead, they were set at hard work immediately; and
+
+---
+
+<sup>**Page 139**</sup>
+
+[Open Page 139 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=139)
+
+138
+
+Yearbook
+
+each morning came the usual roll call and the standing in line for hours in the cold. This pleased the SS officers, who thought that Jehovah's witnesses might drop dead. Many had to stand barefooted, feet bleeding; the whip was used freely on the women, and the language employed was abominable. All this harsh treatment was brought to bear against them to force Jehovah's witnesses to sign a paper that would make them deny their covenant with God. They steadfastly refused to sign.
+
+Even when one of Jehovah's witnesses, a woman, was on an operating table in the camp hospital the German doctor asked her to sign the paper and everything would be all right and she would be let go free. This she refused to do. She lived in spite of the doctor's butchering. Women were told they could go to their husbands if they signed the paper saying they would no longer support the Jehovah's witnesses organization and would support the German Reich. Even though they could have gone to their husbands, they would not sign; but in most cases their husbands were already in concentration camps. What a witness against these demon-controlled men and for Jehovah!
+
+A further testimony worthy of our brethren in the camps was published in the Swiss Evangelical Weekly, _Life and Faith_, where another camp inmate relates experiences under the heading: 'When the Lord shall turn again the captivity of Zion,' and says: '... together with Bible Students, clean, good men, from whom I learned a lot, and to whom, among other things, I owe an intensive study of the Old Testament in our spare time. Of course, this was forbidden as everything else, but it was all the more inspiring and reviving . . .'
+
+Before the war already, a Swiss clergyman, Th. Brupbacher, uttered the following words of commendation regarding the attitude of Jehovah's witnesses in Germany:
+
+'Here stands and suffers an unheeded company in the front lines . . . who were the first to bear the brunt of the raving Nazi demons, and who dared to resist in accordance with their faith. They suffer and bleed as 'Jehovah's witnesses' . . .'
+
+A part of the press was also interested at that time in Jehovah's witnesses in Germany. Thus the _Oeffentlicher Dienst_ in Zürich said: 'Crime, crying to heaven . . . one of the most terrible accusations that has been raised against the demonized rulers of the Third Reich . . . If the European statesmen and party leaders had but had a particle of the courage of Jehovah's witnesses, the world would have been saved the atrocious crimes of the demons of our time . . .'
+
+When we thus see the fight which Jehovah's witnesses have waged for the liberty of the worship of God in Ger-
+
+---
+
+<sup>**Page 140**</sup>
+
+[Open Page 140 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=140)
+
+Yearbook
+
+139
+
+many, Poland, Italy, and elsewhere, in spite of the greatest opposition from the demonized powers, and continue to do so, then 'For shame!' to any of us if, when seeing the glorious new prospects of proclaiming the Kingdom, we should fail to walk in this way, yea, it would lead us to the complete withdrawal of the Lord's favor. Therefore the words of the apostle apply with still greater force today: 'Woe is unto me, if I preach not the gospel!'—1 Cor. 9:16.
+
+### GREECE
+
+Back in 1940 Fascist Italy declared war against Greece; then came the Bulgarian and German invasions. At that time there were 225 publishers proclaiming the message of the Kingdom. Through all the cruel persecution, opposition and horrors of war, this small group did not cease telling out the good news. In 1942, 524 individuals were shouting out the glad tidings of the Kingdom. Thereafter the number rose to 650, in 1943. During 1944 the Kingdom message was preached by 1,015 joyful publishers. When 1945 arrived, with the end of the war, hence making possible the keeping of better records, it was learned that 1,770 persons are 'glad . . . with his people', all standing shoulder to shoulder and preaching 'The kingdom of heaven is at hand'.
+
+Each year the brethren celebrated the Memorial; and each year more of the 'other sheep' came together to study with the Lord's people, until in 1945 there were 3,124 persons attending the Memorial services, 347 of whom partook of the emblems. Every year hundreds of persons were baptized. In the years 1944 and 1945 the total number symbolizing their consecration amounted to 1,024. As the service year 1945 drew to a close, 4,457 persons were attending their book studies. And so it is seen that our brethren in Greece have not been idle.
+
+Centuries ago the early apostles stood for their freedom in this country, preaching the gospel to both Jew and Greek. Today the same good news that was spoken out so nobly by early Christians in Athens, Corinth, and many other places throughout the land, con-
+
+---
+
+<sup>**Page 141**</sup>
+
+[Open Page 141 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=141)
+
+140
+
+Yearbook
+
+tinues to be heralded forth unchanged. It is still the true word of God, which is a comfort to those who love righteousness. In the days of the apostles talking was the principal means of communication; but throughout the recent war years our brethren in Greece not only talked, but they also used the printed page in helping other people to understand the truth. The educational work went on! In 1945 there were distributed 58,355 books and booklets, in addition to 21,815 magazines. These publications were produced by the brethren under difficult conditions. But paper was obtained, machines kept running, and many people were made “glad”. The brief report from the Branch servant in Athens is very interesting.
+
+I thank the Lord because after four years of silence I have the opportunity to send you a report of the work done here, under the protection and the blessing of the Lord amid many dangers and handicaps. As it is well known, Greece was one of the countries which suffered much from the war and from the famine which followed under the occupation and the revolution, but all this proved favorable for the good news of the Kingdom.
+
+Though the dictatorial regime had banned our books and prevented our meetings, we still continued our work, because we succeeded in saving enough of our books and booklets; our meetings continued to take place in private houses in small groups. Though the books and magazines were banned and prohibited to be delivered to us, the Lord permitted some of them to be delivered to us until April 1941. As soon as received we multiplied them by mimeograph in sufficient number and distributed them to the brethren that we could reach.
+
+When, in October, 1940, the war broke out between Italy and Greece many brethren who were called to service refused to serve either in combatant or in noncombatant service. Because the martial law was strict and no exemption on account of conscience was provided for conscientious objectors, the brethren passed through the martial court, and three of them were sentenced to death, and others to sentences of imprisonment for life, and to imprisonment from 20 years to 7 years. The Lord caused to be given a tremendous testimony; the conditions developed in such a way that until now no sentence to death was executed, and all the sentenced brethren are out of prison.
+
+When, in 1941, all communication between Greece and America was cut off we put forth all our efforts to see what
+
+---
+
+<sup>**Page 142**</sup>
+
+[Open Page 142 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=142)
+
+Yearbook
+
+141
+
+could be done for the 'other sheep' of the Lord and the brethren generally. So the secondary articles of _The Watchtower_ were translated and given to them; also the books _Salvation_ and _Religion_ and the booklet _Refugees_ were translated and multiplied by mimeograph to the number of 2,500 copies and given to the brethren everywhere we could reach them. Hence the meetings were not interrupted at all, but became a great blessing to the brethren.
+
+Seeing that the books and booklets were becoming scarce, we tried to do the work by meeting the people in the parks and public gardens, sitting on the benches and giving them the testimony about the Kingdom. If the hearers were interested, we offered them one booklet as a loan and told them that we would visit them again to take the booklet and discuss with them the things they did not understand. On the second visit we offered them a second booklet and proposed that, if they appreciated these good things, they have a regular study in the booklets with other interested ones. After the study went on for two or three booklets, they were invited to follow the studies in the _Tower_ and the large books. In this manner, by the provision of the Lord, there was established a method of making back-calls, and the number of 'other sheep' has increased since 1941.
+
+In this manner we continued until 1945, when we came in contact with the brethren at Alexandria, who provided us with books and booklets, organization instructions, and the series on Theocratic ministry. The Lord blessed us richly, and, though we are still under many restrictions because we are under the laws of dictatorship, we shall go on in the strength of the Lord. The clergy are raging against us because they see the increase of the proclamation, and they do their best to prevent it by preaching in their churches against us and publishing in their magazines all kinds of false accusations against our work.
+
+### HAWAIIAN ISLANDS
+
+The branch office of the Society is situated at Honolulu. This city has been a busy and crowded place during the war. But with all its war traffic, the Kingdom message was continually preached and many more interested persons were found in the land. A new peak of 102 publishers was reached; and the average number of publishers throughout the year was 83. The Kingdom Hall in Honolulu became overcrowded and it was impossible to rent anything at all. Hence the only thing the brethren could do was to
+
+---
+
+<sup>**Page 143**</sup>
+
+[Open Page 143 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=143)
+
+142
+
+Yearbook
+
+build. They obtained the material and constructed a hall; and, with all this extra work laid upon the brethren, they showed an increase in hours, publishers, back-calls; in fact, in all their activity there was a march forward. The Branch servant gives us a picture of what has been going on during the last twelve months.
+
+Outstanding is the increase of over ten thousand hours in the amount of time devoted to actual field service, and the increased number of publishers. These varied from a low of 58 during a period of construction work, to a peak of 102 during the month of August.
+
+Placements of literature were necessarily limited by the amount available, but the subscription work was pushed at all times. There are now 4,394 subscribers in the islands. Also, the brethren went ahead with the street witness in the face of many obstacles and opposition. Honolulu has been much overcrowded, and conditions on the streets have not always been favorable for giving the witness, with drunkenness, fighting, brawling, stabbings, and suchlike, being common occurrences. And some of the brethren of Japanese ancestry were oftentimes molested. By the Lord's grace they kept on, trusting in His protection, which they had at all times.
+
+Another company was formed during the year on the island of Kauai, and is progressing well. This as a result of the faithful work of a pioneer couple, who have gone over and over the same island for the past eight years with the Kingdom message. Now they are happily observing the increase the Lord is granting.
+
+The public meeting campaign has been carried on with good results, series being conducted on four islands. Lectures were delivered in English, Japanese, and Filipino. Over ninety percent of the publishers in the islands are Jonadabs, and they are doing the bulk of the work. It is a joy to see and hear these newly interested ones ably carrying on, and to co-operate with them in the service. The Theocratic study course has been of immeasurable value, and the _Theocratic Aid_ is very highly appreciated, and its benefits are becoming more apparent all the time.
+
+Due to the many races and tongues of the people of the islands, back-call book studies are conducted in these languages and dialects in addition to English: Hawaiian, Chinese, Spanish, Korean, Japanese, Ilocano, Visayan, and Tagalog.
+
+---
+
+<sup>**Page 144**</sup>
+
+[Open Page 144 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=144)
+
+Yearbook
+
+143
+
+# Field Service Report for Hawaiian Islands, 1945
+
+|   | Special Pio- neers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 289 | 6,625 | 4,968 | 14 | 11,896 | 15,416  |
+|  Booklets | 609 | 15,792 | 19,138 |  | 35,539 | 29,294  |
+|  **Total** | **898** | **22,417** | **24,106** | **14** | **47,435** | **44,710**  |
+|  Pub's (mo. av.) | 1 | 13 | 69 |  | 83 | 60  |
+|  Hours | 1,104 | 20,593 | 15,400 |  | 37,097 | 26,521  |
+|  New subs. | 45 | 2,019 | 1,439 |  | 3,503 | 3,153  |
+|  Ind. mags. | 388 | 4,933 | 8,017 |  | 13,328 | 10,201  |
+|  Back-calls | 722 | 7,420 | 5,363 |  | 13,505 | 9,894  |
+|  No. back-call book studies (av.) | 18 | 86 | 72 |  | 176 | 107  |
+|  Average hours | 180.4 | 124.8 | 18.4 |  |  |   |
+|  Av. back-calls | 120.0 | 45.2 | 6.4 |  |  |   |
+|  Av. book studies | 18.0 | 6.6 | 1.1 |  |  |   |
+
+Peak number of publishers for 1945 service year 102
+
+This report could hardly be closed without recounting the benefits and blessings which the message contained in the _Watchtower_ magazine has brought. It gets better all the time, and is studied regularly by groups in all parts of the islands, and the food from the Lord's table which it serves is the mainstay of the publishers here.
+
+In closing, all publishers of The Theocracy in the islands join in sending their warm Christian love and Theocratic greetings to their fellow servants and companions at the Society's headquarters, and to all others scattered over the earth.
+
+### HUNGARY
+
+Communications have been very slow between Hungary and any of the Society's offices; but finally our brother in Hungary traveled to the Prague office in Czechoslovakia and word has come through. The brethren in Hungary have been very anxious to get word from the Society, and information has now been dispatched to them in Budapest. Through this first communication it has been learned that the brethren in Hungary have been very cruelly treated since 1940. As far as we are able to determine, sixteen brothers were killed because of their conscientious objection to
+
+---
+
+<sup>**Page 145**</sup>
+
+[Open Page 145 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=145)
+
+144
+
+_Yearbook_
+
+military service. Hundreds of brethren have suffered years of confinement in concentration camps; and in 1942 almost all the brethren were brought together and, after much torture, condemned to penal servitude for from two years to life. In the prisons and labor camps they had to endure very much. In addition to the sixteen killed, twenty-six brethren died as a consequence of ill treatment. There are others who have not yet returned home. He says that those who have returned home have had hard experiences, but which have been very valuable. The first thing in their mind was to immediately go to work in the service of Jehovah.
+
+Their first request is for two booklets to be printed so that they may go ahead in the work; but this cannot be done in Hungary because of the paper shortage. If it is possible to have them printed in Rumania and have them imported, they will do so. They state they will work without literature and use the few publications they managed to save all of these years. These they will lend to the interested ones.
+
+The brother from Budapest further states that, during the last summer, 300 persons, mostly young people, symbolized their consecration by water immersion. The brother who wrote the letter says that he was sentenced to death, but a month afterward his sentence was commuted to life imprisonment. He expresses his joy that he is still alive and has the prospect of sharing in the work of proclaiming the Kingdom, in vindication of Jehovah's name. All the other brethren are imbued with the same spirit.
+
+### INDIA
+
+Restrictions were recently lifted on Society publications coming into this land, and this, of course, was cause for the brethren to rejoice. They now have many of the recent publications with which to carry on studies in the homes of the people. With or without literature, however, Jehovah's witnesses in India continued faithfully in their work of ministry. It is
+
+---
+
+<sup>**Page 146**</sup>
+
+[Open Page 146 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=146)
+
+Yearbook
+
+145
+
+good to note the increase in publishers during the year: 424 being actively engaged in the field work, to compare with 406 of the previous year. Not quite as many hours were put in the field service, but generally the work has gone on very well, considering the many obstacles the servants of the Lord have to meet in India. How the millions upon millions of people in this land will be reached with the message of the Kingdom before Armageddon is not known. Most of them are steeped in religion. Three hundred million of the four hundred million persons there believe in the transmigration of the soul and put their reliance in astrologers and stargazers.
+
+The workers that the Lord has raised up in this land are doing all they can; and if the holy spirit of God directs that the work shall open up and increase with greater rapidity than ever before, we can be assured that it will come to pass. In the meantime the faithful brethren do everything possible, and the Society supports the work to the best of its ability. The report of the Branch servant is most interesting as he sets out, with a touch of local color, the work being done in India.
+
+The year has been blessed with many thrilling experiences. The loving hand of Jehovah protecting his people while they minister to the people of good-will has been abundantly manifest and greatly appreciated. Quite early in the year the government of India removed its ban on the importation and printing of the Society's literature, since when we have been able to move ahead more successfully, for the people now are able to procure the beautiful new books, '_The Truth Shall Make You Free_' and '_The Kingdom Is at Hand_'.
+
+It was reported last year how we had issued a leaflet containing nothing but Bible quotations as a challenge of the validity of the Government of India Rules under which we were forbidden to print 'any document'. This effort failed in its direct purpose, but may have carried some weight in leading government to its decision to remove the ban.
+
+The next step in our effort to get this ban removed was a personal interview with Sir Francis Mudie, the home member of the Central Government, followed by the circularizing of all the members of the Central Legislature ap-
+
+---
+
+<sup>**Page 147**</sup>
+
+[Open Page 147 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=147)
+
+146
+
+_Yearbook_
+
+pealing to them to come to our assistance by raising official questions before the Legislative Assembly as to why this ban should be imposed. Two members took up our case, while a third wrote to us promising his support if the matter was taken up. As a result of this full details were supplied to these men (all Indians and non-Christians) and they tabled thirteen questions. I was able to be present in the visitors' gallery when these questions came up for hearing, and you may imagine my joy in hearing the home member tell the House that government had decided to remove the ban. This was on November 21, 1944, and on December 9 the ban was removed.
+
+There still remains, however, a ban on certain individual publishers from entering certain areas. Representations have been made to the provincial governments concerned in behalf of these publishers, but so far no satisfaction has been received: the prohibition still continues.
+
+It so happened that we had arranged to have our annual Assembly the last week of December. The removal of the ban just two weeks earlier came as a most joyful surprise to most of the friends, adding greatly to the excitement and joy usual on such occasions.
+
+The Assembly itself was a splendid success. Wartime inconveniences of travel coupled with the general difficulty of finding suitable accommodation (so many places, public and private, being requisitioned for war purposes) raised unusual problems for those organizing and attending the Assembly. All these problems, however, were overcome by the Lord's grace and provision. Just over one hundred of the English-speaking friends gathered at Jubbulpore, in the Central Provinces, for five days and we were able to enjoy almost the same program as had been held earlier in the year at Buffalo. It was a joyful occasion. We were accommodated in a fine large Hindoo high school, which served both as living accommodation and as a meeting place. In spacious grounds at the rear of the school we erected an open-air meeting place, and down one side, under the shade of magnificent 50-feet-high bamboo trees, were arranged tables for the cafeteria. A local firm of caterers provided all meals at a flat rate per head.
+
+Meetings have been held for both the 'Christian' sections and also the non-Christian communities, and it has been encouraging to see quite appreciative audiences composed almost entirely of Hindoos listen to the message of the Kingdom. Just as this report is being written the Bombay company has started its third series of public meetings, this time in a purely non-Christian section of the city, and the first meeting held last Sunday was attended by about one hundred Hindoos. This with a distribution of 2,500 handbills and 18 posters.
+
+---
+
+<sup>**Page 148**</sup>
+
+[Open Page 148 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=148)
+
+Yearbook
+
+147
+
+I had an opportunity of visiting the friends in Travancore in May and June last. The Society has a printing press there, but it had been seized by the local government. In May it was released and I went down to take delivery of it. It is not, as yet, in operation again, but plans are being made for running it again when suitable premises can be found.
+
+Travancore is like one huge village spread out everywhere. One travels along the highway and can scarcely discern where one village ends and the next begins; there are houses scattered all the way. There is only a very small railway system, but there is a good bus service connecting all the principal centers. The government runs a motorbus service, which is really efficient and runs to a timetable. It connects the capital, Trivandrum, in the south, with the important town of Kottayam, in the north, and down to Nagercoil, in the extreme south of the peninsula, a total run of 120 miles.
+
+We had assembled for three days at a village ten miles east of Trivandrum, where there are some zealous publishers round about. Meetings were held under the shade of a bamboo-palm-leaf structure erected in the spacious compound at the rear of the house of one of the brethren. Mornings were devoted to field service, which consisted mostly of walking miles telling residents and passers-by about the public meetings. Over three hundred persons attended one of these. Where they all came from was a puzzle to me, for there did not appear to be more than a hundred houses within a radius of a mile around the place.
+
+It is a mere formality to specify a time for these public meetings to begin, for few people possess a timepiece; they just come along when they feel like it. The meeting starts when sufficient audience has assembled and stragglers will keep coming in when it is nearly over. We were usually at it until ten o'clock at night, and then many would have to walk miles to get home. If it was moonlight, all the better: it was cool and enjoyable. If there was no moon, then they would pick up a palm branch and twist it into a torch; and it glows a dull red. Whenever they want additional light they just swing it around in the air and it bursts into flame giving sufficient light to see one's way over some rough ground or irregular path.
+
+On one occasion we finished our public meeting about 10 p.m. and had to be in Trivandrum ten miles away by early morning, as we had booked seats on the first bus. There was no way of getting there except by bullock cart, or walking. Traveling in India necessitates the carrying around of a roll of bedding as well as personal luggage; so some form of conveyance is necessary (the head of a coolie for short distances), and we hired a bullock cart.
+
+---
+
+<sup>**Page 149**</sup>
+
+[Open Page 149 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=149)
+
+148
+
+Yearbook
+
+There were three of us in the party: Brother Joseph, an Indian servant boy who did all our cooking, and myself. We loaded up our bedding rolls and suitcases on the bullock cart, leaving just about sufficient room for the three of us to squeeze tightly in. Walking was much preferable, and it being a brilliant moonlight night, we set off for the ten-mile walk about 11 p.m. There was room in the cart for one person to sit in more or less comfort, so we decided to take it in turns to ride. I had had my share of the ride and, feeling terribly cramped, started to walk along with the servant while Brother Joseph got in for a ride. We stepped out in the cool midnight air and soon got well ahead of the ambling bullock.
+
+When about five miles out of Trivandrum a motor truck overtook us, stopped, asked if we wanted a lift, and after spending some minutes bargaining with the driver, we induced him to take us into Trivandrum for eight annas (15 cents). We arrived at the Trivandrum Bus Terminal about 1:30 a.m., leaving Brother Joseph to enjoy the pleasure of a ride all the way into town in the bullock cart. But he had our bedding rolls! Everything at the bus station was closed for the night and we were sleepy; so we just lay down on the concrete paving at the bus stand and tried to get some rest. It was a bit too hard for me, but the Indian can sleep as comfortably on a concrete floor as on a bed; so I had to wait until Brother Joseph rolled along, about 3 a.m., when we were able to roll out our bedding and were soon fast asleep.
+
+Field Service Report for India, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 948 | 318 | 870 | 395 | 2,531 | 2,941  |
+|  Booklets | 5,332 | 1,925 | 10,866 | 771 | 18,894 | 10,943  |
+|  Total | 6,280 | 2,243 | 11,736 | 1,166 | 21,425 | 13,887  |
+|  Pub's (mo. av.) | 12 | 2 | 410 |  | 424 | 406  |
+|  Hours | 19,976 | 3,435 | 104,235 |  | 127,646 | 130,239  |
+|  New subs. | 126 | 50 | 154 | 31 | 361 | 134  |
+|  Ind. mags. | 1,021 | 203 | 738 | 10 | 1,972 | 758  |
+|  Back-calls | 5,172 | 1,376 | 10,469 |  | 17,017 | 15,636  |
+|  No. back-call book studies (av.) | 78 | 23 | 225 |  | 326 | 333  |
+|  Av. hours | 141.5 | 110.8 | 21.1 |  |  |   |
+|  Av. back-calls | 36.4 | 44.4 | 2.1 |  |  |   |
+|  Av. book studies | 6.6 | 9.0 | 0.5 |  |  |   |
+|  Companies in country |  |  |  |  | 36 |   |
+|  Peak number of publishers for 1945 service year |  |  |  |  | 434 |   |
+
+---
+
+<sup>**Page 150**</sup>
+
+[Open Page 150 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=150)
+
+Yearbook
+
+149
+
+# Ceylon
+
+Again, another year has passed without being able to do much work in this land of tea and spices. The government has lifted the ban on the Society's publications and there are two publishers doing what they can to make known the hope of the Kingdom. They now have _The Watchtower_ regularly, as well as an odd copy or two of the new publications, but it has not been possible yet to ship any quantity of books to them. Perhaps the coming year will bring better facilities, and it is hoped that the work over there may make better progress.
+
+Now, in conclusion, I wish to express my own personal joy, and also to convey the message of love we in India have for Jehovah God, his King Christ Jesus, and you and the Bethel family. We are truly grateful to Jehovah for the way in which he has provided for our needs throughout another year, and led us on in his service. The question of increasing importance to us now is, When are you coming to India to give us of your personal help? We are longing to meet you.
+
+# ITALY
+
+This has been a dark land for years. The Hierarchy and its agents have used several forms of government to oppress the people, the last method being Fascist rule. Through the arm of Fascism the Roman Hierarchy has tried to drive out all truth from the land of Italy. Anyone who spoke the truth or even carried a Bible would be picked up on suspicion, and usually such one was sent away to prison. At least, this was true concerning Jehovah's witnesses. The truth, however, continues to find its way into Italy and it brings comfort to those who love righteousness. Efforts are now being made to give the people of Italy opportunity to hear the truth. This will, however, depend to a great extent on the opposition that may arise now that the war is over. The same people are there; and the same religious Hierarchy rules. Whether or not freedom of speech and freedom of worship are the order of the day will not be known until the attempt to publish and preach is made.
+
+The few of Jehovah's witnesses left have not ceased to preach the gospel, and have gone right ahead, talking. In the last few years, however, most of that talk-
+
+---
+
+<sup>**Page 151**</sup>
+
+[Open Page 151 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=151)
+
+150
+
+_Yearbook_
+
+ing has been done in jail. One of the brothers energetic in the truth in Italy was taken away by the Fascists, turned over to the Nazis, and sent to the camp at Dachau, Germany. Other brethren were sent to various other prisons. The report to hand at present is from a sister who spent four years in prison. She was released at the end of the war, made a trip to Switzerland, and furnished this report. By the Lord's grace, the Society will do everything it possibly can to aid our brethren in Italy and to establish an office in that land some day.
+
+We wish to transmit, dear brethren, the most heartfelt greetings from all the brethren in Italy. For many years our friends in Italy have yearned for a change in their situation, and have longed to see a permanent office of the Society established here, directed by a brother well instructed in The Theocracy.
+
+The conditions in Italy, especially since the end of 1944, caused the companies to become entirely severed from each other, and latterly it has not been possible to visit them or to send any message through the mail.
+
+In the year 1932 the office of the Society in Milan was closed down after it had been functioning only about five to six months. In 1939, again in Milan, an address was communicated to the brethren where orders received for literature would be dealt with, when, in one sudden assault, so to speak, almost all of Jehovah's witnesses in Italy were arrested. In 1942 a brother tried once again to do something. But he was quickly discovered by the authorities and banished to an island in the Mediterranean, where he was kept a whole year. In 1943 another brother in Italy could work hardly five months.
+
+In 1944, following his release the above-mentioned brother who was banished to the island, visited all the brethren in the companies and gave the witness everywhere where he had opportunity, but was then arrested again and deported to Germany as forced labor. He was found in possession of a Bible, and that was sufficient.
+
+In spite of the arrest of these two brothers, the work was naturally continued, in that at least the brethren in northern Italy were kept provided with the necessary spiritual food. This work could be kept up until 10th April 1945, that is, up to that point when the work was again in danger of being discovered. We were successful in bringing to safety the two typewriters, the property of the Society.
+
+---
+
+<sup>**Page 152**</sup>
+
+[Open Page 152 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=152)
+
+Yearbook
+
+151
+
+I served my sentence in the prison in Perugia. Shortly after I had been delivered there, the lady superior of this prison visited me and endeavored in a flattering manner to induce me to return to the Catholic church, which step, she assured me, would immediately mean my release. I curtly answered her that a true Christian would never deny his faith or act hypocritically.
+
+In the first years of our prison stay (I was there with three other sisters) we were represented by the nuns who managed this prison as being the worst element among the prisoners. However, with the time, especially in the last years, the attitude of the nuns changed toward us and they recognized that our behavior was loyal and respectful, and eventually they called us their best prisoners.
+
+About a month before the fall of the Mussolini government, in July, 1943, which change brought our liberation, I was called one day into the prison director's office. The director did not receive me himself, but another man who at that time enjoyed the place of honor next to the director. He said: "Oh, Miss P., how are you? Do you still think of your Jehovah? I was your prosecutor at the special court at that time, you know! Do you still remember? I had to do this for justified reasons, because the war was inevitable and Jehovah's witnesses were a problem to us . . ." I have never learned the real reason why I was called to appear before this man. Perhaps it was because his conscience was troubling him; for, after I had spoken to him, he suddenly turned about and went to the cells of the political prisoners.
+
+### JAMAICA
+
+This branch continues to operate and to direct the affairs of our brethren in Jamaica. However, it has been impossible to send in literature freely for the use of the brethren in their studies and for the preaching of the Kingdom message to the people of good-will. Here again a large proportion of the population is colored. From this report it is once more evidenced that colonies of the British Empire inhabited mainly by colored people are deliberately held in subjection. Whether this is the policy of the Colonial Office in London, or the policy of the local governors, is not known. The facts are that the people are not given freedom of worship, freedom of speech, nor freedom of the press. This has not slackened the zeal of the
+
+---
+
+<sup>**Page 153**</sup>
+
+[Open Page 153 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=153)
+
+152
+
+Yearbook
+
+brethren, even though many years have passed by without their enjoying these longed-for freedoms.
+
+During the year the brethren in Jamaica learned of the public meeting campaigns carried on throughout the world and they immediately began this service. They are allowed to meet together and also to do their preaching from door to door, but they are not permitted to import any literature to aid them in this activity. The report shows an average of 882 persons engaging regularly in the field service, and a peak of 1,014 was reached during the year. Very little literature was distributed, for they have no reserve supply. Hours totaling 159,593 were devoted to field service, and 34,075 back-calls were made. Book studies are conducted in goodly numbers, 1,229 being arranged for, on the average, each week throughout the year. The Branch servant reports as follows:
+
+Good effort has been put forth to publish the message of the Kingdom in a way hitherto unknown in Jamaica, that is, by the public meeting arrangement. The people have responded well when such meetings could be arranged. Unfortunately there are not sufficient speakers in this land to take up the public meeting service. The Kingston office sends speakers to various places to inaugurate the series; but at the present we are unable to find speakers in the local companies to carry on at subsequent dates. The Theocratic school has done much toward preparing the brethren for this lecture work; and we have no doubt that the study of Theocratic Aid to Kingdom Publishers will soon prepare some to take up the speaking work.
+
+As to the ban, the matter has been pressed before the governor and those in charge continually for the past years. Two petitions have been filed with the two most recent governors of Jamaica. The matter has now been brought before the House of Representatives to see what they will do about the matter. The brethren are not leaving a stone unturned in their effort to have the ban lifted, so that they may be able to again obtain the good things of aid to them in preaching the gospel. They want The Watchtower and all other things they can get to aid them in the discipling of all nations.
+
+---
+
+<sup>**Page 154**</sup>
+
+[Open Page 154 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=154)
+
+Yearbook
+
+153
+
+Field Service Report for Jamaica, 1945
+
+|   | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- |
+|  Books | 43 | 43 | 221  |
+|  Booklets | 392 | 392 | 2,777  |
+|  Total | 435 | 435 | 2,998  |
+|  Publishers (mo. av.) | 882 | 882 | 1,064  |
+|  Hours | 159,593 | 159,593 | 176,206  |
+|  Individual magazines | 951 | 951 | 81  |
+|  Back-calls | 34,075 | 34,075 | 38,901  |
+|  No. back-call book studies (av.) | 1,229 | 1,229 | 1,144  |
+|  Average hours | 15.2 |  |   |
+|  Av. back-calls | 3.1 |  |   |
+|  Av. book studies | 1.1 |  |   |
+|  Companies in country |  | 134 |   |
+|  Peak number of publishers for 1945 service year |  | 1,014 |   |
+
+It is the Society's hope that brethren from the Watchtower College will soon gain admission to this land; for the brethren are very much in need of help in organization. Jehovah's witnesses here are desirous of pushing ahead, but their difficulties and hindrances need first be overcome. Help is needed.
+
+### MEXICO
+
+"Be glad, ye nations, with his people," is just the way the Mexican who has learned the truth feels toward Jehovah's witnesses. The work in this land has gone ahead by leaps and bounds. During the service year just past 5,065 persons came together throughout the country on Memorial evening, and of this vast group only 27 professed to be of the "little flock". The rest accept with joyful heart the prospect of everlasting life on this earth, under the King Christ Jesus. No wonder they are glad! These people had many things to be thankful for during the year: first of all, for the truth in its many forms (The Watchtower, Consolation, numerous new booklets, and the bound
+
+---
+
+<sup>**Page 155**</sup>
+
+[Open Page 155 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=155)
+
+154
+
+Yearbook
+
+book "The Truth Shall Make You Free", all in Spanish). They have shown their appreciation to the Lord by putting to good use all of these instruments in praising the name of the Most High.
+
+The enthusiasm and zeal of our Mexican brethren are well expressed by the Branch servant in his annual report.
+
+The last month of the 1944 service year saw 2,083 publishers reporting service in Mexico: 5 special pioneers, 91 general pioneers, and 1,987 company publishers. Our fondest hopes and desires were to reach 3,000 publishers before the end of the 1945 service year. However, September seemed to be holding our hopes in derision, because from the first day to the last the country was lashed from one end to the other by furious storms, cyclones, and floods. The servants to the brethren were stopped in their tracks; communications country-wide were disrupted. Much literature was destroyed or damaged by the unusual weather, and a good number of publishers lost all their earthly possessions. From a worldly viewpoint it looked as though it would take a good many months to get "on our feet" again.
+
+Nevertheless, the Lord's servants said, even as Job, "Till I die I will not put away mine integrity." Instead of backtracking, during the following month, October, the Kingdom publishers demonstrated their trust in Jehovah and he responded with a blessing that warmed their hearts as nothing else could. For the first time in eight months we reached a new peak in publishers, and for the first time in Theocratic history the number of company publishers in Mexico went over 2,500—and this in the midst of the worst weather conditions that had been seen in Mexico for many years! It is interesting to note also that, although many hundreds of new publishers reported for the first time in October, the average in hours for the company publishers was above 20 hours per publisher.
+
+This month, October, 1944, also marks the beginning of a bitter campaign on the part of the Roman clergy to keep the Mexican people in their power from reading or otherwise informing themselves about anything not "approved" by the Catholic "church". The "faithful" (?) were given cardboard signs to tack above the doors of their homes, the homes of their neighbors, or anyone else's home where they could do so, with or without the inhabitants' permission. These signs read: "We are Catholics. We refuse all Protestant propaganda." The fact that Jehovah's witnesses were specifically mentioned as being "Protestants" proved beyond any doubt that it is not the "Protestant" literature that the clergy fear as much as it is the TRUTH! Jehovah's
+
+---
+
+<sup>**Page 156**</sup>
+
+[Open Page 156 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=156)
+
+Yearbook
+
+155
+
+witnesses, not being "Protestants", but instructors, ignored the childish efforts of the Hierarchy to interfere with the people's God-given rights and they pushed on as never before in the great educational work ordained by the true Teachers. As is usually the case, the religionists' arbitrary actions awakened the interest of the people of good-will and these were more than anxious to obtain the Kingdom literature.
+
+December, 1944, and January, 1945, were two months that will long be remembered by the publishers in Mexico. Under the Society's direction a special campaign was arranged for these two months and the "faithful and wise servant" furnished us with two new booklets in Spanish, Freedom in the New World and The Coming World Regeneration. On December 1 the Lord's servants went forth as one man to offer the message of the hour from home to home, from store to store, in the buses, on the streets, and everywhere that the people could be found. By the 31st of December 94,377 copies of the new booklets and 17,906 copies of La Atalaya had been distributed! We could hardly believe our eyes, but the best was yet to come. When the reports were tallied, it was seen that our "fondest hopes and desires" had been more than realized. Instead of reaching a new peak of 3,000 publishers as a total for all Mexico, we found that 3,180 COMPANY publishers alone had reported (an increase of 109 percent over December 1943), besides 96 pioneers; a total of 3,276 publishers for Mexico! During the month of January 1944 we again surpassed the 3,000-publisher mark and placed 83,583 more booklets and 12,826 more copies of La Atalaya; a total of 177,960 booklets and 30,732 magazines in two record months.
+
+### President's Visit
+
+Hardly had the stimulating effects of these two months passed when we were blessed by another event which ranks topmost in the events of the 1945 service year.
+
+Brothers Knorr and Franz came to Mexico from South America on April 8, and from then until the convention opened, on April 13, they imparted some much-needed instruction to the Branch force regarding organization.
+
+A week before the convention was due to open, brethren started to arrive from all parts of the Mexican Republic. More than two hundred brethren came from the city of Monterrey alone, in two specially reserved railroad coaches bearing huge banners on the outside which ran the whole length of the coaches and which read: "We are going to the Reconstructors Convention, April 13, 14, 15, Mexico, D. F." The brethren in these coaches placed more than two thousand pieces of literature at the train stops going to and returning from the convention.
+
+---
+
+<sup>**Page 157**</sup>
+
+[Open Page 157 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=157)
+
+156
+
+Yearbook
+
+On April 13, at 9 a.m., the convention was opened with song. After the morning's program, the 717 instructors already in attendance went forth to advertise the lecture of the moment, 'Un Solo Mundo, Un Solo Gobierno' ('One World, One Government'). More than one thousand placards had been prepared for advertising via information marches, and soon the Lord's witnesses were to be seen in all parts of Mexico city distributing the half-million handbills that had been printed on the Society's printing press. This manner of advertising had been seen only twice before in Mexico city, and in both instances it was used to advertise Theocratic speeches. Therefore the method of advertising identified the publishers, causing them to hear many reproaches and to receive many additional blessings as well.
+
+The convention opened officially with the afternoon session, several interesting speeches being delivered by members of the Branch family and of the Mexico city company. The evening session of the convention was the high point of the convention, and the publishers rejoiced during the delivery by Brother Knorr of the speech 'Your Reasonable Service'. At the end of the speech he presented the new Spanish book _La Verdad Os Hará Libres_, and announced that a free copy would be given to every person in attendance who could read and who would use the book to instruct the people of good-will. The enthusiasm and thanksgiving to Jehovah for this new instrument continues to this day. After the session 1,064 copies of the new book were given away free.
+
+The Saturday evening session proved to be one of the best ever. Brother Franz spoke on 'Provoking the Showdown', followed by one of the liveliest lectures ever delivered by Brother Knorr, who spoke on 'Jehovah's Universal Sovereignty Vindicated'. The climax of the evening was the release of the new Spanish booklet _La Religión Siega el Torbellino_. The applause was deafening, and subsided only when Brother Knorr offered to tell the assembly about the trip from Mexico to South America and back again.
+
+Sunday morning more than a thousand publishers were present to hear the discourse on 'Baptism' delivered by Brother Franz, and 103 people of good-will indicated their desire to be immersed.
+
+The public lecture was scheduled for 12 noon, and exactly on time the lecture began. When a fanatical religionist attempted to disrupt the public lecture at its beginning, the attempt was quickly suppressed by federal and city police that had been stationed there by their superiors to thwart any such attempt, and the victory was Jehovah's. The lecture was interrupted 36 times by zealous applause,
+
+---
+
+<sup>**Page 158**</sup>
+
+[Open Page 158 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=158)
+
+Yearbook
+
+157
+
+which goes to show that Jehovah's people are all speaking and understanding the same language no matter in which country they reside or in which language the message is spoken originally.
+
+At the conclusion of the speech Brother Knorr had the chairman announce that every person who could read was welcome to a free copy of the lecture that had just been delivered. Over two thousand booklets, _Un Solo Mundo_, _Un Solo Gobierno_, were distributed free to the public on their way from the Arena.
+
+On Monday, August 6, two of the brethren, members of the Branch family, left Mexico city to visit a newly-formed company to the south during the Bethel vacation. In order to reach the company, it was necessary to travel one day by bus followed by two days on horseback. After a two-day delay in arranging for horses at the end of the bus line, the boys arrived at their destination the following Friday.
+
+About a week later, as the time of their expected return to Mexico city was approaching, a telegram was received from the sister in whose home they were staying, advising us that an armed mob had attacked her home the night before, taking the two brothers by force, ransacking the house, and burning all the Kingdom literature. The leaders of the mob had been 'El Presidente' (mayor of the town) and his henchmen, including one of the principals of the church. There was no trace to be found of the brethren. Pleas for help were made by the sister to the local authorities, but to no avail; they had formed the mob. Immediately telegrams were dispatched by the Branch office to the governor of the state, as well as the attorney general of the Republic of Mexico, informing them of what had happened and urgently petitioning that troops be sent there to locate our instructors. The governor's secretary responded, saying that the case was being referred to their local representative for investigation. At this point, and amidst much suspense and concern, imagine the joy of the Bethel family when about 6 p.m. Saturday evening the two boys arrived home safely, although bloody, bruised and completely exhausted. The following is the account they related:
+
+After working actively in the service with the little company for five days, helping the new publishers to get better organized and aiding them in all branches of the service, they were preparing to leave on Thursday morning. During their stay they were being entertained in the home of a sister and her three children, boys of 10, 12 and 15 years of age. At about 8:30 p.m. Wednesday evening, as they were about to retire, a mob of about 25 men broke into the house, armed with machetes, swords, knives, clubs, and pistols. Without explanation, other than that they intended
+
+---
+
+<sup>**Page 159**</sup>
+
+[Open Page 159 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=159)
+
+158
+
+Yearbook
+
+to kill the two 'comunistas' but wanted to do them as much damage as possible before that, they proceeded to take them outside the house, beating them unmercifully. When the friends tried to defend the brethren, the sister and her little boy of 12 received several blows. One of the brethren was able to ward off effectively the sword-thrusts, suffering few cuts but mostly severe bruises on the back with the broad-side of the machetes. However, the other received repeated blows on the head; the inside of the five fingers of his left hand were cut to the bone; and his worst wound was a vicious cut to the bone on the upper side of his left forearm.
+
+As the boys were being driven out of the town by the mob, then augmented considerably from the original number, they tried to appeal for their rights and explain the nature of their visit to the town. The response was in expressions such as, 'We want you to know who are the laws here'; 'condemned communists'; 'Sr. Presidente, shall we hang them here?' 'Here only _our_ laws apply; keep walking.' With intermittent beatings and threats of hanging, they were driven for an hour until they reached a spot where there were trees already equipped with ropes. Then 'El Presidente' said, 'No, we won't kill them this time, because we are not 'cowards.'' After another severe beating they left our brethren beside a river with order to keep going, and that if they returned there would be men posted to kill them. All that night they walked through the wilderness even as those faithful men of old had done before them, 'being destitute, afflicted, tormented; of whom the world was \[and is] not worthy.'
+
+The following day they arrived in a little town where their cuts and bruises were given some meager attention, after which they kept walking. It was wild country through which they traveled, crossing several rivers with high waters due to heavy rains. In many towns through which they passed the people spoke a dialect and understood no Spanish whatever. In their wounded condition they wandered through open country from Wednesday night until Saturday, suffering from exposure due to insufficient clothing and from loss of blood. Finally they arrived at a point where a bus brought them safely to Mexico city. Although physically worn out from the ordeal, they were rejoicing in the many privileges of service they had experienced while visiting the company, followed by their manifest deliverance by the Lord's power, with the prospect of further service ahead. The Society saw to it that they were given immediate and expert medical attention, and is sparing no expense to insure their complete recovery.
+
+We have since received a letter from the sister, saying that she wants more literature to replace that destroyed
+
+---
+
+<sup>**Page 160**</sup>
+
+[Open Page 160 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=160)
+
+Yearbook
+
+159
+
+by the mob. Instead of being discouraged and dismayed, she realizes that it is just the Devil's endeavor to stop her carrying the message of truth to those who are 'hungering and thirsting after righteousness'. She writes that the majority of the people in the town are telling her that she is doing right and that they are against the fanatical minority there that caused the trouble. We have also received several telegrams and a letter from the governor of the state, saying that a thorough investigation is being made and that those who are found to have been responsible for the outrage will be severely punished. This shows that the Devil's attacks serve as a boomerang against him and his agents. The more he fights against the Kingdom message, the greater is the testimony given, with the result that the Lord's campaign of free education goes on apace.
+
+When the Watchtower Bible College of Gilead and its purpose were first announced, we here in Mexico anxiously awaited the date of the first graduation because we were confident that a good number of the graduates, especially trained for foreign Theocratic service, would be sent to work in the practically virgin territory of Mexico. It was to be expected also that the adversary would become frantic and would go to any extreme to impede the entry of our brethren. In August, 1943, the Society informed us that, if we could obtain the necessary permits for their entry into Mexico, about thirty of these instructors would be assigned to work in Mexico.
+
+Every effort was put forth by us to obtain the permits, but an unbelievable number of obstacles presented themselves to prevent the entrance of these instructors into Mexico. We had practically given up, thinking Jehovah willed otherwise, when Brother Knorr arrived here in February of this year. He refused to take 'no' for an answer, and made some special arrangements, and lo, the 'impossible' was accomplished! In March the barriers were let down to admit Brother and Sister Anderson, and shortly thereafter, in April, seven more Theocratic instructors, graduates of Gilead's first class, were admitted into the country. At the time of making this report, we have information that one more instructor is on her way.
+
+The new building promised by Brother Knorr, as reported in last year's annual report, has been practically completed at the time of making this report. It is a real 'eyesore' for the fanatical religionists; which means that, to the Lord's people, it is the most beautiful and useful building in Mexico, and we confidently expect it to have a large part in future Theocratic history.
+
+---
+
+<sup>**Page 161**</sup>
+
+[Open Page 161 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=161)
+
+160
+
+Yearbook
+
+Field Service Report for Mexico, 1945
+
+|   | Special  |   |   |   |   |   |
+| --- | --- | --- | --- | --- | --- | --- |
+|   |  Pio-neers | Pio-neers | Com-panies | Public by Mail | Total for 1945 | Total for 1944  |
+|  Books | 3,676 | 12,568 | 20,457 | 1,429 | 38,130 | 30,286  |
+|  Booklets | 15,568 | 103,046 | 270,588 | 5,143 | 394,345 | 320,172  |
+|  Total | 19,244 | 115,614 | 291,045 | 6,572 | 432,475 | 350,458  |
+|  Pub's (mo. av.) | 11 | 91 | 2,627 |  | 2,729 | 2,070  |
+|  Hours | 24,853 | 154,736 | 609,135 |  | 788,724 | 731,155  |
+|  New subs. | 97 | 565 | 2,426 | 96 | 3,184 | 2,304  |
+|  Ind. mags. | 4,350 | 23,668 | 71,644 | 76 | 99,738 | 72,323  |
+|  Back-calls | 8,519 | 20,043 | 56,288 |  | 84,850 | 61,506  |
+|  No. back-call book studies (av.) | 96 | 390 | 906 |  | 1,392 | 1,080  |
+|  Average hours | 184.1 | 142.2 | 19.3 |  |  |   |
+|  Av. back-calls | 63.1 | 18.4 | 1.8 |  |  |   |
+|  Av. book studies | 8.5 | 4.3 | 0.3 |  |  |   |
+|  Companies in country |   |   |   |   | 230  |   |
+|  Peak number of publishers for 1945 service year |   |   |   |   | 3,276  |   |
+
+We are more than thankful to the great Theocrat for the marvelous privileges of serving The Theocracy during the past year, and we look forward to the 1946 service year with full confidence that he will continue to bless his people as they push on during the postwar period to make more and more disciples in this rich field.
+
+## GUATEMALA
+
+For many years there were a few publishers preaching the gospel in Guatemala. It was the good pleasure of the president of the Society to meet with these few publishers from time to time, and they have always expressed a desire to have someone among them to give proper instruction in the Word of the Lord and aid them in the preaching work. Ever since the Watchtower Bible College was established it has been the desire of the Society to send some of the educators, graduates of the college, to Guatemala. This year arrangements were completed to send four of such instructors into the land; and much good work has been done. Two of these brethren have been working there since June; and the other two followed in August.
+
+---
+
+<sup>**Page 162**</sup>
+
+[Open Page 162 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=162)
+
+Yearbook
+
+161
+
+In these few months much has been accomplished; and their report, added to that of the faithful workers who have for years been active in Guatemala, shows what can be done when full-time workers enter a field. A peak in number of publishers was reached in August, when 14 engaged in the service of the Lord. The Mexican office has kept the brethren supplied with literature and necessary instructions relative to field service. The report, as compiled by the Mexican branch, is set out below.
+
+Field Service Report for Guatemala, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- |
+|  Books | 166 | 311 | 40 | 517 | 95  |
+|  Booklets | 716 | 1,308 | 255 | 2,279 | 405  |
+|  Total | 882 | 1,619 | 295 | 2,796 | 500  |
+|  Publishers (mo. av.) | 3 | 1 | 3 | 7 | 3  |
+|  Hours | 712 | 1,160 | 592 | 2,464 | 726  |
+|  Individual magazines | 21 | 250 | 85 | 356 | 278  |
+|  Back-calls | 349 | 261 | 25 | 635 | 141  |
+|  No. back-call book studies (av.) | 28 | 9 | 0.4 | 37 | 6  |
+|  Average hours | 79.0 | 96.6 | 16.3 |  |   |
+|  Av. back-calls | 38.6 | 21.7 | 0.6 |  |   |
+|  Av. book studies | 9.3 | 8.5 | 0.1 |  |   |
+
+Companies in country 1
+Peak number of publishers for 1945 service year 14
+
+Additional workers are needed in this field, and the Society is endeavoring to arrange for the sending of more college graduates. The inhabitants of the land are meek and desirous of learning of the Kingdom, but preachers are needed so that they may hear. Next year's report will undoubtedly show much progress in the discipling work.
+
+### THE NETHERLANDS
+
+For three months of the past service year our brethren enjoyed freedom from the yoke of Nazism. They
+
+---
+
+<sup>**Page 163**</sup>
+
+[Open Page 163 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=163)
+
+162
+
+Yearbook
+
+rejoice in this freedom and are determined, by the Lord's grace, to press on and give a grander witness for the Kingdom in Holland than at any time before. Our brethren look to the Society for instruction and aid, and, by the Lord's grace, they will receive this.
+
+Early in the years of war affecting Holland the Branch servant and three other publishers were arrested by the German Gestapo. The direction of the work had to be placed in the hands of others, and these brethren were not fearful for their lives, nor did they cower before Hitler and his Gestapo agents. They went straightforward, preparing to preach the gospel come what may. The Society's property was seized by the Nazis. Society-owned machinery was pilfered and sold to other concerns, the Germans retaining the money. Our stocks of paper and supplies were confiscated and the brethren were left, as it were, with absolutely nothing. But they preached, talked and made arrangements for further activity. They reorganized despite the fact that they were robbed of practically everything.
+
+These beloved brethren in the Netherlands had not consecrated to serve the old world; they consecrated their lives to the service of the Kingdom and the King Christ Jesus, under the direction of their God, Jehovah. Imprisonment, slow torture and, in many instances, death, did not cause them to become dismayed. Regardless of what happened, they knew the old world had nothing to offer except a rule of oppression by robbers and murderers. It was their joy for five long years to serve faithfully the interests of the Kingdom. The brother who faithfully looked after the work for these years, along with the Branch servant, who has returned from a concentration camp in Germany, made the following report, which should make every one of the Lord's people world-wide more determined than ever to carry on to the finish, serving their God.
+
+Jehovah rendered us aid. It appeared that we were in a hopeless situation; but we knew a work was to be done,
+
+---
+
+<sup>**Page 164**</sup>
+
+[Open Page 164 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=164)
+
+Yearbook
+
+163
+
+so we communicated with all the companies by means of letter. The friends having been informed that we were robbed of everything, they contributed generously—money, gold, silver articles, and other necessary things—so that an office could be reorganized. Jehovah compensated them for their gift-offerings. Within two months after the Nazi confiscation of the Society's office equipment and the shutting down of its work there appeared again the printing of _The Watchtower_, on the finest printing paper. By circular letter the brethren throughout the country were reorganized, were comforted by _The Watchtower_, and began the public distribution.
+
+The first big move in Holland was the scattering of handbills all over the streets of Amsterdam. During a specified week, at eight o'clock in the evening, large handbills were put on display to be seen by everyone. It was necessary for the publishers to take great precaution in putting these display cards out, because the Gestapo wondered where they were coming from; and their 'assistants', who always wanted to get in good with the Gestapo, were on the lookout for Jehovah's witnesses. Between Christmas and New Year's three and a half million handbills were sent out to all companies throughout the country, for scattering all over the streets in various cities. On February 2, 1942, at half past six in the morning, another plague of handbill distribution hit the country. The Nazis knew Jehovah's witnesses were not silent. Then began systematic house-to-house witnessing, back-call work, and home book-study services.
+
+The spiritual needs of the brethren were cared for regularly through _The Watchtower_. This magazine arrived regularly in the Netherlands. It was translated into the Dutch language, and distributed throughout the Netherlands and passed on to the brethren in Belgium. To distribute _The Watchtower_ throughout the land, and even into Belgium, brought many hardships to the brethren; but the brethren were determined to see that the much-needed spiritual food from the Lord's table was distributed. Many of the brethren wondered how this magazine continued to have circulation, and they knew it was possible only through Jehovah's protection.
+
+After the closing of the first printing office during the occupation of the Germans, a second printing office was established in Holland. In the first year 6,000 copies of _The Watchtower_ and 3,500,000 little handbills were printed and distributed. Many small booklets were published, and 5,000 copies of these little booklets were first printed and gotten into the hands of the brethren. Later during the year arrangements were made to print anywhere from 50,000 to
+
+---
+
+<sup>**Page 165**</sup>
+
+[Open Page 165 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=165)
+
+164
+
+Yearbook
+
+100,000 copies of these booklets containing God's message for the people.
+
+By this time many of the brethren in the Netherlands had already been taken away and put in concentration camps. There were some few who signed the paper the Germans offered them, in which paper they stated their renunciation of their God and pledged to support the German government. When these persons returned to Holland they would have nothing more to do with Jehovah's witnesses, but they lived in constant fear of the German fuehrer and his Gestapo. They did not have the fear of Jehovah. Those who remained in the concentration camps came out later to take up the work of proclaiming the Kingdom message. This the unfaithful never did.
+
+Came 1943. What would the year bring? Still the Germans were working in Holland, robbing the people and forcing men and women to go to Germany, there to work on war material. Jehovah's witnesses refused. The people tried to take a stand against Nazi rule. Farmers refused to deliver milk, drinking it themselves, giving it to the poor, or throwing it in the ditches so the Nazis would not get it. Vegetables were not brought to public sale; miners went on strike, etc. All persons desirous of having freedom and liberty took opposition, but they paid heavily for such stand.
+
+The Germans took over like barbarians. In many instances in the case of opposing farmers, men, women and children were killed. In towns machine guns were set up at the forks of the streets. People did what the Germans said—or else! Throughout all of Holland it could be said, in the words of the Lord, 'Men's hearts \[were] falling them for fear.' (Luke 21:26) How were the Lord's people getting on? They went on just the same, not placing their confidence in the fuehrer or the Germans, or in Mussert or any other worldly power. Their Commander and Leader was the King Christ Jesus. The brethren had in mind the prophecy at Job 17:9: 'The righteous also shall hold on his way, and he that hath clean hands shall be stronger and stronger.'
+
+In spite of all measures and precautions by the Devil's crowd to stop Jehovah's witnesses, the printing went on in the Netherlands. During this year the printing office delivered 35,000 copies of _The Watchtower_, 230,000 booklets, 5,000 supplements to the book _Children_, 15,000 copies of the _Informant_, and 30,000 lists of Bible texts. Throughout the year Jehovah's protection was with his people. They were 'more than conquerors'. They thought little of their own lives. When our brethren were taken away to concentration camps, or even killed, this made Jehovah's witnesses
+
+---
+
+<sup>**Page 166**</sup>
+
+[Open Page 166 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=166)
+
+Yearbook
+
+165
+
+more determined than ever to 'fice into the mountains' and there maintain true worship.
+
+The year 1944 came, and circumstances in Holland were even worse than in previous years. The robbing and plundering of the land continued; there was hardly anything left. Brutal killings and murder were common. It is estimated that another 500,000 Dutchmen were taken away to forced labor, prison camps, and concentration camps. With this forced labor being taken into Germany, they took almost everything else they could. It is past all belief to realize what the Germans dragged away from Holland and all the things they destroyed. They wanted everything, from teaspoon to railway cars. The people of the Netherlands went hungry; they sighed and cried. The only comfort the people could receive was that brought to them by Jehovah's witnesses.
+
+Were the hearts of God's witnesses disturbed? No; they were quiet because they had the joy of the Lord. They knew these things would come upon the earth, they expected them, and they faced them. The brethren endured the trials and difficulties; they trusted in their God and expected salvation from the Lord. No time had they to worry about these situations, for there was something more necessary to be done, namely, the providing of the truth to the people. They didn't rejoice while enduring such conditions, but they did see in the terrible circumstances existing in the Netherlands the fulfillment of God's prophecies; therefore they pushed on ahead in the territory the Lord had given them in which to preach. They pressed on in the face of great obstacles, trying to get the printing done. Despite the fact that they were watched on every side, they did, by the Lord's grace, print 175,000 copies of _The Watchtower_. Another 14,000 were stenciled, 120,000 booklets were produced, and 20,000 model study booklets for _Children_.
+
+In September, 1944, the printing office had to stop, due to the lack of electric current and gas. During more than three years' time this office printed and furnished the people of the Netherlands with literature from the Society, and now it had to cease operation; not because the Gestapo found it out or closed down the work, but due to the lack of supplies. However, Jehovah's witnesses went on preaching the gospel.
+
+Then came the invasion. The Canadian army marched in the direction of the Netherlands. Before they came, Jehovah's witnesses preached; and after the armies of the world took over, Jehovah's witnesses continued to comfort the people.
+
+---
+
+<sup>**Page 167**</sup>
+
+[Open Page 167 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=167)
+
+166
+
+Yearbook
+
+The man who operated the printing plant that furnished Jehovah's witnesses with their literature took many chances. Sometimes the Gestapo agents walked into his plant and asked him what he was printing. The printer would say, 'Something for the Johnson firm'; when in fact at that very moment the _Watchtower_ magazines were coming off the presses. Many times the Gestapo came through while they were handling printed matter for Jehovah's witnesses and went out without even observing what was going on. The owner and the men working on the presses were speechless with amazement. The printer was a man of good-will, but had not taken up the cause of Jehovah's witnesses. He believed in freedom of speech and freedom of worship. He said to the brother in charge of the work: 'You always talk about God's protection on your service; and now I think you are right. It's marvelous!'
+
+Throughout most of these years of trial and difficulty four servants to the brethren traveled through the land to bring comfort and aid to the brethren. They kept the lines of communication open. One of these brethren was eventually caught up with by the Nazis and taken away. The other three continued in their service till the very end.
+
+Finally, the year 1945 came. The brethren continued full of courage and trust in the Lord and looked forward to the future, despite all the misery, trouble and sorrow that surrounded them. The Germans were making their last stand and they were cruel.
+
+As soon as opportunity came to do more printing and get publications out, the brethren arranged for it; and before the year was over 23,000 copies of _The Watchtower_ were again distributed and other literature was furnished for the aid and comfort of the people of good-will. Of course, the printing was not as good as usual; but the information was there. They were thinking of the contents, not the outside appearance. For a while it was necessary to study in the small meeting-places throughout the country _Watchtowers_ previously gone over. It was only from February to June that this procedure was necessary. Thereafter printing began and new supplies came through.
+
+The report of the work done in the Netherlands over the five-year period of trials and tribulations for the faithful brethren is most encouraging. It will be observed that the number of publishers continually increased, from 1939 right on through till 1944. The time spent in the field increased proportionately. The brethren did not slack their hand at any time due to any obstacles, be they torture, hounding by the Nazis, hunger, cold, or lack of clothing. All these things were as nothing compared to the glorious treasure of service which was theirs.
+
+---
+
+<sup>**Page 168**</sup>
+
+[Open Page 168 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=168)
+
+Yearbook
+
+167
+
+# Report of the Companies
+
+|  Year | Publishers | Hours | Books and |   | Maga- zines | Back- calls  |
+| --- | --- | --- | --- | --- | --- | --- |
+|   |   |   |  Bibles | Booklets  |   |   |
+|  39-40 | 443 | 98,255 | 4,348 | 190,990 | 38,858 | 6,482  |
+|  40-41 | 584 | 94,546 | 11,899 | 102,753 | 68,785 | 10,595  |
+|  41-42 | 923 | 147,692 | 12,662 | 71,330 | 60,090 | 14,326  |
+|  42-43 | 1,336 | 237,635 | 4,908 | 103,935 | 35,413 | 26,015  |
+|  43-44 | 1,758 | 314,692 | 3,240 | 92,367 | 12,665 | 38,194  |
+
+# Report of the Pioneers
+
+|  Year | Number | Hours | Books |   | Magazines | Back- calls  |
+| --- | --- | --- | --- | --- | --- | --- |
+|   |   |   |  and Bibles | Booklets  |   |   |
+|  39-40 | 58 | 83,420 | 7,343 | 168,753 | 41,951 | 5,395  |
+|  40-41 | 55 | 66,294 | 10,590 | 95,198 | 56,664 | 4,947  |
+|  41-42 | 44 | 51,498 | 5,857 | 24,866 | 23,238 | 5,000  |
+|  42-43 | 43 | 55,575 | 1,523 | 28,386 | 11,232 | 5,915  |
+|  43-44 | 43 | 57,117 | 735 | 21,654 | 1,637 | 6,714  |
+
+Here in the Netherlands the persecution of Jehovah's witnesses has been hard. Indeed, to preach the gospel of the Kingdom during this time of war required faith and courage. The carrying of only a Bible or even a piece of colored chalk was sufficient for the Gestapo to organize a raid. Sometimes the Gestapo arranged for a dragnet over the entire country in order to catch the pioneers, contact men and all of Jehovah's witnesses. A total of more than 350 persons were arrested and many of these were taken away to German concentration camps and prisons. But even there they continued to witness.
+
+In a booklet entitled 'Back from the Hell of Buchenwald', written by Sir K. R. van Staal, director of the newspaper _Het Parool_ (_The Parole_), who was himself in the concentration camp at Buchenwald, prisoner No. 22046, it is stated concerning Jehovah's witnesses:
+
+'Buchenwald's victims were contributed by a number of countries: Russia, Poland, Norway, especially students from Czechoslovakia, Germany, France, Luxemburg, Italy, Belgium, Spain and the Netherlands. Depending on the land they come from, they have a letter added to their number. The Netherlanders bore the letter 'N'. The political prisoners had this letter imprinted on a red triangle, with the exception of Jehovah's witnesses, among which there were also Hollanders, whom the Germans called Bible Students and marked with a purple triangle.
+
+'This sect were, because of their faith, opposers of the National Socialism and its members testified about it regardless of prohibitions and punishment.
+
+'A number of times they were called to the tower \[office], where they were offered the opportunity of being set at liberty, provided they would sign a declaration withdrawing
+
+---
+
+<sup>**Page 169**</sup>
+
+[Open Page 169 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=169)
+
+168
+
+Yearbook
+
+their predictions (apparently the Nazis had a more superstitious fear of these Jehovah's witnesses than they were willing to admit). Not one man would sign the desired declaration . . . Those who were in the concentration camps the longest were the German communists, social democrats and the so-called Bible Students, who had been arrested since 1933 and 1934.'
+
+This booklet was spread thousands upon thousands throughout the Netherlands by persons who were in concentration camps themselves. Often the brethren in their house-to-house work would hear: 'Are you also one of those people mentioned in that booklet?' You will understand what a reception this is for us.
+
+Surely the Netherlands brethren can say, as did David: 'Unless thy law had been my delights, I should then have perished in mine affliction.' When the brethren returned from concentration camps, without exception they started to work in the different buildings where they had to wait for further instructions. Wherever they were, they talked truth. I was astonished about this; and not only myself, but also others. What a difference between them and the political prisoners returning, who were spiritually and bodily mostly dead. Jehovah's witnesses, although some of them were bodily not so well, displayed a spirit like Samson when he asked Jehovah to shake the pillars. With the same spirit of God are they animated.
+
+Great joy was expressed by all the brethren when these faithful servants of the Lord returned from the concentration camps. When we met Brother Winkler \[the Branch servant] and Brother Stulmuller, what a welcome! With the coming of Brother Winkler my responsibility as the servant to the brethren in the Netherlands ended. The responsibility, although sometimes heavy, I always have borne with joy. I am obliged to acknowledge that Jehovah leads his people and his work, and he isn't dependent upon any man. My greatest joy was when we were all gathered in the Apollo Hall in Amsterdam, on the 5th of August, 1945, which was nearly filled with 4,000 people. Here Jehovah's witnesses had come together in the Netherlands to honor Jehovah, his King and his kingdom; and we could see from this that our works had not been in vain.
+
+I believe we stand at the beginning of tremendous happiness, connected with the preaching of Jehovah's kingdom. It is a glorious time! The Nazis have gone, but hardly is the battle ended when already a new one begins.
+
+The present Branch servant adds to this splendid report the following:
+
+All the brethren and sisters who are saved immediately continued to look well after the interests of the Kingdom.
+
+---
+
+<sup>**Page 170**</sup>
+
+[Open Page 170 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=170)
+
+Yearbook
+
+169
+
+I also had the privilege of returning to my field work after having been a prisoner of the modern Assyrians, the Nazis, for three years and eight months. The consistent attitude that Jehovah's witnesses have taken in concentration camps and throughout all the Netherlands during the five years of war has been for many people a motive to make a closer inquiry into the work of Jehovah's witnesses. They want to come into contact with these people who did show in the concentration camps such fearlessness and an unequivocal attitude, and want to know the reason for their strength, peace and hope.
+
+From the Netherlands alone there were some 400 witnesses in German concentration camps. Approximately 50 of these were murdered in the camps; and a few died because of camp illness. Now Jehovah's witnesses are free from these camps and only the 'quislings' and Germans remain as prisoners in these camps. When Jehovah's witnesses were in the camps, they were not allowed to have a Bible; and if one was found in the camp they were punished heavily. Now Jehovah's witnesses obtain the co-operation of the commanders of the army and they are allowed to visit these camps and are permitted to put on lectures about Scriptural subjects; also to distribute the Society's literature. Jehovah's witnesses are delighted to give evidence of their love for their fellow creatures; and now they visit the camps and bring to them the life-giving truth and preach the gospel of the Kingdom to those people who had severely persecuted them for years and years, even preaching to those that have murdered their brethren.
+
+The rebuilding of the Lord's work in the Netherlands is attended with great difficulties. But we look to the Lord's direction, knowing for a surety that he will guide now as he has during the difficult years. To our great joy, the Lord has forwarded his work in this country in a way that has pleased him, in order to glorify and to justify his ever-praised name.
+
+The report for the last twelve months in the Netherlands is truly heart-cheering; 2,166 publishers have been engaging in field service. They devoted 463,140 hours in witnessing to the Kingdom. Approximately 194,535 books, booklets and Bibles were distributed. Additionally, 36,966 _Watchtowers_ and _Consolations_ were put out among the people. The back-call work is well organized, and the publishers made 53,332 back-calls during the last year. The 'Commander to the peoples' is gathering together his 'other sheep' and has put it in their minds to sing forth his praises. The
+
+---
+
+<sup>**Page 171**</sup>
+
+[Open Page 171 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=171)
+
+170
+
+Yearbook
+
+people of this war-torn land of the Netherlands are finding gladness and comfort with 'his people'.
+
+### NEWFOUNDLAND
+
+The work in this land has become better organized during the past year. Publishers have increased to a peak of 52 serving the interests of the Kingdom, in June. The average for the year was 28. There are eight companies that need better organization, so the educational work may go into all the territory. From the year 1940 until this present service year a ban was on the importation of the Society's literature. Our brethren in Newfoundland called on the chief censor several times, trying to have the ban lifted. Finally they wrote to London in protest, and, due to the persistent efforts on the part of the brethren, the ban was lifted on March 23, 1945.
+
+Here again we find the Roman Catholic Hierarchy holding great influence in governmental affairs. It was through their efforts that the ban was originally put into effect. Newfoundland has been steeped in religion ever since John Cabot discovered the island in 1497 and brought along with him the 'Black Friars' of the Catholic sect. From that day till this the Catholic Church has had great influence in, if not dominating, the political life of the country.
+
+The Branch work has been organized in Newfoundland, and the servant reports the following:
+
+The Society favored us greatly by providing an excellent boat for the field service. We use this boat along the coastal settlements, and this feature of the Kingdom work has provided many thrills. For example, recently we visited a settlement and advertised a public lecture to which everyone but six persons came; and which gathering proved to be the largest ever witnessed in that town, causing the clergyman of the place to say we should have had the church instead of the town hall. Many are our opportunities to witness to the people in the small coastal towns as we travel from place to place.
+
+When the year started we were still mimeographing the _Watchtower_ magazine for over one hundred subscribers. Efforts were made to get the magazine '_Thy Word Is Truth_'
+
+---
+
+<sup>**Page 172**</sup>
+
+[Open Page 172 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=172)
+
+Yearbook
+
+171
+
+from Canada. After two shipments were received, these were stopped. We then went back to mimeographing until the ban was lifted by the chief censor; but only after strenuous effort on the part of the brethren here.
+
+The International Bible Students Association, a Newfoundland corporation, is now set to care for the work. Immediately on the lifting of the ban we ordered 75,000 pieces of literature from the Brooklyn office. This material has been received and put in storage, and is being used by the brethren.
+
+The next big move for the blessing of Newfoundland came when negotiations were made by the Society for some of the Watchtower Bible College graduates to come to Newfoundland. The chief officer of immigration was interviewed and arrangements were made for the graduates to come into the country. It will not be long now until nine special publishers come here to take up the work and assist us in better organization.
+
+From May 25-27 we had an excellent assembly, and, while there were threats of violence and opposition, these stimulated the brethren who were hanging on lightly to become more solidly fixed with the organization. Since then more persons attend our regular studies.
+
+The people here are sick of religion and many are thirsting for the truth. They have been held in the claws of religion long enough. We are confident that the arrival of the college brethren and their activity, together with the zeal that their presence will inject into the Newfoundland brethren, will result in a great breaking away from demonism by hundreds of people of good-will.
+
+#### Field Service Report for Newfoundland, 1945
+
+|   | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- |
+|  Books | 638 |  | 638 | 426  |
+|  Booklets | 2,446 |  | 2,446 | 918  |
+|  Total | 3,084 |  | 3,084 | 1,344  |
+|  Publishers (mo. av.) | 28 |  | 28 |   |
+|  Hours | 1,957 |  | 1,957 | 1,683  |
+|  New subscriptions | 41 |  | 41 |   |
+|  Individual magazines | 988 | 251 | 1,239 |   |
+|  Back-calls | 242 |  | 242 | 320  |
+|  No. back-call book studies (av.) | 7.0 |  | 2.5 |   |
+|  Average hours | 6.1 |  |  |   |
+|  Av. back-calls | .7 |  |  |   |
+|  Av. book studies | .1 |  |  |   |
+
+---
+
+<sup>**Page 173**</sup>
+
+[Open Page 173 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=173)
+
+172
+
+Yearbook
+
+|   | Public | Total | Total  |
+| --- | --- | --- | --- |
+|  Companies | by Mail | for 1945 | for 1944  |
+
+Companies in country
+
+8
+
+Peak number of publishers for 1945 service year 52
+
+We pray that Jehovah will hasten the day of the great surge ahead. The main and topmost thought in our minds is to have a part in the educational work. Armageddon and its relieving us of our personal difficulties is no longer the chief thought as it was the much-talked-of thing a few years ago. There is work to be done. By the Lord's grace, we want to do it here in Newfoundland and help our brethren world-wide in discipling all the nations.
+
+### NORWAY
+
+Our brethren here have stood fast for freedom since 1940. They were not isolated from the Lord's organization, because steadily the truth from God's Word reached them through the columns of _The Watchtower_. Five years ago there were 377 publishers, but this figure has practically doubled during these years of oppression and war. Books were distributed; other publications were loaned. Copies of _Watchtower_ articles were typed by faithful brethren at all hours of the night and distributed throughout the land for careful study. The brethren talked to their neighbors and friends, and many went from house to house. Others arranged for back-calls and book studies; but the work went on.
+
+The work is getting better organized again and, by the Lord's grace, many in that land will have an opportunity to take their stand for the truth. The report from the Branch servant sets out some interesting facts relative to the past years.
+
+It is a great joy for me to send you the report for the year 1944-45. The last report I sent to head office was for 1938-39 and it appeared in the 1940 _Yearbook_. Next year, on the 9th of April, 1940, the Nazis came into the country and all communication with foreign countries was broken off.
+
+Nevertheless the work went on so that in 1939-40 there were spread 57,149 books and 341,245 booklets. From October, 1940, to June, 1941, 27,451 books and 244,968 booklets were placed. In 1939-40 there was an average of 377 in the
+
+---
+
+<sup>**Page 174**</sup>
+
+[Open Page 174 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=174)
+
+Yearbook
+
+173
+
+field, and in the first nine months of 1940-41 the number was 477.
+
+On July 8, 1941, the German Gestapo came and stopped our public work and took practically everything from us. All our books were pulped, and money, typewriters, lamps, etc., stolen. Our private possessions were left with the exception of a radio set. We continued the work underground and now we have many more friends than when the work was stopped, as the report shows. There were 689 different friends in the field during 1944-45. The report is, of course, rather incomplete, by reason of the German occupation of the country. Then everything goes slowly, for many businesses have been destroyed and printeries take a long time to do the work. Communication is poor and shops are sold out of the stuff folk need, especially clothes and boots, although the food problem is being solved.
+
+That you may more easily understand the conditions we have worked under I shall briefly touch on these. The Germans here introduced a Nazi government, as they found a Nazi party in the country and a leader who was willing to turn traitor to his native land. Conditions, therefore, were as in Germany, with terror and violence abroad. Prisons and concentration camps were filled with Norwegians who talked against the regime and also with many who had done nothing at all. When the Norwegian people killed a Nazi, either Norwegian or German, hostages varying in number from 10 to 50 were taken for each man slain. Many were killed and the rest put in prison or concentration camp. They were taken at night, and by day the Gestapo raided homes to find illegal papers, radio sets, and people who had eluded them. Nobody felt safe, night or day. Now there are being found outside the concentration camps the graves of all those shot by the Nazis.
+
+At the invasion and just before peace came the Germans completely destroyed nine cities, and others are much damaged. In Oslo, at night we often heard explosions due to Norwegians' blowing up offices and factories belonging to the Nazis. Two years ago an ammunition dump near our house was blown up and half of our windows were blown inward and everything on the walls thrown on the floors, while the house shook so violently we deemed it would collapse. However, nobody was injured.
+
+It is difficult to give a survey of the work from July, 1941, to August, 1944, by reason of the conditions mentioned, and also because there was censorship of letters in the country and it would have been dangerous to send reports. The Gestapo kept a vigilant eye on this office, so that letters to me had to be sent in the care of brethren in Oslo. Care had to be exercised in sending letters to the friends also, but all the time there has been contact between the friends
+
+---
+
+<sup>**Page 175**</sup>
+
+[Open Page 175 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=175)
+
+174
+
+Yearbook
+
+and the center of our underground work. Thus, for example, the friends must have the spiritual food in _The Watchtower_, and so during the three years copies thereof to the number of about 9,000 were typed and distributed in many secret ways, so that all the time they could follow the light, and enjoy the 'food convenient'. Naturally there was only one copy for each of the small study groups, and it was studied when they came together.
+
+The _Tower_ came into the country from Sweden and Denmark, brought by seamen and commercial travelers and sometimes in food packets. On several occasions I found them in my letter box and never found out who put them there. One brother had a German officer quartered with him. He was not a Nazi, and the brother and his wife, who could speak German, told him about the truth. He did not believe the Bible, but was very friendly. When he knew this brother had business relations with Denmark, he asked him to get his friends there to send some food for him. To this the brother agreed, if he also could get some food sent for himself. So it was arranged, and, as the packet was addressed to the officer, it came by plane and was not examined at all. In the brother's packet there was always a _Tower_.
+
+All the time the friends have been busy 'fishing' and 'hunting' for the 'strangers'. Model studies have been held with them until they could come to the _Tower_ studies. Those who consecrated themselves were baptized.
+
+For 1944-45 we have been able to get more details, so that it is possible to give a fuller account. We got 100,000 booklets and some books from Sweden, and likewise 50,000 booklets and some books from Denmark; but, owing to poor communications, some of the friends got them only in the last week of August. However in that one week, although not all the friends had received their supplies, 24,000 booklets were spread by the brethren who were enthused by these supplies, increased as they were by a locally printed booklet, _Fighting for Liberty on the Home Front_. In August 539 friends were out, but in the year there were 689 different brethren out. They spread or loaned out 47,957 books and booklets, using 64,702 hours in the work.
+
+We are very glad of your permission to print the _Tower_ in Norwegian. Hitherto we have had copies of the Danish _Tower_ sent us; but there is great paper difficulty in Denmark, as well as shortage of electricity for printing, so it will be well to have our own _Tower_.
+
+CONVENTIONS. Usually we have had several during the year and, even during the war, we had some in various places. Around Oslo at times 70 to 100 friends would meet in a secluded wood and encourage each other in the Lord. Similar gatherings took place in various places throughout
+
+---
+
+<sup>**Page 176**</sup>
+
+[Open Page 176 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=176)
+
+Yearbook
+
+175
+
+the land, but all in secrecy. We hope that you manage to visit Europe this year.
+
+SOME INTERESTING INCIDENTS. Professor Seip, of Oslo university, was sent by the Gestapo to a concentration camp in Germany and returned home after the war was over. Among other things he told of some peculiar people he met there. They were called "Earnest Bible Students", and in Norway and Sweden they call themselves Jehovah's witnesses. They bore a little mark on their arms and they had a peculiar doctrine according to the Bible, dealing with somber, destructive prophecies concerning the "dritte Reich" as set forth in Revelation. They refused military service, some were shot, some few failed, but most of them stood unshaken in their faith. Some had been there for ten years. They were in a block by themselves, but when it was found they had meetings they were spread to other blocks. They were a category of fine men, not like some others in the camp, who had no interest in their fellow men. This was repeated in the Norwegian press.
+
+Much work must yet be done in Norway, and the brethren are anxious to get on with it. The steadfast stand of Jehovah's witnesses for freedom during the dark years just past has awakened keen interest on the part of many, and they need now to be fed with God's truth. Jehovah's servants are ready and active in helping the "sheep".
+
+### PHILIPPINE ISLANDS
+
+Communications with the branch office ceased after the Pearl Harbor attack, December 7, 1941. However, the work in the islands did not stop. Too many determined servants of the King had taken up the cause of righteousness, and these went forward proclaiming the Kingdom as the only hope for the world! Now that global war had hit their own home, Jehovah's witnesses appreciated the more that it was their duty to go ahead with the preaching. The last report received from the Branch in 1941 showed that there were 373 publishers. An incomplete report furnished recently by the Branch servant, who was just released from a concentration camp near Manila, shows that more than 2,000 publishers are preaching the gospel, and 64 companies are organized.
+
+---
+
+<sup>**Page 177**</sup>
+
+[Open Page 177 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=177)
+
+176
+
+Yearbook
+
+Most of the work at present is done by word of mouth, making back-calls and just talking to people about the good things they have learned from the Lord's Word. What few books they have are loaned out for a week at a time for people to read and study; and then arrangements are made to call back and carry on the educational work by means of using their own Bibles. When supplies of literature can be gotten into the Philippine Islands, undoubtedly a great witness will be given. Jehovah's witnesses stand out in that land as faithful bearers of truth.
+
+At the outbreak of war in the Pacific, the Roman Catholic Hierarchy's tool in the person of a 'father' saw to it that Jehovah's witnesses were treated as fifth columnists. Four days after the treacherous Pearl Harbor attack three brethren, including the Branch servant, were taken into custody. They were examined and held in prison for some time. After fifteen days in prison, they were released at the command of the military. The Branch servant reports that he learned that the Military High Command gave orders to release Jehovah's witnesses because they were not fifth columnists. The brethren moved on faithfully until the Japanese took over the city of Manila and all other parts of the Philippines, and even then they didn't stop. The lovers of truth and righteousness preached that which brought comfort and gladness of heart. Some excerpts from the Branch servant's report are interesting.
+
+The Japanese effected landings on several points in Luzon, closing in toward Manila. The Devil had his heyday murdering people along the way, raping women, ransacking the homes, and other atrocities. Those were days filled with horror and destruction. Manila was soon declared an open city and the Filipino-American forces withdrew to Bataan peninsula to make a last stand against overwhelming odds. The Japanese entered the city January 2, 1942, and soon established the harsh military government. Censorship began immediately. All radio receiving sets were sealed and confiscated, and there went out a decree that all publications must be submitted to the Japanese military command for censorship before they could be released to the public.
+
+---
+
+<sup>**Page 178**</sup>
+
+[Open Page 178 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=178)
+
+Yearbook
+
+177
+
+Bibles from the bookstand were censored. However, not a single brother submitted the publications in his possession for censorship. They kept on witnessing with the Kingdom message uncensored. Regular house-to-house searching was done by the Nipponese in Manila and suburbs, for arms and ammunitions. They have not bothered themselves with the Lord's arms and ammunitions exhibited in the homes of the brethren in shelves.
+
+I was interned January 26, 1942, with all other aliens considered enemies of the gloating invaders. At first under the civilian administration we were given fair treatment. But when the administration was transferred to Japanese military the internees encountered hardships. The militarists took great delight in coercing people to bow to every Japanese sentry. I have seen people who forgot to bow rendered unconscious by a gun butt and a man handled in 'judo fashion'. The three years of internment found our health waning. We were bones and skin when the American forces took the camp. In the last months there was acute starvation. A bowl of thin rice water with salt to every person was given every day. Anything, such as camote peelings, weeds and other greens that could be gathered in the camp yard, found its way to our empty stomachs to lessen at least the horrible feeling of hunger. With the Lord's grace, I was able to weather it all. As opportunity afforded I enhanced the Kingdom interests while in camp. I opened studies among the good-will.
+
+In the meantime I came to think of our native brethren: how they fared the atrocities; how they carried on the Lord's work during adversities. Those trickled into the camp surreptitiously. Finally I was released, on March 13, 1945, after receiving treatment under the United States army.
+
+Although at present I only get in touch with brethren in some parts of Luzon island, I have found that Jehovah's true worshipers cease not to 'offer unto the Lord offerings in righteousness'. Their labor of love is very satisfying. During the years of the Japanese oppressive military rule the friends at large pushed the Theocratic work forward. As ambassadors of the Kingdom, which is the only hope of the world, they could not wait till war was done to feed those that hunger and thirst for truth and righteousness, although faced with many kinds of jeopardies. As opportunity permitted they made good use of their few pieces of sound equipment which were not confiscated and opened model studies. Zone service then was particularly active. Two of the former zone servants have done fine work. They organized thirty-one new company organizations during said Japanese' harsh rule, composed of around 2,000 publishers. Under the protecting hand of the ever-
+
+---
+
+<sup>**Page 179**</sup>
+
+[Open Page 179 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=179)
+
+178
+
+_Yearbook_
+
+victorious King seven zone assemblies were held in different parts of Luzon island. The peak attendance was 2,000.
+
+When the meager supply of publications was being felt the brethren resorted to a method of distribution which was found to be helpful: that of lending the books to the good-will for a week's time; which resulted in a wholesome number of back-calls, model studies and new company organizations. In this way they were able to continue in the house-to-house witness, because the supply always came back.
+
+During the last year of the Nipponese occupation when the American forces were storming Manila and the Japanese began the massacre of innocent civilians, the publishers in the provinces were still at it, joyfully serving Jehovah the Almighty. A house-to-house witnessing was going on. A company of brethren encountered an interesting experience while obeying the Lord. While witnessing they passed a small village inhabited by guerrillas and their families, to which they had previously witnessed. The brethren were on their way to the next town to do 'our Father's business'. On the way they were warned that Japanese soldiers were in town. There was no turning back now, and they continued in their usual door-to-door preaching. They saw Japanese soldiers and guerrillas bristling with guns. They were wondering why these did not start shooting, when they were supposed enemies. They were merely staring at each other. The publishers did not bother to stop, but finished their territory. On their way home they found the same small village already burning and the people bayoneted: men, women and children. How they escaped certain death, although the Japanese could get at them, there was no way of knowing except that Jehovah had protected his own people. As the work has now widened to a degree that the refugees must be more greatly helped than ever before, college graduates would be, perfect aid with the big work.
+
+We are thrilled and overjoyed beyond words to come in contact with you again and with our 'mother'. Wonderful, to say the least, the food stored for us in these years of separation.
+
+Closing: We loved Brother Rutherford very dearly. His courageous stand for The Theocracy is a great inspiration to us-ward. The news of his passing away came as a shock to all. We rejoice to learn that he died 'with his boots on' fighting to the end. He faithfully finished his earthly course and is now with the Lord for a greater work. We missed him, but this would not deter us from 'making disciples of all the nations'. We are ever determined to enhance the Kingdom interests.
+
+---
+
+<sup>**Page 180**</sup>
+
+[Open Page 180 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=180)
+
+_Yearbook_
+
+179
+
+### POLAND
+
+Into whatever country the Germans moved or took control, there came persecution and suffering for Jehovah's witnesses. Poland was not different from any other country. It wasn't long after the Germans took control that they began to seek out Jehovah's witnesses and put them away in concentration camps. The Branch servant would not compromise with the Nazis, and he was interned in a concentration camp. Word has been received since the end of the war of his safety and return to his home.
+
+The entire story about Poland cannot be told here, but sufficient can be said to show the faithfulness, devotion and long-suffering of our brethren in that land. The report will show, too, their determination to preach the gospel and the great length to which they went in order to preach the good news. The brethren had to use tact, being 'wise as serpents, and harmless as doves'. Along with their discretion came Jehovah's protection and guidance. This protection was with them, even though they were in concentration camps, on the streets of Warsaw, or in the countryside. These people had been made free by the blood of Christ Jesus, and they maintained that freedom by not tying in with the Devil's organization and serving it. They were ministers, servants of Jehovah, and therefore must be his witnesses. This position they steadfastly maintained, in good times and evil times.
+
+The following report comes from two young Polish brothers, who were taken by the Nazis to a lumber camp in Austria. They later succeeded in escaping to Switzerland and were interned there. This is what they have to say.
+
+Brethren of German origin had to suffer most from the persecutions, especially those in the western parts of Poland which were annexed to the German Reich. (The 'Generalgouvernement' was constituted out of central Poland.) A refusal to be registered in the so-called 'list of German racials' in order to obtain German citizenship was enough to be sent to prison or to concentration camp.
+
+---
+
+<sup>**Page 181**</sup>
+
+[Open Page 181 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=181)
+
+180
+
+Yearbook
+
+Many brothers, heads of families, were thus separated from their dear ones, who were left to their fate. In the schools the children were persecuted, beaten, or banned from school. Heart-rending scenes could be witnessed at these partings. A number of brothers and sisters were shot because they refused to participate in fortification work, although declaring their readiness to do other work which did not conflict with their consciences.
+
+Various reports regarding German concentration camps show that a considerable number of prisoners were Polish witnesses. Thus in a report handed to the London office of the Society by the secretary of the Foreign Service of the Quaker movement, we read the following:
+
+“Dear Friends:
+
+“One of our workers doing civilian relief service in the Belsen Concentration Camp has just sent us the enclosed letter. She says that she has met 18 members of your Association who are left from 83.
+
+“Most of them spoke Polish, but they were thrilled to hear that their English comrades had inquired about them. Their morale is exceedingly good, and the major who bears the responsibility of the camp remarked that they were really sound people.”
+
+Despite all efforts of the Gestapo to completely exterminate Jehovah’s witnesses in Poland, they did not succeed. The brethren who were left in Poland were provided with the necessary spiritual food from Germany. In various places there were duplicating machines, where _The Watchtower_, _Informant_, etc., which came from the Reich, were duplicated. Single copies were smuggled to Warsaw, where they were translated into the Polish language and mimeographed. Although the _Watchtower_ articles were circulated with considerable delay, sometimes a year and more, we got them nearly all.
+
+Then there were a few brothers who owned “bicycle-rickshas” with which they carried people about the town. These “rickshas” became more and more the fashion as the war went on. People liked them very much because the streetcars were so overfilled that one really had to risk injury in using them. Many who before the war had enjoyed cycling or had done cycle racing became such “ricksha” drivers. Some brothers too used this means of gaining a livelihood. They tried to give at the same time a brief witness to each of their passengers. (In order to gain the necessary time for this if the distance were too short, they would even sometimes make a detour with their vehicles.) At the conclusion of such a witness they would then state that they were ready to give more information about these things. “If you wish to learn the way to life, please give
+
+---
+
+<sup>**Page 182**</sup>
+
+[Open Page 182 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=182)
+
+Yearbook
+
+181
+
+me your address, and somebody will visit you soon and tell you more about it.'
+
+Many of our brethren tried to get food from the country into the towns, or traded on the market places. This gave them opportunities of doing much Kingdom service during their work. In the trains and on the market places they spoke of the Kingdom. Thanks to the Lord's protection, they escaped all dangers that threatened them, although sometimes they but narrowly escaped being taken off by a police car.
+
+For instance, a young sister, carrying food from the country to a town, was taken with a whole trainload of passengers. They were locked into a building which was closely watched, but where she naturally fulfilled her duty as a witness of Jehovah, and eagerly told of the Kingdom. When the brethren learned of this, they went to this building and managed to get a Bible to her and to call a few words of comfort. All attempts to get her free failed. Two days later she was carried to the station with a company of others closely guarded, and all were to be sent to Germany as forced labor. A Catholic priest came to 'bless' and 'comfort' them and encourage them to do their duty to the 'higher powers'. The sister with her Bible under her arm stood on one side. Being asked of the priest whether she didn't want his blessing, she replied that she had her Bible and that was quite sufficient for her. In the last moment before the train left, in a second, she managed to slip away despite the closest vigilance of the guards. Full of joy she came home to her grieving family, who then wept tears of joy and thanked Jehovah for His goodness and mercy.
+
+There were also pioneers in Poland during the war. In Warsaw, for instance, whole parts of the town were worked by them. Under the cover of peddling they went from house to house with little cases selling tooth paste, shoe polish, and other little things. However, they were not too keen to get rid of their goods; on the contrary, they were pleased if they did not have to replenish their stock too often. Their purpose was to talk to the people in order to tell them of the Kingdom. The high prices of provisions and lack of money were the most favorable topics with which to begin a conversation. When the people complained, it was easy to lead the conversation into the right direction, and to tell them of the little booklet that one had already read before the war and which was so interesting. In this way they had the witness. When the brothers saw that there was interest for the truth, they 'happened' to have a copy with them and lent the people No. 1. The addresses were given to other brothers, who made back-calls. They then became acquainted with these people and those who were
+
+---
+
+<sup>**Page 183**</sup>
+
+[Open Page 183 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=183)
+
+182
+
+Yearbook
+
+really interested were brought together, after a few back-calls, into little groups of 5-10 persons, with whom model studies were conducted according to a fixed study plan.
+
+During the last days before the revolt in Warsaw, and its almost complete destruction, everything was going along smoothly, and the work of gathering the people of good-will progressed satisfactorily.
+
+Our brethren in the country had other experiences. Here they were exposed to persecution on the part of the strongly conservative, very often fanatical, superstitious Catholic population, with the clergy at their head, who, with the help of Catholic Action, organized gangs among the people, pushing their way into the homes of the brethren, maltreating them seriously and trying to force them to deny their faith.
+
+Shortly before we wrote down this report the Berne office received a postcard from the Branch servant in Lodz, reading as follows: 'I am glad to inform you that I have returned from the concentration camp Stutthof near Danzig, and that I am home again, healthy, well and happy. Things will move on, and we have hopes of getting the house back again. . . .' The card is dated May 2, 1945, having thus taken four months to get there.
+
+From another source we learned that a brother from Poland has been in Magdeburg in order to get new instructions for the reconstruction of the proclamation work. So there is now between Poland and Germany a new link in the chain which binds God's people together.
+
+### RUMANIA
+
+Word has been received from a few of the brethren in this land overrun by war and its terrors. The report shows that the witnesses of Jehovah here have found great joy again in the proclamation of the truth throughout Rumania and that good progress has been made since the close of the war. In a very short time the publishers distributed 200,000 booklets, which was done mostly in rural territory. In coming into the small towns they would go to the mayor, the head of the village, and ask him for a large room in which to hold a meeting. In most places the mayor arranged this, and often the largest hall in the town was given them free. Announcement was made of the meeting by the brethren going from house to house and making general distribution of the literature, and the people
+
+---
+
+<sup>**Page 184**</sup>
+
+[Open Page 184 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=184)
+
+_Yearbook_
+
+183
+
+were given personal invitation to attend the public lecture.
+
+In most parts of Rumania there seems to be complete liberty again for the preaching of the gospel. When the war broke out, and for the duration of the war, the brethren met up with many difficulties. They were haled into courts and sentenced to long terms of imprisonment because of their refusal to support the war. They declined to permit anything to interfere with their preaching of the gospel. We look forward to the time when better communications can be arranged for between the Rumanian brethren and the Society’s office. But word thus far received shows they have taken a firm stand for the Kingdom and have moved ahead proclaiming its message despite the fiery crucible in which they found themselves. They had accepted the name “Jehovah’s witnesses” and were ready at all times to hold high that name and do the work which it implies, in Rumania.
+
+## SOUTH AFRICA
+
+The territory handled by the branch office at Cape Town, South Africa, takes in the Union of South Africa, Northern and Southern Rhodesia, Nyasaland, Portuguese East Africa, St. Helena, and Tanganyika Territory. All brethren scattered throughout this great area have put forth a wonderful effort to preach the gospel of the Kingdom during the past year. Many obstacles had to be overcome in the preaching work. The branch office has to deal with people speaking many languages, but good organization is in operation for handling matters.
+
+Thus far the rulers of the British Empire have not to the full extent lifted bans against the Society’s publications in the South African colonies. Up to the present time it apparently appears to them that these people should not have freedom of worship, freedom of speech and freedom of press. Why should the Africans be held in suppression? Is it the intent of the British government to keep the people of that
+
+---
+
+<sup>**Page 185**</sup>
+
+[Open Page 185 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=185)
+
+184
+
+Yearbook
+
+continent in darkness? Are we to believe that they wish to employ the same tactics used by the Roman Catholic Hierarchy to hold millions of subjects to the church, keeping them illiterate and uneducated, as the Roman church has done in Italy, Spain, South America and Central America? Why can't they let the people see the light? Jehovah's witnesses in these lands are peaceful and preach good order and unity. What have they to fear?
+
+You will observe from the report that follows that religion has a strong hold in these lands; and evidently the British government has succumbed to the rule of religion, at least in darkest Africa. The British government would do well to review conditions in the African colonies and give due consideration to the problem that exists there, namely, the matter of denying freedom of worship, speech and press. The Branch servant's report on the various countries follows.
+
+Field Service Report for 1945
+Countries Reporting to South African Branch
+
+|  Country | Total Literature | Average Publishers | Hours | Back-calls | Book Studies  |
+| --- | --- | --- | --- | --- | --- |
+|  Union of |  |  |  |  |   |
+|  S. Africa | 370,264 | 2,991 | 964,850 | 313,841 | 4,777  |
+|  S. Rhodesia |  | 2,238 | 657,793 | 135,096 | 1,871  |
+|  N. Rhodesia |  | 3,890 | 1,525,156 | 67,244 | 1,689  |
+|  Nyasaland | 1,469 | 2,979 | 898,664 | 250,677 | 3,647  |
+|  Portuguese |  |  |  |  |   |
+|  E. Africa |  | 34 | 8,175 | 2,063 | 58  |
+|  St. Helena (6 mo.) | 41 | 13 | 125 | 61 | 1  |
+|  Tanganyika |  |  |  |  |   |
+|  Territory |  | 144 | 15,825 | 3,047 | 82  |
+|  1945 Grand Totals: | 371,774 | 12,289 | 4,070,588 | 772,029 | 12,125  |
+|  1944 Grand Totals: | 190,294 | 9,624 | 2,977,161 | 474,892 | 9,981  |
+|  Increase | 181,480 | 2,665 | 1,093,427 | 297,137 | 2,144  |
+
+# Union of South Africa
+
+In the Union of South Africa there are approximately two million Europeans, one million Cape Colored and Asiatics, and seven million Africans. These are scattered over an area of 472,550 square miles. The majority of the
+
+---
+
+<sup>**Page 186**</sup>
+
+[Open Page 186 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=186)
+
+Yearbook
+
+185
+
+Africans live in "Native Reserves" far removed from the beaten track. Europeans are not permitted to enter these reserves without government permit, and permits are usually issued only to those on governmental business. It is difficult even for African pioneers to get to the kraals to give the witness. There are no roads in these areas. The people living there have little or no money and the majority are illiterate.
+
+SERVANTS. The servants to the brethren have accomplished much in helping establish companies and in assisting the special pioneers to organize new interest. Company organizations have increased from 218 to 244. The arrangement of longer visits to the companies was hailed with delight and the servants are able now to give a real lead in the field service and assist the publishers in a practical way.
+
+To meet the new situation the number of servants to the brethren was increased from 3 to 5 several months ago. During the year the servants traveled 39,641 miles to visit the companies, the majority of which received two visits each during the year. The cost to the Society was approximately £400. Train connections require to be made at all hours of the day and night; long and wearisome bus journeys have to be undertaken and, in the case of the African servants, considerable foot slogging over hills and through valleys under the blaze of the scorching African sun or in drenching rain to reach some isolated company, but all such service is joyfully undertaken in the interest of the Kingdom.
+
+PUBLIC MEETING CAMPAIGN. The outlines and sample leaflets unfortunately got onto a very slow boat or one that had an adventurous time en route and we did not receive them until April. However, no time was lost in getting them into the hands of the companies and pioneers, and it is a pleasure to report that this new campaign has been entered into with enthusiasm. Without the help of "The Theocratic Ministry Course" few indeed in this country would have ventured to give a talk of an hour's duration. As a result of our training and with the help of the Lord's spirit and the excellent outlines provided the response has been very good and even the very small companies are endeavoring to share. The African friends too are very keen to play their part, and those who understand English in addition to their own language and who are qualified to speak, as a result of their ministry training, are being given every encouragement to do so.
+
+The campaign is still in its infancy, but, by the Lord's grace, we hope to accomplish much in the coming months by "the foolishness of preaching". The number of public meetings held during the two months covered by this report totaled 256, with an attendance of 12,294.
+
+---
+
+<sup>**Page 187**</sup>
+
+[Open Page 187 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=187)
+
+186
+
+Yearbook
+
+**ASSEMBLIES.** The rich spiritual menu provided for the United Announcers' Assembly arrived in this country in time for us to enjoy the feast during the week-end of October 20-22. European friends assembled at five towns, and non-Europeans at six centers. The splendid fare provided called forth expressions of joy and gratitude from all who were privileged to attend. The public lecture on 'The Kingdom of God Is Nigh' was well advertised and listened to with appreciation at each center.
+
+The April special meetings were an even greater success. For the first time in the history of the Kingdom work in South Africa we were enabled to enjoy the same good things simultaneously with our brethren in America and elsewhere. There were 19 assembly points in the Union, and these special meetings were given the name of the current Testimony period, namely, United Kingdom Announcers' Assembly. The peak attendance in the Union was 5,001, a new high. The Theocratic instruction received was most enlightening and stimulating and new releases were announced and hailed with joy at almost every session. '_The Kingdom Is at Hand_', _Kingdom Service Song Book_, _Kingdom News_ No. 14 in English and Afrikaans, _Religion Reaps the Whirlwind_, _The Coming World Regeneration_, and '_The Kingdom of God Is Nigh_' (Afrikaans) were the gracious gifts received on that occasion.
+
+Evidences accumulate that a work is done by the magazines that could not be done in any other way. Furthermore, it is a work in which the youngest and the oldest may share with great success. One young publisher, aged 10, writes: 'I am a regular magazine publisher and also work in my mother's territory from house to house. I never used to place more than about 12 magazines and 10 booklets per week. Recently the servant to the brethren advised me to use the testimony card wherever possible. This month I placed 113 magazines and over 60 booklets in three weeks by using the testimony card in the street work and from house to house.' An elderly sister who is no longer able to go from house to house places between 60 and 70 magazines and booklets every Saturday morning while pavement witnessing.
+
+**OPPOSITION.** Apart from the customary antagonism exhibited at all times by those opposed to the Kingdom message there has been but little during the past twelve months calling for court action to defend the Kingdom interests. Several incidents during the year are worthy of mention, however. The first occurred in October. The town council of Kimberley passed a resolution to the effect 'that representatives of Jehovah's witnesses be not permitted to enter the Municipal Locations for the purpose of spreading their beliefs. That the superintendent of Native Locations be
+
+---
+
+<sup>**Page 188**</sup>
+
+[Open Page 188 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=188)
+
+Yearbook
+
+187
+
+instructed to cause any activities in the above connection to be discontinued forthwith in the locations, including the closing down of any halls or private premises used in that connection'. A copy of the resolution was handed to and duly published by the local press under the caption 'Russellites banned in Local Locations'.
+
+The superintendent immediately moved into action; broke into the Kingdom Hall in the absence of the brethren; seized their literature, blackboard, service charts and transcription machine, and smashed a little handcart used for wheeling the T.M. around, triumphantly handing the pieces of wood to lookers-on for firewood.
+
+We got after the town council and gave them 48 hours' notice to return the seized property and to pay damages for the cart, failing which legal action would be taken. To avoid court action they promptly sent us their cheque for £10 (fifty dollars) in settlement of our claim for the cart and damages.
+
+At first they wanted the brethren to call at the superintendent's office for their property, but, following our threat to take legal action to compel them to return it to the place from which it was seized, Superintendent O'Brien (guess his religion!) was obliged to return it to the Kingdom Hall. The local press published our news item that Jehovah's witnesses had won another victory and were carrying forward their educational work in the local locations as usual!
+
+Efforts were also made at several centers to interfere with magazine distribution on the sidewalks. One pioneer sister was hailed into court at Grahamstown (known as 'the city of saints' because of its many churches) and the charge sheet set forth that she 'did wrongfully lounge, congregate, or obstruct the sidewalk', etc. After hearing evidence the magistrate found her not guilty, pointing out that there had been no obstruction and that if the municipality wanted to bring prosecutions of this nature they should not single out one individual but should be consistent and bring up all those who stand on the sidewalk collecting. The local press carried a full report, and a good witness was thus given.
+
+#### Field Service Report for Union of South Africa, 1945
+
+|   | Special Pioneers | Pioneers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 5,662 | 36,667 | 36,435 | 925 | 79,689 | 28,511  |
+|  Booklets | 16,472 | 97,241 | 174,122 | 2,740 | 290,575 | 150,957  |
+|  Total | 22,134 | 133,908 | 210,557 | 3,665 | 370,264 | 179,468  |
+
+---
+
+<sup>**Page 189**</sup>
+
+[Open Page 189 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=189)
+
+188
+
+Yearbook
+
+|   | Special Pioneers | Pioneers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Pub's (mo. av.) | 15 | 92 | 2,884 |  | 2,991 | 2,339  |
+|  Hours | 32,142 | 161,394 | 771,314 |  | 964,850 | 754,273  |
+|  New subs. | 257 | 1,017 | 3,122 | 344 | 4,740 | 3,762  |
+|  Ind. mags. | 7,081 | 30,255 | 81,808 | 54 | 119,198 | 126,563  |
+|  Back-calls | 14,595 | 65,645 | 233,601 |  | 313,841 | 186,668  |
+|  No. back-call book studies (av.) | 185 | 984 | 3,608 |  | 4,777 | 3,063  |
+|  Average hours | 174.7 | 147.0 | 22.3 |  |  |   |
+|  Av. back-calls | 79.3 | 59.8 | 6.7 |  |  |   |
+|  Av. book studies | 12.1 | 10.8 | 1.3 |  |  |   |
+|  Companies in country |   |   |   |   | 244 |   |
+|  Peak number of publishers for 1945 service year |   |   |   |   | 3,466 |   |
+
+### Northern Rhodesia
+
+There are some 15,000 Europeans and a million Africans in Northern Rhodesia, which country spreads itself out over an area of 290,000 square miles. It includes much of the watershed of those great African rivers, the Zambesi and the Congo. For the past five years it has been a crime in that land even to have Bible-study books in one's possession, much less to preach the gospel by distributing them; but the Kingdom witness continues to be given by word of mouth. There has been a great increase in the work during the past twelve months. In January a full-time European publisher from the Union went up to assist, and this has given a further impetus to the work. The two Europeans in the depot have been obliged to give most of their time to looking after the interests of the work among the Africans, and it is hoped that additional publishers will soon be available to serve the European population effectively. Representations to the governor to remove the ban on the literature were again made after the close of the war in Europe, but this latest application has again been turned down without any reason being assigned. The depot servant reports as follows:
+
+"It is a pleasure to be able to report that the Kingdom publishers in this territory are in no doubt as to whom they serve, and the purpose for which they serve. Never before have the totals of work done reached their present level, and this applies to every activity that is available to them, and, in these days of difficulty, we give thanks to Jehovah for his care and blessing upon the united efforts which have been put forward to spread the gospel message.
+
+---
+
+<sup>**Page 190**</sup>
+
+[Open Page 190 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=190)
+
+Yearbook
+
+189
+
+'For five years the literature and gramophone records have been banned from importation, possession and distribution, and from time to time sporadic prosecutions are reported and those in possession of books are sentenced to from one to three months' hard labor by the magistrates; but these prosecutions only serve to awaken the sympathy of fellow Africans in these cases, and instead of the witness work being hindered, a more effectual testimony is given, and one most certainly inside the prisons. It has become clear that defeat of persecution is a practical thing by the aid of God's spirit.
+
+'The official mind is one of non-recognition still, but individually there are some encouraging instances of a definite respect for the cleanliness, decency and industry of Jehovah's witnesses. The huge numbers now associating with us in the mining centers (and it is no uncommon thing to attend a gathering of 800) are beginning to impress deeply those who directly control Africans, and, as an instance of this, after four months of correspondence with the Mufulira Town Management Board a free plot has been granted for the erection of a Kingdom Hall. Credit is due for this to some officials who spoke boldly for us, and there is great enthusiasm on the part of the friends to put up the building, the first of its kind in Northern Rhodesia, to give an adequate testimony to their faith and zeal, and to provide a safe shelter for those who would share with us in Zion's blessings and responsibilities. There is little doubt that this is but the beginning of a tremendous impetus which will impress the many who now stand and watch with sympathetic interest and a quickening faith. One thing even now cannot be avoided in regard to our gatherings in these large numbers: the singing is wonderful to hear.
+
+'The servants to the brethren have, on the whole, done work worthy of special mention. They have to travel miles from center to center over country tracks which, in winter-time, are often so flooded that the cycle has to be carried and others bring the loads afterwards. These friends visit companies composed of groups who have perhaps one or two readers among them, and maybe just a part of the Bible translated in their particular vernacular. And so, as the evenings draw on the servant to the brethren sits down beside the fire and tells the message briefly, emphasizing the essential Kingdom truths to a people who, for the first time, get it in some sort of order. They concentrate their energies and have to leave all too soon for another similar company composed, at times, of those who can only read indifferently and certainly cannot count at all, and the calls are often and continuous for more help. The desire to serve is always present; the spirit is willing, but the circumstances are difficult and the more go-ahead find their way to the rail
+
+---
+
+<sup>**Page 191**</sup>
+
+[Open Page 191 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=191)
+
+190
+
+Yearbook
+
+head for higher wages and better living conditions. The lack of competent servants to the brethren has been one of our most serious problems, particularly when the language problems are to be carefully considered.'
+
+### Southern Rhodesia
+
+Although the publishers are still unable to import the Kingdom literature, the educational work of Jehovah's witnesses has greatly increased in magnitude. There has been an average of 1,871 Bible studies held in the homes of interested people each month, to compare with 1,155 the previous year. During the year 886 persons of good-will symbolized their consecration to do the will of God. Company organizations have increased from 49 to 63. A checkup at the end of the year revealed that there were 5,079 publishers and persons of good-will in association with these companies. Many of the latter will undoubtedly become active when the literature is available again.
+
+Application has again been made for the removal of the restrictions, and assurance has been given that it will receive consideration at an early meeting of the Southern Rhodesia Cabinet. We look forward to the outcome.
+
+As a result of the activities of the friends in one of the districts, an African chief made an endeavor to find out the difference between religion and Christianity by inviting representatives of religion in his district together with Jehovah's witnesses to call upon him so that he might hear the two sides of the issue. The witnesses reached the rendezvous at the appointed time and found the chief with his retainers awaiting but no representative of religion present. The chief called upon the witnesses to explain their work, which they did, quoting extensively from _Theocracy_. The chief then stood up and thanked the witnesses, stating that now he knows they talk truth because they do not speak their own words but the words of God from His Book the Bible. He invited the witnesses to call upon him any time they passed his way, and added that he also knows why the representatives of religion did not attend the meeting.
+
+We were glad to receive news of the Assembly April 27-29 and began to make arrangements for this outstanding event. Application was made for the small City Hall, Bulawayo, by the Europeans for the public discourse between 4 and 5 p.m. on Sunday the 29/4/45 and also for the five following Sunday afternoons for the series of talks to follow. The city council granted the accommodation, which was much appreciated by us. Two interesting news items relative to this matter appeared in the Bulawayo _Chronicle_ of April 4, 1945, and they are set out below.
+
+---
+
+<sup>**Page 192**</sup>
+
+[Open Page 192 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=192)
+
+Yearbook
+
+191
+
+# 'JEHOVAH WITNESSES LECTURES
+
+'The Bulawayo City Council—through its General Purposes Committee—has agreed to hire the small City Hall to a representative of the Company of Jehovah's witnesses for six Sundays from April 29, between 3:30 and 5:30 p.m. for the giving of lectures on Bible subjects. The committee has stipulated that only Europeans shall be admitted to the lectures.'
+
+# 'WHAT IS THE DIFFERENCE?
+
+'Will not a curious position arise if the Bulawayo City Council agrees today to a resolution of its General Purposes Committee that the small City Hall be hired to the Company of Jehovah's witnesses on certain Sundays for lectures on Bible subjects? There was a case before the Southern Rhodesia High Court in 1937 when it was decided by the present chief justice of the colony that according to the law as it then stood the literature of this movement was not seditious. There have, however, been subsequent cases, under war legislation or regulations, in which adherents have been fined (with the alternative of imprisonment) for the distribution of the literature of the movement. Appeal was lodged, but the then chief justice ruled that the government had decided that the literature of the movement was not to be circulated in this country. How far lectures on Bible subjects will differ from the teaching of the movement's literature cannot be said, but on the face of things it seems queer that while the distribution of the literature is an offense the public statement of the movement's doctrine is to be facilitated by a local governing authority. We are all in favor of perfect freedom in the expression of religious beliefs, but find it difficult to understand how one form of expression can be encouraged and another form of expression be an offense which justifies prosecution in the courts. Nor is it possible to think that the Bible lectures will be so divorced from the movement's gospel as laid down in its literature as to account for the differentiation. Surely there is here revealed a divergence of viewpoint which needs explanation.' \[Cut from the editorial column of Bulawayo _Chronicle_ d/d 4/4/45.]
+
+The town clerk gave permission for two large posters to appear at each of two entrances to the City Hall. Small showcards were also prepared and displayed in shop windows. A friend was detailed to supervise these, and if one was withdrawn because some religionist visited the shop explaining that exhibiting such a poster would seriously affect his business, the friend retrieved the card and it went into another shop window. And so they went 'round
+
+---
+
+<sup>**Page 193**</sup>
+
+[Open Page 193 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=193)
+
+192
+
+Yearbook
+
+and round the village'! The convention was a joyful occasion for all who attended and it was indeed thrilling.
+
+### Nyasaland
+
+Nyasaland, in Central Africa, is the smallest protectorate in the British Commonwealth of Nations. It covers an area of less than 50,000 square miles, of which 10,575 are under water. There are only 2,000 Europeans in the country, and just under two million Africans. Although taught and encouraged to develop their abilities, the remuneration and standard of living of the Africans are very low indeed and many, particularly among the women, are illiterate. Although for many years a stronghold of missionary societies, the Kingdom message has taken firm root and an extensive witness has been given in recent years.
+
+During the past year the Kingdom publishers, owing to a continuance of the government ban on the importation of Bible helps, have been obliged to carry forward their educational work with the literature already in the country. Although this has restricted the work somewhat, the publishers have increased in number from 2,592 to 2,979 sharing each month and there has been a big increase in hours, back-calls, and back-call book studies.
+
+**SOME INTERESTING EXPERIENCES.** One day as witness Peter was giving the witness to three women another who was a Catholic slipped off to carry the tale to the 'bambo' ('white father') in the vicinity. As Peter was delivering the message the priest crept up quietly behind him, doubtless hoping to catch him out as was the wont of the Pharisees in the days gone by. (Luke 11:54) When Peter noticed the people looking past him he turned, to find the priest standing just behind him; but, undisturbed, he completed his job. Next morning the priest gathered together his deacons: 'Come, let us go and beat up Peter.' Off they went to Peter's house, and on arrival told him 'Go, fetch your Bible.' Thinking that they wished to have a discussion Peter fetched his Bible and waited on them to speak, but they said not a word. When Peter saw that they had nothing to say he asked one of the brethren to read out John 5:39, after which he said: 'Such are those who are of God.' The priest and his deacons then withdrew.
+
+Next day after the priest had left, the deacons came to Peter asking him, 'What medicine gave you the strength to stand so firmly and without fear?' When Peter explained that the only 'medicine' he had was the truth, they said: 'Indeed Jehovah's witnesses are God's people.' As a result of that episode many people have taken heart and are now attending Bible studies without fear of what the priests may do to them. The priest later on told his deacons:
+
+---
+
+<sup>**Page 194**</sup>
+
+[Open Page 194 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=194)
+
+Yearbook
+
+193
+
+'That is a learned man; do not attempt to enter into arguments with him.'
+
+Very often after a study in the home of an interested friend the attendants wish the publisher to come again the very next day; then when for some reason or other the publisher fails to turn up the interested hunt him up in his own home. Attendance at a properly-conducted study in a home reaches from 10 to 30 at a time; if there is no room inside they squat down outside the door. Some attempt to raise up opposition even after a clear-cut exposition, but the ones of good-will rise up in a body to sit on them: 'If you do not want to hear these things we do, either keep quiet or go away, but don't interrupt.' Questions are fairly showered upon the conductors, from Genesis to Revelation!
+
+LITERATURE. As you know, the request that the importation ban be removed has been put before the government for consideration and we are now awaiting a reply. There is no reason why the regulations should not be removed and the people enjoy the freedom of once again studying the Theocratic truths of Jehovah. Many hundreds of people ask after the literature: 'Will the books be available again?' In so far as worldly goods are concerned, Nyasaland is poor, but spiritually it is full of possibilities abounding unto a rich harvest, great companies of people of good-will making themselves known but yet to take a firm and unquestionable stand for The Theocracy. We express our thanks to the great Jehovah for the great revelations that have been poured out and pray that we may be worthy of continuing to pass them on to others.
+
+### Portuguese East Africa
+
+Portuguese East Africa, or Mozambique, is bounded on the east by the Indian ocean and on the landward sides by the Union, the Rhodesias, Nyasaland, and Tanganyika. The total area is about 300,000 square miles. There are about 20,000 Europeans and 4,000,000 Africans. Owing to the illiteracy of the population in this Roman Catholic territory the educational campaign makes slow progress. It is one of the remaining 'darkest' spots in Africa, in which the arts of 'black magic' are the fear of the people: where people 'turn into leopards, lions or buffaloes and destroy their enemies'. Added to this there has been a total prohibition of the Kingdom literature in recent years and it has been difficult to get regular reports.
+
+In the face of these difficulties the Kingdom publishers have gone ahead with their work using such literature as was available. The average number of monthly publishers has doubled during the year. Since April the reports have been more regular again. At the Memorial 120 were present, none of whom partook of the emblems. Reports have been
+
+---
+
+<sup>**Page 195**</sup>
+
+[Open Page 195 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=195)
+
+194
+
+Yearbook
+
+received from 9 companies, and in April 128 shared in the field service. These are all African brethren, a considerable number of whom have gone into that country from Nyasaland and Rhodesia to work on the sugar estates. Their hours of secular duty are many, but they have averaged 19.8 hours in the field service.
+
+There are no full-time publishers resident in that country, but as opportunity permits one of the Nyasaland servants visits the companies to help them.
+
+A considerable amount of literature was placed with the Portuguese some years ago by pioneers from the Union, but although there is known interest none of them has thus far openly taken his stand for the Kingdom.
+
+### Tanganyika Territory
+
+Immediately to the north of Portuguese East Africa is Tanganyika, a huge territory of 360,000 square miles. In this vast country there are only some 10,000 Europeans and over 5,000,000 Africans, with about 35,000 Asiatics and Indians. Great Britain has a mandate to administer the colony.
+
+There are now three companies organized for service. Their work consists mainly of giving out the message by word of mouth and in assisting interested ones by back-calls and studies. Once in a while some reading matter reaches them, and there is great joy in the camp. Good use is made of such items and all benefit therefrom.
+
+### St. Helena
+
+St. Helena, in the South Atlantic, is about 1,400 miles northwest from Cape Town. Very few boats have called there during the war years and regular correspondence has been difficult and at very irregular intervals. No reports were received during the previous service year, but in the year just ended six have come to hand. These indicate that there has been an average of 13 publishers sharing in the field service.
+
+The islanders are poor and there is much religious prejudice. Two phonographs were put to good use, and the sound attendance totaled 521. The small amount of literature on hand was placed in the hands of interested ones. Back-calls were made, and one regular book study has been in progress for some months.
+
+### Conclusion
+
+The light from the temple shines ever more brightly, greatly enhancing our appreciation of the privileged position we enjoy as a people for Jehovah's name. Strengthened by the spiritual food in _The Watchtower_ and joyfully acknowledging the direction of the Lord through the govern-
+
+---
+
+<sup>**Page 196**</sup>
+
+[Open Page 196 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=196)
+
+Yearbook
+
+195
+
+ing body, our desire is to hold fast our glorious treasure of service and to press forward with the work of discipling the nations. We have read with joy and keen interest the report of your missionary labors in South America and Central America and look forward to the day when you will be able to visit this part of the earth to help organize the work more effectively. All the friends in Southern Africa join with me in sending warm love and greetings to you and to all our brethren at headquarters.
+
+### SWEDEN
+
+Throughout World War II Sweden was a neutral country. It was difficult, however, to keep in constant communication with the branch office. There were many shortages affecting all people in daily life, and, of course, the shortage of gasoline, bicycle tires, etc., held up Jehovah's witnesses to some extent in covering territories throughout the land. The greater portion of the work was confined to city activity.
+
+The clergy have taken a definite stand against the truth and have for some time tried to ridicule it. But this does not deter Jehovah's witnesses from moving ahead with the proclamation of the truth concerning the Kingdom. It is interesting to note what the Norwegian professor, Didrik Seip, for several years a prisoner in a German concentration camp, had to say about Jehovah's witnesses. Excerpts from the Branch servant's report follow.
+
+The open opposition met with during last year has quieted down considerably during the year just ended, but the majority of people are, one might say, haughtily indifferent toward the Kingdom message. It is, however, both interesting and gratifying to note how Jehovah's witnesses have become known, and how many people, although not understanding or believing in what we proclaim, do see that our message is the very opposite of religion. As an example of this, a university man, writing in one of the leading dailies on the state of religious freedom in this country, stated: 'Every Swedish citizen is, as the reader well knows, obliged to subscribe to a religious faith, and must then keep within the relatively narrow border lines: he must hold to either the Christian or Mosaic confession. If he be a Christian, however, he has quite a lot to choose between, from Jehovah's witnesses on the one hand to Roman Catholicism on the other.'
+
+---
+
+<sup>**Page 197**</sup>
+
+[Open Page 197 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=197)
+
+196
+
+Yearbook
+
+In last year's report I mentioned, among other things, that a university professor of theology wrote a booklet about Jehovah's witnesses which gave occasion for many slanderous articles in the newspapers against us. It afterwards turned out that the booklet was written at the instance of the government Board of Information. Towards the end of the war several refugees were brought here from Germany through the agency of the Red Cross, and among these was a Norwegian professor, Didrik Seip by name, the rector of Oslo university. He had, together with many other Norwegian university teachers and students, spent several years in German concentration camps.
+
+In the month of May this professor lectured at the university of Lund, Sweden, about his experiences in the German camps and, according to reliable evidence, the author of the pamphlet against us was present in the audience. The Norwegian professor related that Jehovah's witnesses had been in prison and concentration camps because of their preaching and of their consistent stand against the Nazi government. They were the best people one could imagine, said the professor, better comrades are not to be found, and he went on to explain that Jehovah's witnesses had performed a magnificent and unparalleled work. In spite of the severe pressure to which they were subjected they kept themselves and their barracks tidy and clean, and that alone was a magnificent performance under the conditions in which they were living. They had apart from this managed to obtain bandages and medicine from outside and went around, despite their own sufferings, helping the sick and wounded; and, said the professor, if Jehovah's witnesses here in Sweden are of the same stamp, then that which has been written against them in the press, etc., is a mass of lies.
+
+Among former inmates of German concentration camps brought here there were also a number of Jehovah's witnesses themselves. These were of Polish, Dutch, Belgian and Austrian nationality, and one German, most of them sisters. Special reports of their experiences have already been sent to you, and some more will follow. The friends in various parts of the country who met with these brethren during their stay here (the majority have already been sent back to their homelands) have reported that it was most encouraging and an incentive to zeal to see and talk with these dear ones and notice that their one and only concern was the magnifying of Jehovah's name.
+
+Speaking of incarceration, the brethren here have had their share this year also, both as regards those who have been called up to do military service, which they could not conscientiously do, and those who could not take on any sort of compulsory work and thereby forsake their
+
+---
+
+<sup>**Page 198**</sup>
+
+[Open Page 198 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=198)
+
+Yearbook
+
+197
+
+God-given work of preaching 'this gospel of the kingdom' and 'comforting all that mourn'. Among the jobs for which certain men were called up was that of being trained to take care of the dead in case of air-raids, etc. When a brother of the office staff refused this service, quoting the Master's command: 'Let the dead bury their dead: but go thou and preach the kingdom of God,' he was, of course, sent to prison. Part of the sentence had to be served among thieves and criminals of the worst type at a penitentiary where the inmates were working and sleeping together (ordinary prisoners are kept in single cells). When the brother left their company these criminals were reported to have said that there had been an angel among them.
+
+The authorities, feeling embarrassed at the consistency of the witnesses and their persistence, and perhaps somewhat concerned because some newspaper editors, while not agreeing with the witnesses, nevertheless strongly pointed out how useless and undemocratic it was to have such men imprisoned, when they should instead be 'enlightened' (!) as to the foolishness of their attitude, arranged to have those who refused to take up any compulsory work at all mentally examined. The examinations took place in three different towns, and each of those examined was questioned by a priest and two doctors during five to six days. The brethren who were subjected to this agreed that it was a most encouraging experience, affording splendid opportunities to give a witness. The priests serving at these examinations were so confused and nervous that even the doctors were amused, and the doctors themselves admitted that Jehovah's witnesses were, as a rule, very intelligent people of strong convictions and of a high moral standard, and could not be swayed by various doctrines or feelings, such as was the case with adherents of different religious movements which could be reckoned as disturbers of the peace
+
+All these actions on the part of the government have, of course, hindered the brethren in the pioneer service to quite an extent, as the figures for the average hours go to show.
+
+Special pioneers have during this year been sent also to those towns where there are companies, although too weak to look after the interests properly, and this seems to be having the Lord's blessings. We are very glad of the opportunity of thus helping such companies which have formerly been a considerable problem. The arrangement for the servants to the brethren to now meet with these special pioneers has proved to be a very helpful one, as some of these pioneers had not quite understood how to best arrange their time, etc., and handle the work to best advantage.
+
+---
+
+<sup>**Page 199**</sup>
+
+[Open Page 199 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=199)
+
+198
+
+Yearbook
+
+Four brethren have been engaged in this work as servants to the brethren, and three of these have had to spend between them five months in prison, while between two and three months were taken up by court proceedings, etc.
+
+MAGAZINES. The outstanding feature of the service year was the Watchtower Campaign, which was carried on from November to February inclusive, and as a result of it the Watchtower subscription list has increased from 6,392 to 7,690 "direct subscriptions". "Distributors' copies," subscribed for beforehand, increased from 1,951 to 2,060. The edition printed of each issue has been 13,000 on average. It is encouraging to notice how more and more people are taking to The Watchtower, and certainly its contents are "meat in due season" for the "stranger" class as well as for the anointed ones.
+
+Field Service Report for Sweden, 1945
+
+|   | Special Pioneers | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 3,493 | 11,558 | 9,676 | 190 | 24,917 | 38,978  |
+|  Booklets | 36,586 | 114,940 | 301,588 | 2,303 | 455,417 | 519,138  |
+|  Total | 40,079 | 126,498 | 311,264 | 2,493 | 480,334 | 558,116  |
+|  Pub's (mo. av.) | 34 | 108 | 2,508 |  | 2,650 | 2,542  |
+|  Hours | 68,920 | 142,908 | 331,380 |  | 543,208 | 572,166  |
+|  New subs. | 900 | 4,170 | 6,446 | 1,401 | 12,917 | 13,452  |
+|  Ind. mags. | 52,766 | 180,326 | 453,650 | 1,070 | 688,812 | 723,193  |
+|  Back-calls | 18,718 | 23,469 | 77,435 |  | 119,622 | 110,773  |
+|  No. back-call book studies (av.) | 124 | 141 | 504 |  | 769 | 671  |
+|  Average hours | 168.9 | 110.3 | 11.0 |  |  |   |
+|  Av. back-calls | 36.3 | 18.1 | 2.6 |  |  |   |
+|  Av. book studies | 3.6 | 1.3 | 0.2 |  |  |   |
+|  Companies in country |   |   |   |   | 461 |   |
+|  Peak number of publishers for 1945 service year |   |   |   |   | 2,867 |   |
+
+In concluding this report I beg to forward to you the love and hearty greetings of all the family at the Bethel here. There have been rumors about your coming over to Europe, and I beg to say that we genuinely hope that it will be possible for you to visit us also.
+
+### SWITZERLAND
+
+The chains of war bound Switzerland, even though it was a neutral nation. Because of fear of the rising
+
+---
+
+<sup>**Page 200**</sup>
+
+[Open Page 200 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=200)
+
+Yearbook
+
+199
+
+Nazi power, many restrictions were placed upon the people of Switzerland during the war. These are gradually being lifted and, of course, this affects Jehovah's witnesses. Our brethren there have gone through many trials and difficulties, but they have stood firm. The witness work continued to advance, and there are more publishers of the Kingdom today than at any time in former years.
+
+By the Lord's grace, the Swiss brethren have taken good care of our German brethren, being able to supply them from time to time with the much-needed food. Of course, the German brethren had other sources of supply; but Jehovah's witnesses in Switzerland were alert and ready to help. Immediately at the close of the war, when the German-Swiss border was again partially opened, our brethren made communication with each other. The faithful servants of the Lord in Germany welcomed the Swiss brethren with open arms and rejoiced to hear all the good things that hadn't reached their ears up to that time. Since then fair communications have been established between certain points in Germany and our Swiss office.
+
+Some interesting times were had in Switzerland. Briefly, it might be related that a convention was arranged for the city of Lucerne and the public talk to be given was 'Peace—Can It Last?' But the police believed it inadvisable to have a public lecture, even though Switzerland was supposed to have free speech; and, too, notwithstanding the fact that this lecture had been given in many other cities throughout the land. Powerful religious authorities in the canton of Lucerne said, 'You can't preach here.' The lecture was then put out in booklet form, and promptly at ten o'clock of a Sunday morning 182 publishers went into Lucerne and distributed 13,811 booklets, practically every home being served. The newspapers in other parts of Switzerland made quite an ado about this eventful situation. They pointed out if the police authorities violated the guarantees of freedom of assembly and speech, then Jehovah's witnesses did right in
+
+---
+
+<sup>**Page 201**</sup>
+
+[Open Page 201 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=201)
+
+200
+
+Yearbook
+
+going to the people with the printed page and letting them read the message. While the newspapers do not agree with the teachings of Jehovah's witnesses, they know we are fighting for freedom on the home front; therefore they came out boldly and stated: 'It is one of our duties to stand for the freedom of worship which is anchored in the Federal Constitution.'
+
+Jehovah's witnesses stand out prominently among the people, not by reason of their great numbers, but because of their valiant fight for freedom and because they speak the truth. Some of the problems that had to be handled by our brethren in the past year will be of real interest to the reader of Jehovah's witnesses' _Yearbook_. The Branch servant states the following in his annual report.
+
+Although rather drastic measures were taken against Jehovah's witnesses, this was not because the laws of the land regarding the free expression of opinion are narrow-minded or backward, but because conditions created by the war imposed many restrictions upon Switzerland. It is true that the fear of the Nazi terror had something to do with this, so that many a decree clearly bore the stamp of that superior power.
+
+What were these measures? Firstly, we were placed under preliminary or preventive censorship; then all the publications were confiscated and carried off by lorries; the Branch servant was indicted on account of 'violation of the prescription regarding censorship', and 'participation in the aims and purposes of Jehovah's witnesses', the latter being considered as an organization dangerous to the state. The Branch servant was sentenced to two years' imprisonment and five years' suspension of his civic rights, and some of his co-workers of the Bethel home and farms received longer or shorter sentences; as a last measure came the police control of the internal as well as public assemblies of Jehovah's witnesses.
+
+But hardly had Nazism and Fascism begun to crumble, when, without long hesitation, the Swiss authorities began to loosen or cancel the measures decreed against us. Soldiers had to bring back the confiscated literature into the Society's building.
+
+Today there is but one decree still in force: the police control of our public meetings. However, steps have been taken with a view to having this measure rescinded.
+
+The case of the Branch servant was brought before the highest military court composed of colonels of military
+
+---
+
+<sup>**Page 202**</sup>
+
+[Open Page 202 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=202)
+
+Yearbook
+
+201
+
+justice and professors of law. Against all expectation, this judicial authority decided the case in favor of the accused by granting him a suspended sentence, thereby sparing him imprisonment, and allowing him to remain busy in his privileged service. He was also not deprived of his civic rights. Thanks to this new judgment in which the highest military tribunal had proved its independence, the confidence of many upright citizens of Switzerland was strengthened again in a Swiss Constitutional State and the oldest democracy known that guarantees as highest principle the liberty of faith and conscience.
+
+On the 1st of October 1944, after having been suspended for almost five years, The Watchtower in German and French appeared again. This was a great surprise for the brethren attending the three regional service conventions organized in Berne, Basle, and Zürich. The Course in Theocratic Ministry was also released at these assemblies, together with other service aids.
+
+In the same month postal communications between Switzerland and America were temporarily reopened, and it was possible for us to dispatch the first letter to the president of the Society with an exhaustive report.
+
+Then in November the military authorities unsealed the room in the Bethel in which the literature, hereinbefore mentioned, had been kept, which had formerly been confiscated and carried off, only to be returned to the Bethel again for storage. Several days were needed to count this literature, which the soldiers had to do themselves.
+
+At the beginning of January, 1945, we received the first letter from the president of the Society after several years, which, when read to the Bethel family, and the brethren on the farms, called forth great joy and gratitude.
+
+On the 9th of January we began with the public lecture campaign in the larger towns throughout Switzerland, after having given a lecture in the second half of November in the big halls of the Basle Fair Buildings on the subject "Peace—Can It Last?" Without knowing that the head office of the work had at the same time given instructions for such a public lecture campaign to be carried on throughout the whole earth, we had commenced with this here. To learn of this later caused us great joy and strengthened our faith. The subject was also the same.
+
+From the time of the Memorial, communications from Brooklyn reached us more or less regularly. Likewise The Watchtower, Consolation, and the Informant. The work here began to receive new life in that we were again united to the central organization, which we had so missed during the preceding years.
+
+The 20th and 21st of May were days of great blessing for God's people in our country. Then 3,219 persons united
+
+---
+
+<sup>**Page 203**</sup>
+
+[Open Page 203 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=203)
+
+202
+
+Yearbook
+
+in the yearly general convention held in the beautiful halls of the Zürich House of Art. This convention constituted at the same time the commencement of a new activity. Just before, we had received news from brethren in the concentration camps, and now at this convention we were able to remember them in a special way. Generally it was said: 'This was the grandest convention ever!'
+
+On the 28th of May we received the news from a sister living in Magdeburg that the property of the Society there had been preserved through the years of hostilities, which information was immediately passed on to the president.
+
+A further report sent by the military authorities afforded us also great joy, namely, that the book _Enemies_, which had remained under confiscation longer than the other literature, owing especially to the designation of the two dictators, Hitler and Mussolini, as 'gangsters', was also declared free.
+
+The proclamation activity in Switzerland requires considerable sacrifice on the part of the brethren and friends because it is forbidden to sell publications without a license; not even voluntary contributions for the work should be accepted. Thus it is that the brethren in Switzerland spend year by year about 100,000 francs for literature spread, and traveling expenses into outlying territories. For several years we have fought against such unjust judicial rulings, and we hope that, with the help of the Lord, the courts may eventually be brought to fairer views regarding our activity.
+
+# **'Epistles . . . known and read of all men'**
+
+It is said in this report that several co-workers of the Berne Bethel and the farms on account of their personal convictions (in the military service question) were sentenced to longer or shorter prison sentences: to two, three, six and eight months, and from one to two and a half years; brothers in the companies even up to three years. All the managers of the various prisons gave the best testimonials to the behavior and uprightness of our brethren, as also to their capabilities and work done. One of the prison directors, who is also a military judge, immediately saw in one of the brothers sentenced a capable worker for his office and appointed him as his 'private secretary'.
+
+Another brother, who served a sentence of fifteen months in this same institution, after his release requested the service department in Berne to assign to him the whole property of the penitentiary as personal territory. He now regularly visits over 40 overseers and their families, and a number of these have become regular readers of our publications; even one of the directors is now a reader of _Consolation_.
+
+---
+
+<sup>**Page 204**</sup>
+
+[Open Page 204 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=204)
+
+Yearbook
+
+203
+
+Field Service Report for Switzerland, 1945
+
+|   | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- |
+|  Books | 43 | 2,193 | 4,972 | 7,208 | 4,568  |
+|  Booklets | 20,713 | 835,020 | 4,800 | 860,533 | 455,647  |
+|  Total | 20,756 | 837,213 | 9,772 | 867,741 | 460,215  |
+|  Publishers (mo. av.) | 3 | 1,462 |  | 1,465 | 1,266  |
+|  Hours | 5,950 | 187,056 |  | 193,006 | 182,114  |
+|  New subscriptions | 170 | 4,988 | 376 | 5,534 | 5,039  |
+|  Individual mags. | 4,960 | 231,963 | 669 | 237,592 | 231,590  |
+|  Back-calls | 3,233 | 52,903 |  | 56,136 | 64,732  |
+|  No. back-call book studies (av.) | 84 | 1,262 |  | 1,346 | 1,842  |
+|  Average hours | 135.2 | 10.7 |  |  |   |
+|  Av. back-calls | 73.4 | 3.0 |  |  |   |
+|  Av. book studies | 22.7 | 0.9 |  |  |   |
+
+Companies in country 73
+
+Peak number of publishers for 1945 service year 1,644
+
+Closing this report on the work in Switzerland, we wish to express the assurance that Jehovah's people and their companions rejoice with full hearts at the grand prospect of a more intensive activity also in their country, and generally of a wide proclamation work all over the globe. They want to participate therein, closely united with Jehovah's people everywhere on earth.
+
+### TRINIDAD
+
+There are many good-will people in the British Indies. Trinidad is one of these islands; so are Barbados, Grenada and St. Vincent. It is hoped that in the coming year a greater witness will be given in this territory. Some graduates from the Watchtower Bible College of Gilead will soon be on their way to Barbados, there to help the brethren in organization and to carry on special pioneer activity. As opportunity affords, they will visit the other islands to aid in organizing the companies and give a wider witness for the Kingdom.
+
+A report is to hand from the Branch servant, showing us what has been done in the last year.
+
+---
+
+<sup>**Page 205**</sup>
+
+[Open Page 205 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=205)
+
+204
+
+Yearbook
+
+While the difficult literature situation here, due to the ban on the Society's publications, has now become even more so, yet the work goes on and has even shown progress. Time spent in the witness work shows an increase of 40 percent in hours over the previous year. New interest is shown in many places, and in the circulation of our recent petition to the secretary of state for the release of the literature from the ban, in a few weeks more than 20,000 signatures were obtained, thereby indicating that there are many in this colony who are interested in the work of Jehovah's witnesses and desire that the restrictions under which we suffer should be removed. The Trinidad Guardian of Saturday, September 15, carried the following item regarding the petition:
+
+# '20,000 SIGN PETITION FOR FREE WORSHIP
+
+'More than 20,000 residents here have signed a petition for submission to the Rt. Honorable George Hall, the secretary of state for the colonies, requesting him to take appropriate action to relieve the religious organization known as Jehovah's Witnesses of what have been described as oppressive measures curtailing their Christian missionary work in the colony.
+
+'Signatories to the petition include Mr. G. L. Tala, attorney of the Watch Tower Bible and Tract Society, and the Honorable Albert Gomes.
+
+'The petition sets out that the organization is comprised of persons who have charitably carried on Christian work in the colony before the year 1913, using literature of the Watch Tower Bible and Tract Society, and refers to a proclamation in 1936 by the then acting governor prohibiting the importation of literature, and to various attempts made by the organization to get the restrictions removed.
+
+'It also recalls a reply by a former secretary of state that the matter would be taken up for consideration after the war following a resolution sent to him in 1940, and to a refusal by the local government in April this year to remove the prohibition.
+
+'Claiming that they were mindful of Britain's determination to maintain for all its people the four freedoms, the petitioners are asking that, now the war is over, steps be taken for the removal of all restraints against the organization which freely gives the people a comforting message from the Word of Almighty God to cheer and sustain all persons of good-will at this time.'
+
+In a certain large housing district recently opened by the Planning and Housing Commission of the government, a company of brethren (4) have confined their witness work for almost the entire year and have found much interest among the people there, with some of whom they have
+
+---
+
+<sup>**Page 206**</sup>
+
+[Open Page 206 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=206)
+
+Yearbook
+
+205
+
+started home studies. There are four schools of Theocratic ministry in the island, all making good progress. Public lectures are being delivered from place to place. Besides the books shown on the tabulated report, quite a number of Watch Tower Bibles have been placed in the hands of the people.
+
+BARBADOS. In spite of the handicap of no literature for distribution in this island for the first nine months of the year, good work has been done; the hours in the witness work were increased by 75 percent, and back-calls by nearly 150 percent. Since the ban has been lifted and the brethren have been receiving their supplies of literature they have been going forward with greater rejoicing. They have been fortunate in securing the use of a theater and are in the public lecture campaign.
+
+DOMINICA. A few brethren are active on this island, but they are in need of assistance. Although there is much opportunity for publishing the Kingdom message, the brethren need better organization in order to conduct the witnessing in an effective manner. It is hoped that college brethren will be able to assist here in the not-far-distant future, if such be the Lord's will in the matter.
+
+GRENADA. The work in this island has been somewhat backward, but some literature has been received and two brethren from Trinidad, in full-time service, are there now in an effort to revive the spirit of the brethren and the work generally. A good many books and Bibles have been placed since their arrival and there are a few interested parties.
+
+ST. VINCENT. The brethren in this island rejoiced to receive some books once more, and enthusiastically put them all out in the one month of their arrival. The packages sent from Brooklyn, however, never came to hand.
+
+Field Service Report for Islands Under Trinidad, 1945
+
+|   | Trinidad | Grenada | St. Vincent  |
+| --- | --- | --- | --- |
+|  Books | 655 | 1,085 | 80  |
+|  Booklets | 11,468 | 665 | 16  |
+|  Total | 12,123 | 1,750 | 76  |
+|  Publishers (mo. av.) | 300 | 15 | 5  |
+|  Hours | 35,700 | 2,885 | 1,601  |
+|  Back-calls | 4,753 | 252 | 632  |
+|  No. back-call book studies (av.) | 195 | 10 | 12  |
+|  Average hours | 9.9 | 16.0 | 26.6  |
+|  Av. back-calls | 1.3 | 1.4 | 10.5  |
+|  Av. book studies | 0.8 | 0.8 | 2.4  |
+
+---
+
+<sup>**Page 207**</sup>
+
+[Open Page 207 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=207)
+
+206
+
+_Yearbook_
+
+### URUGUAY
+
+This country is the smallest South American republic. It is one of the best countries, too, for the preaching of the gospel. For some years past there have been faithful workers proclaiming the message of the Kingdom; but it has always been their keen desire to have further instruction and better organization. This was accomplished during the 1945 service year. It was possible to send to them a graduate from the Watchtower College, and the brother now in charge of the work has been a great aid to all the publishers. Uruguay had been handled by the Society through the Argentine office until this past year, when a branch office was established. This new arrangement has proved to be proper, because, instead of having 21 publishers in the field as formerly, 62 took part in the service during the year.
+
+There is much work to be done in the fine, large, clean cities of Uruguay. The Society is planning to send Theocratic educators into the country during the 1946 service year. With the new organization well established, and more publishers coming into the field, it is believed that many people of good-will in Uruguay will be made “glad” with Jehovah’s witnesses, for they certainly carry a comforting and joyful message. The Branch servant’s report sets out the happenings of the past year.
+
+Early in the service year, October, a convention was arranged for in Paysandú, one of the principal cities of the country. Some brethren came over from Argentina to attend the convention and help in the advertising work. After a half-hour broadcast by the Branch servant from Argentina the brethren asked the radio station owner how much they owed, and he said: “Nothing; that’s the way I feel about religion too. When you have another broadcast to make, be sure to let me know.”
+
+Later it was made known that the president of the Society would make a visit to all the South American countries where there are representatives of the Society and this included Uruguay. The brethren were thrilled no end and determined to make the best of this, the first visit to the country by the Society’s president.
+
+---
+
+<sup>**Page 208**</sup>
+
+[Open Page 208 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=208)
+
+Yearbook
+
+207
+
+Brother Knorr arrived two days ahead of time, which was certainly no disappointment to the Uruguayan brethren, and they heartily welcomed him and his traveling companion, Brother Franz. At the same time one of the brethren from Gilead also arrived. All were introduced at the Society's quarters at the same time by the Branch servant from Argentina.
+
+Saturday was the first meeting. There were about 40 in the hall to begin with, but the Uruguayans kept coming until it was filled to capacity and some were standing along the walls, 132 in all. This was a surprise for Brother Knorr. As no arrangement for a public meeting had been made for Uruguay, Brother Knorr announced that there would be such a meeting the next day, Sunday, with the discourse 'One World, One Government'. The news ran like wildfire, and by noon the next day all the interested parties had been advised and they were advising still others. More than 140 were in attendance, and even more for the _Watchtower_ study afterwards and to hear Brother Knorr's account of his visits to all the other South American countries.
+
+During his visit Brother Knorr reorganized the Society's Branch, inaugurated the special pioneer work, assigning four capable brethren to this field of service. Six new general pioneers were also enrolled during this time. The spirit of the brethren was now running high and all were so full of 'alegría' (enthusiastic joyfulness) that they could hardly contain themselves. From the instruction discourses they had learned what to do and how to better care for the interests of the Kingdom.
+
+At the _Watchtower_ study, when the work on the street was explained a young man who had told one of the publishers that very morning that he was an 'Apostolic Roman Catholic' was present and said, 'Say, this is the real service of the Lord. I can't go with you today, because I have to be in the house in half an hour. But next Sunday I'm coming to the study and going on the street with you. This is the truth, and I sure enjoy being with you Jehovah's witnesses.' That was a month and a half ago. He is now a pioneer and is doing very well.
+
+Many of the Uruguayans act very quickly on the message. One sister came out of the Adventist church and into the truth and immediately began publishing the best way she knew how, talking to all about the Kingdom and the fraud of religion. One time while witnessing on the bus on the way to her territory she placed all the booklets she had in her bag. One publisher placed a book with a woman and, upon calling back, met the husband, who was also interested. Both took part in the study started and the man took a pencil and marked down all the texts read so
+
+---
+
+<sup>**Page 209**</sup>
+
+[Open Page 209 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=209)
+
+208
+
+Yearbook
+
+that they could review them later. When he had a birthday he invited all his friends and also one of Jehovah's witnesses with a phonograph and records and gave a good witness to them all. They are both now publishers.
+
+The Watchtower College graduates coming down here needn't worry too much about their foreign accent. Here is what happened to Jack Powers on calling back on booklets placed, to locate people of good-will. The husband was in bed sick and the wife had not read the booklet because she didn't know how to read. 'In broken Spanish my explanation of religion to the woman brought forth laughs from her children, who thought it very strange. I left for the following house just as the woman chastised the children for laughing at a foreigner. On finishing the apartment I was writing in my house to house record and felt a tug at my coat. It was one of the children, who said, 'My daddy wants to hear that record.' I therefore returned. He heard the record, looked up scriptures in the Bible, and contributed for the literature. The children also read some of the book. He explained that he felt very bad about his children laughing at me and he knew that I must have a good message because I sincerely endeavored to talk to the people with my limited Spanish. He invited me to come back and study the following week.'
+
+To close the service year we arranged to have a public meeting in El Ateneo de Montevideo with the talk 'Will Man Succeed as a World-Builder?' Before this the brother who was to give the talk gave it in Paysandú to an audience of 29 and in Mercedes to an audience of 38. For Montevideo we had 9,000 handbills printed to be distributed by the publishers to advise their interested parties and to have the newly interested help in the distribution from house to house in individual territories. This almost consumed the whole 9,000 but we did have some left for the street Saturday night and Sunday morning. The administration of the Ateneo had assigned to us one of the small halls, and fifteen minutes before the time to start the meeting the hall was full to overflowing, and we had to change and use one of the larger ones. In all there were 180 in attendance, 45 booklets were placed with the strangers, and several names were turned in for back-calls.
+
+# Field Service Report for Uruguay, 1945
+
+|   | Special Pioneers | Pio- neers | Com- panies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Books | 603 | 2,120 | 764 | 35 | 3,522 | 2,110  |
+|  Booklets | 4,073 | 18,916 | 14,781 | 251 | 38,021 | 29,500  |
+|  Total | 4,676 | 21,036 | 15,545 | 286 | 41,543 | 31,610  |
+
+---
+
+<sup>**Page 210**</sup>
+
+[Open Page 210 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=210)
+
+Yearbook
+
+209
+
+|   | Special Pioneers | Pioneers | Companies | Public by Mail | Total for 1945 | Total for 1944  |
+| --- | --- | --- | --- | --- | --- | --- |
+|  Pub's (mo. av.) | 5 | 9 | 19 |  | 33 | 18  |
+|  Hours | 4,645 | 13,585 | 6,258 |  | 24,488 | 12,417  |
+|  New subs. | 8 | 31 | 20 | 8 | 67 | 49  |
+|  Ind. mags. | 576 | 2,449 | 1,198 | 169 | 4,392 | 3,656  |
+|  Back-calls | 2,419 | 3,701 | 798 |  | 6,918 | 1,057  |
+|  No. back-call book studies (av.) | 74 | 41 | 11 |  | 126 | 6  |
+|  Average hours | 193.5 | 120.2 | 27.4 |  |  |   |
+|  Av. back-calls | 100.8 | 32.7 | 3.5 |  |  |   |
+|  Av. book studies | 15.4 | 3.6 | 0.5 |  |  |   |
+|  Companies in country |   |   |   |   | 3 |   |
+|  Peak number of publishers for 1945 service year |   |   |   |   | 62 |   |
+
+The increase in the interests of the Kingdom here has been marvelous, and we all greatly rejoice in that this brings honor to Jehovah's name as the great Purposer and Sender of the good news of the Kingdom. We look forward to welcoming more college graduates, as we understand that arrangements are under way to send them.
+
+We pray for His blessing upon all of you at Bethel as well as in all parts of the field for the edification of the whole organization.
+
+### WEST AFRICA
+
+The territory handled by the Branch office for West Africa includes Nigeria and the Gold Coast. Nigeria has a population of approximately twenty-three million inhabitants. There are a few large towns, but most of the population lives in small villages scattered throughout the territory. The only way of reaching these villages is by traversing narrow paths or tracks; there are few good roads. Of the twenty-three million inhabitants, it is estimated that approximately one million can read and write. The reaching of these millions of people, speaking different languages, is really a problem; but Jehovah's witnesses in that land are putting forth the effort and there is a constant increase in the number of persons taking a stand for the Kingdom.
+
+For years now the British government has enforced a ban on Watchtower publications coming into Ni-
+
+---
+
+<sup>**Page 211**</sup>
+
+[Open Page 211 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=211)
+
+210
+
+Yearbook
+
+geria. Petition after petition has been sent to the authorities, but with no favorable result as yet. The brethren locally, and the Society through its London office, are pressing this matter. It is hoped that some day soon the truths may again go into this territory in printed form for those who can read; because those who read can talk to the illiterate ones and preach the gospel of the Kingdom. The brethren do, however, keep busy with back-calls, book studies and preaching from door to door, village to village, and the message 'The kingdom of heaven is at hand' is heralded far and wide. The Branch servant's report tells of some of the things accomplished during the service year.
+
+### Nigeria
+
+Twenty-two service assemblies (or campaigns) were held in various parts of the country during the year, with a total attendance of 2,764, and 156 immersed. The sum total of persons baptized for the past year is 490.
+
+The outstanding event of the year was our Lagos convention held simultaneously on April 27-29 with other gatherings of the Lord's people throughout the earth. The housing problem has always been acute in Lagos, but doubly so since the outbreak of hostilities. Therefore, the number of delegates attending had to be limited. However, the highest peak in attendance was well over 800 publishers.
+
+At the close of the convention a resolution, moved and adopted, affirmed the determination of the faithful brethren throughout Nigeria to renew their allegiance to (1) 'The Higher Powers', Jehovah God and Christ Jesus, (2) Jehovah's visible channel, the Watch Tower Bible and Tract Society, and (3) full co-operation with the Society's Branch office in Nigeria.
+
+The Branch servant made several tours during the year, but the most extensive lasted seven weeks, which covered a distance of 2,196 miles. He visited 34 companies, delivered 14 public lectures, and at the same time placed over 5,000 handbills by means of sound-car activity. Said visits are always greatly appreciated by the brethren throughout the country.
+
+Public lectures have always been an important feature of our work in these parts, but with the commencement of the country-wide public meeting campaign our activities in that direction have increased.
+
+We were privileged to order 900 copies of the Watch-tower edition Bibles, namely: The 'King James (Authorized)' and 'American Standard' Versions. These are a great
+
+---
+
+<sup>**Page 212**</sup>
+
+[Open Page 212 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=212)
+
+Yearbook
+
+211
+
+help to the publishers, and they appreciate their value, for the many references, concordances, and Bible helps which they contain. One thousand copies of the new Kingdom songbooks were also received. Same was welcomed by the publishers, as the words of the songs express the sentiments of Jehovah's people at this time. The joy of receiving these was overwhelming, as the publishers have been eagerly expecting to receive something from headquarters since the ban in 1941.
+
+The _Course in Theocratic Ministry_ is truly the Lord's provision for his people at this time, thereby making them more efficient ministers of the gospel. Not many here are capable of expressing themselves fluently in the English language. However, it has enabled many to use tact, and to deliver the message in a more pleasing manner. The second coverage of the course in Nigeria will commence in the month of September.
+
+#### Defeat of Persecution
+
+Our brethren in the British Cameroon suffered persecution at the hands of the enemies of truth. In one instance, they were ordered to quit the town, by the council of native chiefs, on the pretext that the witnesses preached against the Roman Catholic and Basel Missions. Mr. Newington, the European district officer, squashed the order of said court with the following remarks: 'This case smells of religious persecution.' Another case was instituted in which one of the witnesses was sentenced to a fine of three pounds or one month imprisonment for being in possession of Watchtower publications in the form of a handbill, entitled 'Education for Life in the New World'. Said decision was squashed by His Honor, Mr. Justice Jackson of the High Court, Kumba. In another instance, some twelve witnesses at Ilaje, a distance of about 250 miles from Lagos, were arrested, maltreated, and beaten, for refusing to bow down, or go on their bellies by way of salutation to the chiefs and elders of the town. The Branch servant visited the district, interviewed the European district officer, and, after a lengthy discussion, he promised to see that Jehovah's people be given a square deal, and such brutalities stopped.
+
+On our cyclostyle equipment we, by the Lord's help, are able to print monthly, for the benefit of our brethren, over 900 copies of the daily texts and comments, and 900 copies of the lessons of _Course in Theocratic Ministry_, besides the _Informant_, circulars, and letters addressed to companies of Jehovah's witnesses; all to the honor and vindication of Jehovah's name.
+
+#### Gold Coast
+
+Despite many difficulties, hardships, and the still existing ban on Watchtower publications, the Kingdom work in
+
+---
+
+<sup>**Page 213**</sup>
+
+[Open Page 213 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=213)
+
+212
+
+Yearbook
+
+this country continues, as the faithful brethren push ahead the good news of The Theocracy, which is the only hope of the world, to all that have a hearing ear.
+
+The average number of publishers is very low. The brethren there remark that 'much impetus would be added to the work' had it been possible for the Branch servant or someone from abroad to visit them for encouragement.
+
+#### Field Service Report for West Africa, 1945
+
+|   | Gold Coast | Nigeria  |
+| --- | --- | --- |
+|  Books | None |   |
+|  Booklets | 1,441 |   |
+|  Total | 1,441 |   |
+|  Publishers (mo. av.) | 300 | 3,327  |
+|  Hours | 52,570 | 718,963  |
+|  Back-calls | 1,843 | 36,462  |
+|  No. back-call book studies (av.) | 52 | 772  |
+|  Companies in country | 33 | 150  |
+|  Peak number of publishers for 1945 service year | 346 | 3,979  |
+
+In conclusion, we would like to assure you that the outlook in regard to the advancement of the work in these parts is encouraging, and that with the lifting of the ban, coupled with the assistance of our Watchtower College brethren, a great ingathering is anticipated 'before the decree bring forth'.—Zeph. 2:2.
+
+We will continue to keep integrity in advocating the King and His kingdom, and with greater determination to obey the Lord's commandment, to wit, 'Go ye therefore, and make disciples of all the nations.'—Matt. 28:19, _Am. Stan. Ver._
+
+#### YUGOSLAVIA
+
+Communications with this country are lacking. We have received only one report from the Branch servant. He says that he has not received mail for a long period of time, and, of course, this is not to be wondered at. He mentions that the brethren are scattered abroad, which creates many difficulties, but that all are of good courage and have much joy in the service, which is not lacking in Yugoslavia. The Berne office has tried to keep in touch with Yugoslavia, but with little success other than one note from the Branch servant last February.
+
+---
+
+<sup>**Page 214**</sup>
+
+[Open Page 214 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=214)
+
+Yearbook
+
+213
+
+Reports have come through verbally that the Branch servant has taken a very courageous stand for the truth and that he has gone through many trials and difficulties. He has been untiring, however, in his service to the brethren and in pressing ahead with the witness work.
+
+# **'YE ARE THE SALT OF THE EARTH'**
+
+Jehovah's witnesses have told their story for the year 1945. It constitutes a tremendous 'heap of witness' against the Devil and his wicked world, and for Jehovah God! Add to this the already piled up witness for centuries past, and the honest observer is compelled to admit that Jehovah God can place on earth men and women who maintain their integrity regardless of cost, even though it means life itself. The Devil may be able to destroy the body, but he can never take away the eternal existence which Jehovah God has promised those who prove faithful.
+
+Jehovah's witnesses are not fearful for the things they see coming upon the earth: its future distress; perplexing problems; the uncertainty of its United Nations Organization, which already is bogging down under the trampling feet of selfish men. World rulers are not willing to sacrifice for the benefit of humankind. Political powers with their commercial backers, supported by the religious priests and their superstitious worship, have always combined to hold the people in subjection. Due to superstition, ignorance or blindness the people have served their earthly masters well; but such servitude has never brought life, peace, prosperity and happiness. However, even this dilemma does not frighten Jehovah's witnesses nor cause them to despair; for their faith is in that which is real and lasting.
+
+The things real and lasting are that Jehovah God now reigns, his Son reigns with him, and his kingdom is the only hope for humankind. Jehovah's witnesses know this and therefore give a freewill offering in beauty of holiness unto their God. The psalmist fitly stated the matter when he said: 'Thy people offer
+
+---
+
+<sup>**Page 215**</sup>
+
+[Open Page 215 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=215)
+
+214
+
+Yearbook
+
+themselves willingly in the day of thy power, in holy array.” (Ps. 110:3, _Am. Stan. Ver._) They have held high the banner of Almighty God and have gone forward world-wide as one solid army, in a holy cause, praising the name of Jehovah God and heralding the Kingdom message that Jehovah reigns and that his King Christ Jesus is upon the throne of his kingdom. This message, by Jehovah’s grace, they will not cease to proclaim until the final destruction of all worldly power comes in the battle of the great day of God Almighty, Armageddon.
+
+The field service report shows that Jehovah’s witnesses have been willing in the past; not because of some earthly reward of pay or financial gain. They have freely offered themselves unto Jehovah God and his service regardless of cost to themselves. What will Jehovah’s witnesses do in the future? Will they change their course of action and settle down, saying that it is finished, we have done enough? No; there is still much work to be done in discipling all nations and comforting those that mourn, and this work they will continue to do because of their love for God and his kingdom, which will vindicate his name. There is no slacking down now for them.
+
+Christ Jesus, when addressing his disciples, said: “Ye are the salt of the earth: but if the salt have lost his savour, wherewith shall it be salted? it is thenceforth good for nothing, but to be cast out, and to be trodden under foot of men.” (Matt. 5:13) Jehovah’s witnesses have proved beyond question that they have not lost their savor. They are the faithful servants of Jehovah God, following in the footsteps of their Master, Christ Jesus. Having full knowledge of the attractiveness, pleasantness and satisfaction derived from the word of truth and its proclamation, they will let others taste or know of it. If doing otherwise, then they would be good for nothing else than to be trodden under foot by men of this world. They will continue to let their light shine and make their presence known by that which radiates from them. “For
+
+---
+
+<sup>**Page 216**</sup>
+
+[Open Page 216 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=216)
+
+Yearbook
+
+215
+
+we are unto God a sweet savour of Christ, in them that are saved, and in them that perish: to the one we are the savour of death unto death; and to the other the savour of life unto life.”—2 Cor. 2:15, 16.
+
+Still retaining their “savour” in abundant measure, Jehovah’s witnesses have good reason to rejoice. Because of faithfulness, their reward will be great in “the kingdom of heaven”. They know that the same persecution that has come upon them came upon the prophets of old for the stand they took in defense of Jehovah’s name and Word. (Matt. 5:12) The future course of action to be taken by Jehovah’s witnesses will be no different from that taken during the past years, decades and centuries. Their course has been set by their Commander and Leader, Christ Jesus. Jehovah’s witnesses do not shrink back because of being despised by most of the people, but they fully appreciate that all of Jehovah’s servants must go through the fiery crucible of persecution. What has been done to one has been done to all; what has been done unto Jehovah’s witnesses has been done against Jehovah God and his Son; for “inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me”, said Jesus. As one member of the body suffers, so do all. Furthermore, Satan, the god of this world, has not singled out any one group of Jehovah’s witnesses in any one nation, to pour upon them his wrath and envy; but, as the report for 1945 shows, he has directed his venom against the organization world-wide with one purpose in view, that of a complete breakdown of the organization and finally its annihilation and destruction. And in this Satan will not let up; his persecution will continue. But Jehovah’s witnesses will defeat persecution because of their persistent, fearless, faithful stand.
+
+Every effort was put forth to break the faith of our brethren in Holland, Belgium, France, Germany, Czechoslovakia, Poland, and throughout all of Europe, and in Africa, Asia, North America and South America. But the imprisonments, tortures, restrictions, star-
+
+---
+
+<sup>**Page 217**</sup>
+
+[Open Page 217 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=217)
+
+216
+
+Yearbook
+
+vation diets, courts—all of these and hundreds of other means—have failed to stop the preaching of “this gospel of the kingdom”. Jehovah’s witnesses know what Christ Jesus said: “If anyone wants to go with me, he must disregard himself, and take his cross day after day and follow me. For whoever wants to preserve his life will lose it, and whoever loses his life for me will preserve it. What good does it do a man to gain the whole world and lose or forfeit himself? For if anyone is ashamed of me and my teaching the Son of Man will be ashamed of him, when he comes with all the glory of his Father and of the holy angels. I tell you, some of you who stand here will certainly live to see the Kingdom of God!”—Luke 9:23-27, _Goodspeed_.
+
+Jehovah’s witnesses have not tried to save themselves, so as to live in this dying world; but they were and are willing to lose their life for the sake of the Kingdom, and thus store up treasure in heaven and thereby preserve their life. They have followed their Master. They are not seeking to control the world or gain the whole world, as has the Hierarchy for centuries, but they live for the New World. They are not “ashamed of me and my teaching”, and Christ Jesus is not ashamed of Jehovah’s witnesses; for they have stood firm in their convictions and praised their Father in heaven. These faithful servants will certainly live under the Kingdom of God and will see the righteous New World.
+
+Despite the difficulties that faced Jehovah’s witnesses in all parts of the earth, God blessed their service and a very marked increase has been shown in their activity. In the year 1944 there were 110,505 publishers proclaiming the Kingdom message. However, in the year 1945 there were 127,478 publishers actively engaged every month in discipling all nations. This is an incomplete report, but, even so, in the countries heard from the increase is 17,000 publishers. Of this number, nearly 6,700 are in the full-time or pioneer service.
+
+---
+
+<sup>**Page 218**</sup>
+
+[Open Page 218 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=218)
+
+Yearbook
+
+217
+
+Those of Jehovah's witnesses that could send in regular reports show that they have devoted 34,768,684 hours in preaching the gospel, and many of these under severe conditions. This is three million more hours than in the previous year. These millions of hours are devoted to proclaiming the Kingdom message because Jehovah's witnesses love to do it and because God's spirit operates upon them, directing them to do it. They feel the same as did the apostle and look to his words: 'For it is God who in his good-will is at work in your hearts, inspiring your will and your action. Do everything without any grumbling or disputing, so that you will be blameless and honest, faultless children of God in the midst of a crooked and perverted age, in which you appear like stars in a dark world, offering men the message of life.' (Phil. 2:13-16, _Goodspeed_) There is no hourly wage set; no forty-hour week; no laws governing how much good, nor restraints put on long-suffering, patience and endurance. This time was spent in Kingdom work because of their LOVE for their Father in heaven and his Son Christ Jesus. Such time was not spent, as the religionists would have one believe, in selling books; it was spent in an educational work, 'offering men the message of life,' teaching people how to study their Bibles and how to learn the good things contained therein.
+
+Persons found to be interested were called back on regularly, and 8,443,050 such calls were made. This is an increase of approximately 700,000 over that of the previous year. On an average, 104,142 book studies were conducted weekly throughout the world. This meant that Jehovah's witnesses called back on that many homes every week and conducted one-hour home Bible studies. Why? Because they loved it! They have unselfishly devoted themselves to this preaching work. It is not the purpose of Jehovah's witnesses to build up a large congregation; but rather, Jehovah's witnesses are to 'go, disciple all the nations' and bring men the message of life, right into the homes of the
+
+---
+
+<sup>**Page 219**</sup>
+
+[Open Page 219 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=219)
+
+218
+
+_Yearbook_
+
+people. This they have done, and gladly so. If these hearers in turn want to take a stand for the Kingdom and proclaim this good message of the Lord because they LOVE to do so and, further, because Christ Jesus commanded that they should, then they assume that responsibility themselves and make a consecration to do God's will. Thousands of persons have done so during the year. The report shows that in one month during 1945 there were 141,606 publishers engaged in field service, to compare with the monthly average of 127,478 for the whole service year.
+
+Jehovah's witnesses know that the greatest good can be accomplished by carrying on the work the same way Jesus did; that is, going from house to house, visiting with interested people and studying diligently the prophecies written, with the people of good-will in their homes. While the publishers preach in this manner, a considerable amount of literature was distributed, so that the people can study in their own household at their leisure. The witnesses left with the people 22,276,530 Bibles, bound books and booklets for their careful study at home. Additionally, 9,857,181 magazines were distributed at the crossroads in many cities, and from door to door and on regular magazine routes. Although these millions of copies of publications were left with the people of good-will, no financial gain was brought to any individual. The contributions received were used to print more literature and to help send missionaries into new fields, that the discipling work might continue and be spread out. In addition to these contributions received for literature, Jehovah's witnesses themselves send to the Watch Tower Bible and Tract Society such parts of their earnings as they can afford and would like to have used in Kingdom service; and this money is likewise used in 'offering men the message of life'.
+
+It is interesting to observe that in the past twenty-five years books, booklets and Bibles to the number of 467,800,299 copies have been distributed worldwide. In addition to these, millions of magazines have
+
+---
+
+<sup>**Page 220**</sup>
+
+[Open Page 220 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=220)
+
+Yearbook
+
+219
+
+gone out, and tracts in untold millions. Jehovah's witnesses are grateful for the privilege of piling up this 'heap of witness'. Down to the year 1933, or in twelve years, 130,000,000 copies of the above-mentioned literature were distributed. Since 1933, when the testing in the fiery crucible has been the hottest, approximately three-fourths of the printed literature quota has been distributed, namely, 337,800,299 copies in only thirteen years. It was in 1933 that real political pressure was brought to bear against Jehovah's witnesses in all corners of the earth; and this continued until a peak of persecution was reached, in 1940. Since then it has leveled off a little, but not much. By Jehovah's grace, his servants in the earth have stood firm and carried on without fear of man or devil; for it is His command to 'go, disciple all the nations'. If this is accomplished, then we know that many persons in the nations throughout the world will 'be glad . . . with his people'.
+
+The work of proclaiming the Kingdom has not come to an end. The assembling together of the 'other sheep' must and will continue, under the direction of the 'Commander to the peoples'. Jehovah's witnesses and their companions will not fail in their responsibility, but will continue to seek the Lord in prayer, ask his direction, and, by his grace, perform his will. What peace have they that love the Lord! They know they are on the right side, and backing them up is the Sovereign of the universe, Jehovah God. It is our good pleasure to continue on in the greatest of all work, which we love, namely, proclaiming his word and making known his good name. Herald his message of the Kingdom to the ends of the earth and share in the vindication of his purposes toward lovers of righteousness!
+
+Your servant joyful with his people,
+
+_N. H. Knorr_, President,
+
+WATCH TOWER BIBLE & TRACT SOCIETY
+
+---
+
+<sup>**Page 221**</sup>
+
+[Open Page 221 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=221)
+
+220
+
+Yearbook
+
+# ANNUAL MEETING
+
+On Monday, October 1, 1945, the members of the Watch Tower Bible & Tract Society (a Pennsylvania corporation) met at the Society's offices in Pittsburgh, Pennsylvania. The charter as amended last year was now in effect; and the representatives of Jehovah's witnesses from all parts of the United States, and, in fact, from all the world, were present in person or by proxy. According to the charter the membership may not exceed 500 persons. At the time of the annual meeting there were 438 members. The following breakdown will be of interest to all of Jehovah's witnesses, because they use this corporation to direct their work world-wide.
+
+|  Professing to be of the anointed | 332  |
+| --- | --- |
+|  Professing to be of the Jonadab class | 106  |
+|  Colored (Negro members) | 19  |
+|  Nationalities represented | 28  |
+|  States of the United States represented (plus the District of Columbia) | 48  |
+|  Other countries represented | 27  |
+|  Members of the Bethel family residing at Brooklyn, Kingdom Farm, Mountain Farm and Staten Island | 83  |
+|  Various servants in companies | 142  |
+|  General and special pioneers | 102  |
+|  Pioneers also serving as servants in companies | 70  |
+|  Serving in connection with branch offices | 35  |
+|  Servants to the brethren | 3  |
+|  Depot servants in the United States | 3  |
+|  Total | 438  |
+
+The average age of all members at this time is 54 years.
+
+---
+
+<sup>**Page 222**</sup>
+
+[Open Page 222 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=222)
+
+Yearbook
+
+221
+
+# In Jehovah's service since the year
+
+|  1900 or before | 11  |
+| --- | --- |
+|  1910 or before | 37  |
+|  1920 or before | 133  |
+|  1930 or before | 128  |
+|  1940 or before | 128  |
+|  Later than 1940 | 1  |
+|  Total | 438  |
+
+The usual business taken care of at annual meetings was presented to the members by the chairman of the meeting, the president of the Society. One matter of business that had to be cared for was the election by ballot of the board of directors. Before the nominations and election took place, a letter was read to the members attending the meeting. This letter, by Hayden C. Covington, will be of interest to all of Jehovah's witnesses.
+
+Brooklyn, New York, September 24, 1945.
+
+To the Membership of the\
+Watch Tower Bible and Tract Society\
+Pittsburgh, Pennsylvania.
+
+Dear fellow Servants:
+
+On January 13, 1942, being a member of the board of directors of the Watch Tower Bible & Tract Society, I was elected vice-president of that Society to fill the office made vacant by the election of Brother Knorr as president. Ever since that date I have, with diligence and the Lord's help, striven to perform the duties of that office, as well as discharge other privileges and responsibilities of service bestowed upon me by the Lord.
+
+At the time the board of directors selected me as vice-president they knew that I did not consider myself to be one of the remnant of the body of Christ, but that I hoped to be of the 'great multitude' class, expecting to get life on earth instead of heavenly glory. At that time the members of the board did not consider one not of the 'remnant' to be disqualified to hold a position as an officer of the Society. However, since that time, we have been greatly enlightened on the status of the Jonadab class in
+
+---
+
+<sup>**Page 223**</sup>
+
+[Open Page 223 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=223)
+
+222
+
+Yearbook
+
+the organization by revelations of the Lord's Word in _The Watchtower_ articles about the 'stranger's right'. Also in that journal we have learned more about the spiritual 'governing body' and the proper position of the Watch Tower Bible & Tract Society in relation to such 'governing body'. These vital matters have become plainer to all of Jehovah's witnesses in recent years.
+
+It is clearly to be seen, as a result of this plainer understanding, that each member of the board of directors of the Society, which the Lord is using to direct His work in the earth, should be an integral part of the spiritual governing body of Christ, as long as there are those of the 'remnant' legally admissible to the directorate who possess the necessary qualifications to manage the affairs of the Society. Accordingly, since there has been a clearer appreciation of the proper qualifications of officers and directors of the Society, my being not of the _remnant_ class and at the same time a member of the board, as well as an officer of the Society, has presented and now presents an occasion for deliberation and action in harmony with the Lord's will.
+
+More than a year ago when Brother Knorr and I were working together on the proposed amendments to the charter this matter was discussed by us. We considered then whether the qualifications of directors and officers should be presented to the shareholder voters in the form of a resolution to amend the charter fixing the qualification of directors and officers. At that time we did not deem it to be a matter that should be handled through amendment of the charter, because of reasons too numerous that time would fail me here to discuss them. At that time it was considered advisable by us to refer the matter to the board of directors at a suitable time so that the board could fix the qualification of directors and officers, limiting them to those of the 'remnant' class, in harmony with the Lord's will.
+
+Considering that the matter should be clarified and settled by the board of directors before the first annual meeting under the new amendments to the charter this matter was submitted to the members of the board of directors recently. After prayerful consideration and due deliberation the members of the board, including me, decided that it was the Lord's will that all officers, as well as directors, of the Society should be of the 'remnant' class as long as there are such available and qualified. The determination was unanimous.
+
+Inasmuch as there are members of the board of directors who are qualified to be vice-president, and since there are members of the Society, each of whom is competent to become a member of the board of directors according to the Lord's will, I do not believe that it would be in harmony
+
+---
+
+<sup>**Page 224**</sup>
+
+[Open Page 224 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=224)
+
+Yearbook
+
+223
+
+with the judgment of the Lord that I should continue to act as vice-president of the Society and as a member of the board of directors. Although my name as a candidate for re-election as a director has been printed on the ballots mailed to the members of the Society I do not choose to be nominated for re-election at the annual meeting of the members. I am hereby withdrawing my name as a candidate for election as a director. It is suggested that some competent person of the 'remnant' class be nominated and elected to fill my place on the board of directors. Since my term of office as vice-president expires with my retirement as a member of the board by election of another person, it is not necessary for me to resign as vice-president in order for that office to be filled by some competent person from among the members of the board. A new vice-president will have to be elected by the directors after the annual meeting of the members. My membership in the Society with you shall continue unaffected.
+
+My action in declining to serve further as a member of the board of directors and as vice-president of the Watch Tower Bible & Tract Society, a Pennsylvania corporation, is not an evasion of responsibilities. Rather it is an effort to comply with what appears to be the Lord's will, acceptable to me, and to which I delight to conform.—Rom. 12:2; Ps. 40:8.
+
+The brethren everywhere, including all members of the Society voting at the election, will no doubt be pleased to join with me and the other members of the board of directors on this issue. In doing so we shall comply with the counsel of the apostle Paul, to wit, 'Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.'—1 Cor. 1:10.
+
+There is no question that in the days of the nation of Israel Jehovah did not permit those of the 'stranger' class to do the work that belonged exclusively to the Levites. There is no reason why it should be different in this day of Jehovah.
+
+Moreover, the action taken should not be considered as any indication of disunity. There is no disunity between those of the 'anointed' class and those of the 'stranger' class at the headquarters of the Lord's organization on earth. Indeed we rejoice that our hands are joined together in the service of Jehovah and that our hearts and minds are knitted together as one, even as were those of Jehu and Jonadab as they rode together in the chariot to battle.—2 Kl. 10:15, 16.
+
+I rejoice to stand with you as a fellow warrior for Jehovah, marching under the undefeated Commander to the
+
+---
+
+<sup>**Page 225**</sup>
+
+[Open Page 225 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=225)
+
+224
+
+Yearbook
+
+people, determined that by the spirit of Jehovah we shall never break our serried ranks. In doing this we shall have a small part in the vindication of Jehovah's name, and see the enemy go down in the dust of defeat.
+
+Your brother,
+
+\[Signed] HAYDEN C. COVINGTON.
+
+At the conclusion of the reading of this letter further comment was made on this matter by the chairman, all of which was greatly appreciated by the members. Nominations for election of directors then proceeded. There was a unanimous vote cast for the following-named directors.
+
+Re-elected, N. H. Knorr, to serve for three years.
+
+Elected, L. A. Swingle, to serve for three years.
+
+Re-elected, W. E. Van Amburgh, to serve for three years.
+
+Re-elected, F. W. Franz, to serve for two years.
+
+Re-elected, H. H. Riemer, to serve for two years.
+
+Re-elected, T. J. Sullivan, to serve for one year.
+
+Re-elected, Grant Suiter, to serve for one year.
+
+After the election the president gave a general report on the activities of the Society and of Jehovah's witnesses. The meeting adjourned with prayer.
+
+On Friday, October 5, the board of directors met and elected officers. The following were the unanimous choice:
+
+President
+
+Vice-president
+
+Secretary-treasurer
+
+Ass't Secretary-treasurer
+
+Ass't Secretary-treasurer
+
+Nathan H. Knorr
+
+Frederick W. Franz
+
+William E. Van Amburgh
+
+Hugo H. Riemer
+
+Grant Suiter
+
+### OTHER CORPORATIONS
+
+As is mentioned in the forepart of this book, Jehovah's witnesses use numerous other corporations throughout the world in order to accomplish the preaching of the gospel in all the world for a witness. It has always been understood by Jehovah's witnesses that the Pennsylvania corporation, the one mentioned
+
+---
+
+<sup>**Page 226**</sup>
+
+[Open Page 226 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=226)
+
+Yearbook
+
+225
+
+above, is now the principal organization and the oldest one used by the Lord's people. This corporation has always published the _Watchtower_ magazine for the aid and comfort of Jehovah's witnesses world-wide. This publication from the first has always been used of the Lord to bring to his people the 'meat in due season'.
+
+The policies set by the Pennsylvania corporation as regards the direction of the work of preaching the gospel have always been accepted by the other corporations and put into practice in the lands and territories where such legally operate. Each corporation, however, has its own membership, its own board of directors and officers, and functions as a legal body under its chartered law. In many instances where corporations have been formed by Jehovah's witnesses, it has been impossible to have anointed brethren in the directorate. The anointed are few in number and, further, many of those professing anointing are not associated with the branch offices. In view of the above, Jehovah's witnesses do not think it to be necessary for other corporations to follow the policy set down by the Pennsylvania corporation as to personnel of its directorate. While in some few instances it may be possible, it is not essential; but it is necessary that the other corporations meet the legal requirements with regard to the directorates.
+
+Jehovah's witnesses everywhere understand that the 'faithful and wise servant' class is made up of those anointed of the Lord who make up the remnant on the earth under Christ Jesus. Members of the remnant of the 'faithful and wise servant' class originally organized the Pennsylvania corporation; and it was and is generally understood that this corporation, through its chief elders, became the governing body of the church. As explained in _The Watchtower_, the governing body in the early church and today has comprised the elder brethren, mature, wholly devoted to the Lord, and put in positions of trust and responsibility. The work of Jehovah's witnesses world-
+
+---
+
+<sup>**Page 227**</sup>
+
+[Open Page 227 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=227)
+
+226
+
+_Yearbook_
+
+wide is directed by ordained ministers who have consecrated their lives to full-time service and are anointed of Jehovah to do this work. Such anointed brethren are directors of the Watch Tower Bible & Tract Society, the Pennsylvania corporation, and rightly so, because this legal corporation has been used for over sixty years to carry forward the work of preaching the gospel, under the direction of the Faithful Servant, Christ Jesus. This explanation is made so that the brethren may understand why there is no change necessary in the directorates of other corporations used by Jehovah's witnesses.
+
+---
+
+<sup>**Page 228**</sup>
+
+[Open Page 228 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=228)
+
+# Yeartext for 1946
+
+_“Be glad, ye nations, with his people.”_
+
+_—Romans 15:10, Rotherham._
+
+Is it possible? Is there now reason for creatures to continually rejoice about something that brings them real satisfaction? Is it possible to be cheerful, in view of world conditions? Is there gratitude welling up in the hearts of men and women because of peace, quiet and rest, no more war? Hardly. What right, then, did the apostle Paul have to say, “Be glad, ye nations, with his people”? (Romans 15:10, _Roth._) Who are these people that one would be delighted to be with? The Bible says they are “a chosen generation, a royal priesthood, an holy nation, a peculiar people” and that these people “should shew forth the praises of him who hath called you out of darkness into his marvellous light”. These are the people of God, and the nations can “be glad” with them.
+
+In Paul’s day the ‘chosen people’ were the natural Israelites, born of their forefathers Abraham, Isaac and Jacob; and they should have accepted Christ the Messiah and should have welcomed the Gentiles, “ye nations,” to be glad with them now that the promised Seed had come. But no, they did not even rejoice themselves. A remnant of the Jews did accept the Messiah and went forth preaching the good news. In Paul’s preaching (and he was a Jew) he said: “It was
+
+237
+
+---
+
+<sup>**Page 229**</sup>
+
+[Open Page 229 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=229)
+
+228
+
+Yearbook
+
+necessary that the word of God should first have been spoken to you \[Jews]: but seeing ye put it from you, and judge yourselves unworthy of everlasting life, lo, we turn to the Gentiles. For so hath the Lord commanded us, saying, I have set thee to be a light of the Gentiles, that thou shouldest be for salvation unto the ends of the earth. And when the Gentiles heard this, they were glad, and glorified the word of the Lord: and as many as were ordained to eternal life believed. And the word of the Lord was published throughout all the region.”—Acts 13:46-49.
+
+At that time, 1900 years ago, the Gentiles had good cause to be glad, because then Jehovah was calling out of the Gentile nations a “people for his name”, a “peculiar people”, Jehovah’s joint-heirs with his Son, and they became the spiritual Israel of God. Persons from every nation, kindred and tongue were made glad with his people, God’s chosen remnant. They were thankful because the opportunity opened up to them for salvation.
+
+But what about today? Is it true that the same thing can happen and is happening among the nations of the earth? Yes! The evidence is clear, as set forth in this _Yearbook_, that Jehovah’s servants are heralding forth the grand truth revealed in Jehovah’s Word, for the comfort and encouragement of all nations, kindreds and tongues, and they are hearing. They are learning from God’s Word that Jehovah reigns and that we are now in the day of Jehovah.
+
+---
+
+<sup>**Page 230**</sup>
+
+[Open Page 230 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=230)
+
+_Yearbook_
+
+229
+
+Furthermore, the Kingdom is here, and the Sovereign One of the universe has set his beloved Son upon the throne of his kingdom. The long-prayed-for Kingdom is at last at hand, and for this reason there is cause for rejoicing. Why, then, should not the nations “be glad”? Certainly there is no hope for the old world.
+
+Christ Jesus, the King upon the throne, commanded his disciples to “go ye therefore, and make disciples of all the nations”; and furthermore said, ‘preach this gospel of the Kingdom in all the world for a witness.’ This announcement is being made! His people know of and believe in the kingdom of God. With all their heart they preach it to whosoever will hear, even unto the ends of the earth; and the nations or peoples that hear are “glad” with his people. The physical facts now fulfilling Bible prophecy prove beyond question that we are in the last days of the old world and at the beginning of the righteous New World foretold in God’s Word. Why, then, should not the nations or peoples of the earth be glad? Those that hear and believe are glad with Jehovah’s witnesses who are bringing to them this knowledge of the Lord’s Word and of his gracious Kingdom. There is going on in the earth a work like that of Jesus’ day, only on a much greater scale; and yet it is under the direction of the same Commander, Christ Jesus.
+
+Thousands upon thousands of people are hearing and taking their stand with his people now. They no longer put their trust in the old world, but have put their trust in Jehovah and
+
+---
+
+<sup>**Page 231**</sup>
+
+[Open Page 231 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=231)
+
+230
+
+Yearbook
+
+his promises. They are grateful to God and rejoice in the fact that Jehovah's witnesses have gone to the uttermost parts of the world to preach. They observe that recently graduates from the Watchtower Bible College of Gilead have gone into every one of the Central American countries and most of the nations of South America to carry to the people the glad tidings. Not only to the south but to the north, too, Canada, Alaska, and Newfoundland! Eventually, by the Lord's grace, the Watchtower graduates will be sent into all parts of the earth to work with Jehovah's witnesses already there and the people of good-will who will eventually take their stand for the Kingdom. The truth, by Jehovah's grace, will reach out into all fields, so people of all nations may have the opportunity to 'be glad' with his chosen people, faithful servants, Jehovah's witnesses.
+
+The prospect of everlasting life and the joys of the New World bring songs of praise to the lips of lovers of righteousness among all nations and tongues. Surely the Lord's Word has come true, as stated at Psalm 35:27 (_Amer. Trans._): 'May they shout for joy and be glad who are pleased at my vindication. And may they continually say, 'The LORD is great, who desires the welfare of his servant.'' And again: 'Let the nations be glad and sing for joy, because thou judgest the peoples justly, and leadest the nations in the earth.' (Ps. 67:4, _Amer. Trans._) The people of good-will today look to
+
+---
+
+<sup>**Page 232**</sup>
+
+[Open Page 232 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=232)
+
+Yearbook
+
+231
+
+the vindication of Jehovah's great and holy name, and because of their knowledge of him and his purpose now they can say to others, "Be glad, ye nations, with his people."
+
+---
+
+<sup>**Page 233**</sup>
+
+[Open Page 233 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=233)
+
+# Daily Texts and Comments
+
+The comments following the daily texts are taken from _The Watchtower_ (W) as of the year 1945.
+
+---
+
+<sup>**Page 234**</sup>
+
+[Open Page 234 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=234)
+
+# January 1
+
+_I have set Jehovah always before me: because he is at my right hand, I shall not be moved.—Ps. 16:8, A.S.V._
+
+They set no other gods before them, not even an image or representation of such. They fix their affections upon Jehovah and bow in worship only to him. So keeping him always before their mental eye they are enabled to behold his glory due to the revelations of his truth. His truth is presented in his Word, and this they study always in order to acquaint themselves more and more with their God and his almightiness, universal sovereignty and undefeatable purposes. Because of their unwavering devotion and loving adoration for him, Jehovah is at their right hand, to hold them up from falling, and to protect them and vindicate them as having taken the right course. He takes them by their right hand and leads them in the righteous way; and thus they are never moved from his side of the great issue. _W 7/1_
+
+# January 2
+
+_Comfort all that mourn; to appoint unto them that mourn in Zion, to give unto them beauty for ashes._
+
+_—Isa. 61:2,3._
+
+By the revealments of God’s truth and purpose, and by the outpoured spirit upon them, Jehovah’s anointed King conducted forth the faithful remnant of his followers in 1919 out into the liberty of the service of God. By this he comforted those mourning children of Zion. He banished mourning from their midst. He beautified their heads with the garland of the understanding and appreciation of God’s Word as its glorious Kingdom prophecies now come true. No more their heads drooped in disappointment at not being early taken to heaven, away from earthly scenes of woe. They brushed off the ashes of sorrow and of low-lying subservience to the oppressive wishes of the enemy. They lifted up their heads with courage, knowing that deliverance of all God’s faithful servants is at hand. _W 1/15_
+
+---
+
+<sup>**Page 235**</sup>
+
+[Open Page 235 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=235)
+
+# January 3
+
+_Samuel took the horn of oil, and anointed him in the midst of his brethren: and the spirit of the Lord came upon David from that day.—1 Sam. 16:13._
+
+Jehovah causes his active force to rest upon his anointed ones. He has a most important work for them to do, and without the active force or spirit of the Lord Jehovah the anointed ones could never accomplish it. There is therefore no credit to go to them for getting the work done with the desired results. All the glory and the thanksgiving are due to the One who puts his spirit upon his anointed servants. It is with this same spirit that they are anointed by Jehovah, rather than with some specially compounded oil like that with which the priests, kings, and prophets of Israel were anointed of old. The divine act of anointing is Jehovah's commissioning of his servants to speak and do the things he commands and authorizes in his service. _W 1/1_
+
+# January 4
+
+_Jesus also being baptized, and praying, the heaven was opened.—Luke 3:21._
+
+Jesus came to be immersed by John to show forth and symbolize his absolute consecration to Jehovah God, 'to do thy will, O my God,' as foretold. Being born of a Jewish virgin who was under the law covenant, he was already a member of the consecrated nation dedicated to do Jehovah's will. But that dedication to do God's will was according to the law covenant made through Moses. Now Jesus strikes out on a new road, on the road of the antitypical fulfillment of the law covenant. That was the newly revealed will of God, and the Lord Jesus stepped out onto that road as a pioneer. Accordingly, he came to do God's will as it was foreshadowed in the types and shadows of the law covenant. He came specifically to do God's will as God's spirit should thenceforth reveal it to him. For this reason he consecrated himself, dedicated himself wholly to his God and Father. _W 2/1_
+
+---
+
+<sup>**Page 236**</sup>
+
+[Open Page 236 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=236)
+
+# January 5
+
+_For Christ marks the termination of law, so that now anyone who has faith may attain uprightness._
+
+—_Rom. 10:4, Goodspeed._
+
+By Jesus' death on the tree, God abolished the old covenant of the Mosaic law and provided a new covenant. Hence Christ Jesus is spoken of as 'having abolished in his flesh the enmity \[between Jew and Gentile], even the law of commandments contained in ordinances; for to make in himself of twain \[both Jew and Gentile] one new man, so making peace, . . . by the cross, having slain the enmity \[the law] thereby'. (Eph. 2:15,16) In this way Christ Jesus was the termination of the Mosaic law or of the law covenant with the Jews. He became the Mediator of a better covenant, the new covenant, toward all his footstep followers who make up the spiritual Israel. By this covenant they become a people for his Father's name, Jehovah's name.—Heb. 7:22; 8:6-13; 9:15. _W 6/15_
+
+# January 6
+
+_Faith then comes from a message heard, and the message from the lips of Christ._—_Rom. 10:17, Weymouth._
+
+Jehovah stands directly at the center of the issue. He is the One upon whom creation, animate and inanimate, depends, and hence the contention or controversy swirls around him and all men must finally take a stand either for or against him. Jehovah God is found in his written Word. In order for those who find him to hear about him, there must be a distributing and preaching of the written Word which he has provided concerning himself. To meet that urgent need, he has raised up in this day a 'people for his name', a people for the issue, particularly because within this generation the issue must and will be settled without any room for further controversy. The controversy is unavoidable; and Jehovah's people are in the thick of it, not dodging it at all. Their courageous activity for His side of the issue is with the highest benefit and the most lasting good to the people. _W 6/1_
+
+---
+
+<sup>**Page 237**</sup>
+
+[Open Page 237 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=237)
+
+## January 7
+
+_Great deliverance giveth he to his king.—Ps. 18:50._
+
+Jehovah repeatedly covers himself with glory as a Liberator. He continually draws attention to the fact that in Him lies the only hope of liberation for those who yearn for freedom of body, mind and heart. Since 1914 he has put his Anointed King in power to act in the role of Liberator. By his King an invitation is now extended to the distressed peoples to break off from their present bondage and to take the road that leads to a present share in the great deliverance already begun. He knows that the sincere-hearted lovers of life and freedom will gladly hear his gracious invitation and will set out on His way. The deliverance he brings to such ones is now and will yet be greater than what he gave to the Israelites thirty-five centuries ago, when he crippled the power of their enslavers and led them forth from Egypt to freedom's opportunities. _W 3/15_
+
+## January 8
+
+_Make your peace with me, and come out to me; . . . Who are they among all the gods of the countries, that have delivered their country out of my hand, that Jehovah should deliver Jerusalem out of my hand? —2 Ki. 18:31, 35, A.S.V._
+
+Like the Jews on Jerusalem's ramparts, so Jehovah's witnesses of today obey the Greater Hezekiah, Christ Jesus, and refuse to answer the enemy's demand for a compromise with religion and its partners. They know that what the religious-political totalitarian forces have done in desolating much of the earth and wrecking democratic institutions and liberties has been done by the aid of the demons under Satan. But it is because such things are not Theocratic and do not have Jehovah's protection. No thought of surrender enters their mind as they hear the modern Rabshakeh boast against Jehovah and his Greater Hezekiah. Jehovah's witnesses are not frightened. They are grieved at all the reproach heaped upon Jehovah's name. _W 4/1_
+
+---
+
+<sup>**Page 238**</sup>
+
+[Open Page 238 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=238)
+
+# January 9
+
+_Yea, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee._
+
+—_Jer. 31:3, A.S.V._
+
+The ruling powers of this world strive for a uniformity of the citizens and try by systems of regimentation to compel all to conform to the man-made standards and patterns. Jehovah God, whose ways are heaven-high above those of men, has almighty power and is the rightful Sovereign over all things, and yet he does not force or coerce any creature to take up and carry on His service. Knowing that those who are forced can not be held with integrity in an unwilling service, he looks for voluntary obedience and service. He rouses the spirit of willingness within those who undertake to serve him. No selfish bribes are held out to induce creatures to any unrighteousness, but he draws willing ones into his righteous service by expressing love toward them. _W 5/15_
+
+# January 10
+
+_Being justified by faith, we have peace._—_Rom. 5:1._
+
+Such justification by faith came through having righteousness imputed or credited to the believers. It is because their hope is not that of living evermore on earth in the New World of righteousness. They expect to die in faithfulness, depending upon God to raise them from the dead as immortal and incorruptible spirit creatures in the “new heavens”. So they do not need that their justification now with God actually make them perfect and righteous in the flesh. One day they must cease for ever to exist as humans, by dying sacrificially with Christ, in vindication of God’s name. Hence it is only needful to give them a credit of righteousness as to their flesh. Thereafter they can continue to serve God on earth the best they can in their imperfect human bodies, faithfully until death. The credit of righteousness to their account is by reason of Christ’s perfect sacrifice, in which they believe. _W 8/15_
+
+---
+
+<sup>**Page 239**</sup>
+
+[Open Page 239 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=239)
+
+# January 11
+
+_Add thou not unto his words, lest he reprove thee, and thou be found a liar.—Prov. 30:6._
+
+Since God teaches man knowledge, no clergyman or other educated man or scientist can add anything to God's fund of knowledge. It is foolish for monks and religious priests to tack on human traditions to the written Word of God. It is disrespectful to God for them to say that the knowledge of God as contained in the pages of The Bible is incomplete without those man-made traditions and precepts. Such traditions simply prove to be lies. To gain true knowledge, one must lay aside these traditions of men as being a hindrance rather than a contribution to the knowledge of God. In proof that such religious traditions are not only not necessary but presumptuous, Jehovah's prophet asks: 'Who . . . instructed him, and taught him knowledge?' (Isa. 40:13, 14) Religious traditions are no part of God's inspired Word, and they are no part of the knowledge which He gives. _W 9/15_
+
+# January 12
+
+_The mountains melted like wax at the presence of Jehovah, . . . Lord of the whole earth.—Ps. 97:5, A.S.V._
+
+The 'Big Five' of the United Nations Organization by virtue of their territorial, political, financial and military greatness and power may rear themselves up like huge mountains to provide an unbreakable backbone for the postwar _earth_. The _earth_ will not worship Jehovah as Universal Sovereign, but will defy his lordship. Yet Jehovah is Lord of all this terrestrial globe. At Armageddon he will vindicate his lordship and right to rule all the earth by melting down the mountainlike backbone of the postwar organization of men in the fire of his jealousy against all the enemy organization. Their loftiness will be brought low. They will not be able to hold together at the presence of this rightful 'Lord of all the earth'. Religion is sure to fail to be a binding tie and a stiffening source of strength to the nations. _W 10/15_
+
+---
+
+<sup>**Page 240**</sup>
+
+[Open Page 240 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=240)
+
+# January 13
+
+_I clothe the heavens in mourning.—Isa. 50:3, Am. Tr._
+
+The facts show that not only can no forces on earth resist the power Jehovah exercises for the salvation of his chosen people, but he has control over powers and forces higher than man and this earth. He has control over the heavens, that is to say, over the superhuman demons under Satan. These have hung over all mankind as a wicked heavenly power to influence them into wickedness and to bring woe and tribulations on them in order to accuse God for it and to drive men away from him in bitterness and over to religious superstition. (Job 1 and 2; Rev. 12:12) Today there is great violence on earth, and distress of nations with perplexity and heart-failure of men for fear. Jesus testified that such is due to the fact that the powers of heaven have been shaken. (Luke 21:25, 26) It was at the birth of God's kingdom, A.D. 1914, that 'war in heaven' began and then Satan and his demon angels were cast down to the earth and brought to grief. _W 9/1_
+
+# January 14
+
+_To declare, I say, at this time his righteousness: that he might be just, and the justifier of him which believeth in Jesus.—Rom. 3:26._
+
+God is not guided by the world's condemnation of those with whom he deals; but those whom he justifies have a righteous standing with him and are counted worthy of his favors and dealings. Note, then, this fact: His justification is not for the purpose of acquitting or absolving them from the false charges of the world; for such false charges do not influence God. God justifies those who please him from charges or penalties which his own justice has held against such creatures. He does so without violating his own perfect justice; that is to say, he does so upon a righteous foundation in absolute agreement with justice. Thus he is both just to himself and the Justifier of his servant. In all His steps Jehovah vindicates himself. _W 7/15_
+
+---
+
+<sup>**Page 241**</sup>
+
+[Open Page 241 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=241)
+
+## January 15
+
+Because he is at my right hand, I shall not be moved. Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.—Ps. 16:8, 9.
+
+Foreknowing God's purpose before his death on the tree, Jesus could be glad within at heart. His "glory", which was the precious treasure of serving God as his Elect Servant, Witness and Vindicator, could rejoice or be a joyful service, not a grievous one. Also his flesh, in which he served Jehovah God for the time being, could "rest in hope", or dwell securely, confidently, in safety. His enemies could never hang his flesh on the tree until God's time for this. Jesus knew that, by reason of his integrity toward God, nothing that the enemies could do would mar the perfect value of his flesh as "bread" for the life of the world who believed in him. (John 6:51) Fortified with such knowledge and assurance, the Holy One never deviated from Jehovah's worship one iota. W 7/1
+
+## January 16
+
+Ye abound in every thing, in faith, and utterance, . . . see that ye abound in this grace also.—2 Cor. 8:7.
+
+The deep material poverty of the brethren did not combine with their great trial of affliction to stifle their joy at giving something to aid other brethren, likely worse off than themselves. Paul reminds us that Christians who are advanced and who excel in Christian knowledge, in power of utterance to express it, and in faith and in love for the governing body of the church, should not be backward in rendering help to their needy brethren. While striving to preach the gospel to others, we should not forget and neglect the material needs, and primarily the spiritual needs of our brethren and the strangers who have already come within the "gates" of the organization. While making back-calls upon newly-interested persons of good-will, let us not overlook visiting our brethren who fall into spiritual need, leaving the already gathered-in ones in danger of falling away. W 12/1
+
+---
+
+<sup>**Page 242**</sup>
+
+[Open Page 242 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=242)
+
+# January 17
+
+_The spirit of the Lord \[Jehovah] shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and might, the spirit of knowledge and of the fear of the Lord.—Isa. 11:2._
+
+The prophetic name _David_ well befits Jesus, for it means _Beloved_ and he is the beloved Son of God in whom God is well pleased. Hence, as King David's father was named Jesse, meaning _Living_, so Jesus' Father in heaven was foreshadowed by Jesse and is spoken of in Isaiah's prophecy as 'Jesse'. In this sense the above prophecy is written of Christ Jesus as the Offshoot or Royal Son of Jehovah. That is to say, Jehovah's spirit resting upon his anointed Servant both imparted these said things to him and enlarged them in him, namely, wisdom, understanding, counsel, might, knowledge, and the worshipful fear of God. These things would be, not of Christ Jesus himself, but of Jehovah God and by His spirit or active force operating upon Christ Jesus. _W 1/1_
+
+# January 18
+
+_I, even I, am he that blotteth out thy transgressions for mine own sake, and will not remember thy sins. . . . Let us plead together: declare thou, that thou mayest be justified.—Isa. 43:25, 26._
+
+The righteousness of God is the only means to everlasting life in the New World. (Rom. 10:3) The Israelites did not seek justification from God, who blots out transgressions for his own sake and then remembers sins no more. So Jehovah God gave the nation of Israel over to the curse of destruction and to international reproaches. Jehovah God is the Justifier. Because of this fact he becomes the Source of everlasting life to men who are favored with a share in the gladsome New World of righteousness. Out of mercy, and for his own name's sake, he provides the righteous way for the wrongdoer's guilt to be removed and for 'justification of life' to come to whoever takes the path of God's righteousness.—Rom. 5:18. _W 8/1_
+
+---
+
+<sup>**Page 243**</sup>
+
+[Open Page 243 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=243)
+
+# January 19
+
+_For Moses describeth the righteousness which is of the law, That the man which doeth those things shall live by them.—Rom. 10:5._
+
+Moses so described such righteousness at Leviticus 18:5. God's statement through Moses was not a deception, to make the Jews think they could properly keep the law and gain life by their law observance. By the law covenant Jehovah was not setting aside his promise of Christ and making Christ unnecessary by holding out to the Jews the hope of life through keeping the law. To the contrary, Jehovah by that very law covenant was directing and guiding those under it to Christ Jesus, 'the man.' Moses was typical of Christ Jesus, and Christ Jesus is 'the man' that perfectly kept the law of God on earth. Hence by the above statement God was saying by Moses that the man who does this law proves he is perfect and lives, and that he is alive and has the right to eternal life. _W 6/15_
+
+# January 20
+
+_Give unto them . . . the oil of joy for mourning, the garment of praise for the spirit of heaviness.—Isa. 61:3._
+
+Christ Jesus, the reigning King, refreshed his remnant with the oil of joy, showing them it is a privilege to serve God on earth as well as in heaven and that 'the joy of Jehovah is your strength'. They must serve as his witnesses joyfully. Jehovah's joy is the vindication of his name by the King and Kingdom; and by proving themselves to be faithful witnesses on earth they have a part in this joyful vindication of His name and universal domination. Hence Christ Jesus removed the spirit or mental disposition of heaviness from them. He disclosed to them their new privileges to praise Jehovah's name and kingdom with an enlightened understanding and with a 'new song'. They must fairly be clothed with his praise as a garment, thereby to identify them as those who praise God and his Christ rather than praise men. _W 1/15_
+
+---
+
+<sup>**Page 244**</sup>
+
+[Open Page 244 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=244)
+
+# January 21
+
+_He shall write him a copy of this law in a book out of that which is before the priests the Levites: and it shall be with him, and he shall read therein all the days of his life.—Deut. 17: 18, 19._
+
+Such law of commandments which the king must study and by which he must himself be governed was the law of God's covenant made with Israel through Moses. For this reason Hezekiah's kingdom was a typical Theocracy; it was a visible government subject to Jehovah God as the real King, and in such government the king on the throne at Jerusalem must execute the law of The Theocrat, Jehovah. In such relationship to the great Theocratic Ruler, Jehovah, King Hezekiah pictured Jehovah's anointed King, Christ Jesus. Hezekiah's kingdom was typical. Years after his death it passed away. Christ Jesus' kingdom is the real Theocratic Government, and its duration is as eternal and imperishable as is its King, who is immortal. _W 3/1_
+
+# January 22
+
+_In six days the Lord made heaven and earth, and on the seventh day he rested, and was refreshed._
+
+_—Ex. 31: 17._
+
+Jehovah's resting was because he had brought to pass his creative work as he had purposed, and hence he ceased from his creative work as respects the earth. At such height of accomplishment he surveyed his finished work; and 'God saw every thing that he had made, and, behold, it was very good'. (Gen. 1: 31) For such reason, then, he could feel refreshed, that is, he could enjoy the exhilarating pleasure of having accomplished his will. At that time, he tells us, 'the morning stars sang together, and all the sons of God shouted for joy.' (Job 38: 4-7) What a joy must have been God's own as he saw brought to a finished state his creative work that so delighted his heavenly sons and caused them to sing his praises! They acknowledged him as the Universal Sovereign and Owner of all he surveyed. _W 2/15_
+
+---
+
+<sup>**Page 245**</sup>
+
+[Open Page 245 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=245)
+
+# January 23
+
+_In blessing I will bless thee, and in multiplying I will multiply thy seed as the stars.—Gen. 22:17._
+
+God's covenant that he would bless Abraham meant that Jehovah would bring blessing to his own name by causing it to be vindicated before all creation. His covenant that he would make Abraham's seed like the stars and seashore sands meant that, besides the antitypical Isaac or Christ Jesus, Jehovah God would bring others into the royal family of God's sons to be associated with Christ Jesus in his kingdom. Such seed would be innumerable, or uncountable, not because of being made up of so many sons of God, but because God had not declared or revealed their number and hence no human could tell what their number would be. Being unable to count the 'seed' of the Greater Abraham, man had to wait until God himself sent Christ Jesus to give a revelation and therein count the number for us, fixing it at 144,000. _W 5/1_
+
+# January 24
+
+_At this present time also there is a remnant according to the election of grace.—Rom. 11:5._
+
+Something far more important was involved than just the few thousands of the Jewish remnant that were selected. What was it? It was the vindication of Jehovah's name and word. God had given his word that there would be a remnant that would be saved out from natural Israel. Hence such a remnant must be selected by God's mercy, for the vindication of his word. But besides that, Jehovah God had put his name upon the nation of Israel. They were his nation 'which he foreknew', or 'whom he formerly acknowledged', or 'which he had marked out from the first'. (Rom. 11:2; _Diaglott_; _Goodspeed_) Because he loved them, he gave them this prior acknowledgment before all the nations. He loved them particularly because they were descendants of his faithful witnesses Abraham, Isaac and Jacob, with whom He made the Abrahamic covenant. His love did not miscarry. _W 4/15_
+
+---
+
+<sup>**Page 246**</sup>
+
+[Open Page 246 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=246)
+
+## January 25
+
+_He giveth power to the faint; and to him that hath no might he increaseth strength._—Isa. 40:29, A.S.V.
+
+Jehovah has vigor and strength which never tire or wear out. On earth “the glory of young men is their strength”, but the vigor of youth is nothing in comparison with that of the great Creator, Jehovah God. (Prov. 20:29) Those who depend upon the Creator receive strength and power of endurance such as the natural strength of youth cannot match. “Even the youths shall faint and be weary, and the young men shall utterly fall: but they that wait for Jehovah shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; they shall walk, and not faint.” (Isa. 40:30, 31, A.S.V.) It is therefore not the wisest thing for the young to depend upon their physical youth as something to be always counted on, neither to think that strength to endure is based upon mere bodily freshness and vigor. W 11/15
+
+## January 26
+
+_He \[Christ Jesus] continues forever, and so his priesthood is untransferable._—Heb. 7:24, Goodspeed.
+
+From the Bible’s use of the word _ohláhm_, or _perpetual_, _everlasting_, and _for ever_, in connection with the Aaronic priesthood and their official duties one would imagine that these would exist and continue in force to all eternity. Yet today this Levitical priesthood has disappeared and functions no more. Moreover, Paul explains that Jehovah abolished it and no longer recognized it after Christ’s death and resurrection. Christ is made God’s High Priest, not according to a law that recognized the flesh of Aaron the Levite, but according to a new law of God and by His sworn oath. Christ’s priesthood is therefore superior to Aaron’s. It is after the order or rank of Melchizedek the priest-king. _Ohláhm_ means indefinite or uncertain time, whether eternity or a space of time whose limit is concealed. What makes the priesthood of Christ eternal is his having immortal life. W 11/1
+
+---
+
+<sup>**Page 247**</sup>
+
+[Open Page 247 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=247)
+
+# January 27
+
+_They kept not the covenant of God, and refused to walk in his law; and forgot his works, and his wonders that he had shewed them.—Ps. 78:10, 11._
+
+The leading issue before all creation is the sovereignty of the universe, that is, the rightful rulership over all parts of the universe and over all creatures inhabiting those populated parts. Jehovah has never failed to meet the defiant challenge of his archenemy, Satan the Devil. Every time the bluff of the wicked challenger has been called on the issue of 'Who is Almighty God? and who holds and keeps the sovereignty over the universe?' Jehovah has come off the winner, and Satan has been put to shame. Satan has been able to stage a comeback from time to time. That has been only because of the willful perversity of some creatures and the easy tendency of imperfect men to forget quickly the issue and what God's past triumphs have plainly demonstrated. _W 4/1_
+
+# January 28
+
+_I beseech you therefore, brethren, by the mercies of God.—Rom. 12:1._
+
+Jehovah added to the remnant of Jewish believers by engrafting consecrated believers from among the non-Jews, or Gentiles, into the Theocratic organization, the symbolic olive tree. Such action toward Gentiles, who were not the natural seed of Abraham and hence not in covenant relation with Jehovah, was a most unusual and unexpected display of God's mercy. His compassion as expressed in this latter way was so surpassing all human conception that it especially caused the self-righteous natural Israelites to become offended. Though desiring mercy themselves from God, their religious self-righteousness did not let them be merciful to others; and they pushed back even God's mercy to themselves. But those who were merciful obtained His mercy and continued therein. God's mercy having been extended to them, they should use the opportunity and privilege it opened up. _W 5/15_
+
+---
+
+<sup>**Page 248**</sup>
+
+[Open Page 248 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=248)
+
+## January 29
+
+_I will make myself known in the eyes of many nations; and they shall know that I am Jehovah._
+
+—Ezek. 38:23, A.S.V.
+
+At the oncoming battle of Armageddon Christ Jesus the Son will fight to victory over Satan's world, for the vindication of Jehovah's name. In this decisive way the issue will be settled. Thereby will be shown that Jehovah is the almighty and most high God, the only One who wields universal domination, which means, his sovereignty over the earth and all creation, visible and invisible. This world will continue blind thereto, and willingly so, until its end; at which time Jehovah will forcibly open the eyes of all the unbelieving enemies and compel them to know that He is the Most High God. That time of destruction of the Devil's world is the battle of Armageddon, not so far ahead now, and there Jehovah will vindicate his name and place as the Supreme One. W 6/1
+
+## January 30
+
+_For what was impossible to the Law—thwarted as it was by human frailty—God effected. Sending His own Son in the form of sinful humanity to deal with sin._
+
+—Rom. 8:3, Weymouth.
+
+Christ Jesus, the Son of God, was not thwarted by human frailty. He was not weakened in the flesh by sin. He was not like Moses, who, although a man of faith, was imperfect and subject to sin. Jesus as a man was absolutely righteous in the flesh. He was justified before God, and could say to the self-righteous Pharisees who plotted to kill him: 'Which of you convinceth me of sin?' (John 8:46) By his resistance against sin even under persecution and temptation he maintained his justification before God, and thereby God through his Son in the flesh condemned sin in the flesh. 'Without controversy great is the mystery of godliness; He who was manifested in the flesh, JUSTIFIED in the spirit, seen of angels, preached among the nations.'—1 Tim. 3:16, A.S.V. W 8/1
+
+---
+
+<sup>**Page 249**</sup>
+
+[Open Page 249 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=249)
+
+# January 31
+
+_God commendeth his love toward us, in that, while WE were yet sinners, Christ died for US.—Rom. 5:8._
+
+No one can truthfully say that God loved any men because they were sinners. Before the Son of God died, there was no way for any man to have “justification of life” or get “life-giving acquittal”. Yet, before Christ Jesus died, there was a long line of faithful men and women, from Abel to John the Baptist, who exercised faith in God and were waiting upon his justification of life. Did God love such ones even before his Son died and laid the real foundation for the forgiveness of sins? Yes, God loved such men and women of faith and devotion. He loved also Jesus’ apostles and disciples even before his death occurred. God knew they would avail themselves of Jesus’ sacrifice after it was finished and its merit was presented to him in heaven. When they availed themselves of it, they were no longer sinners and ungodly. _W 8/15_
+
+# February 1
+
+_They shall see, to whom no tidings of him came, and they who have not heard shall understand._
+
+_—Rom. 15:21, A.S.V._
+
+We are living in the very culmination of the fulfillment of the prophecy Paul quoted, Isaiah 52:15. The “great multitude” from all nations, kindreds, and tongues must be educated to take a stand before God’s throne and declare in favor of his kingdom and rejoice in it. The situation constitutes a challenge. The prophecy of God’s Word echoes forth the Commander’s cry: “On the offensive with the Kingdom tidings to all the Gentile nations, that have not yet heard and understood!” The remnant of Jehovah’s “people for his name” dare not keep their Kingdom joy to themselves and let others go without hearing, understanding and rejoicing. And those Gentiles of good-will who have already heard and put their hope in Jehovah’s King must likewise let their gladness and rejoicing overflow in testifying to all nations about him. _W 12/15_
+
+---
+
+<sup>**Page 250**</sup>
+
+[Open Page 250 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=250)
+
+# February 2
+
+_He commanded them to be baptized.—Acts 10:48._
+
+While Peter was preaching to the Gentiles assembled at Cornelius' home the believing Gentiles were baptized with the holy spirit, and they were heard to 'speak with tongues, and magnify God'. Did Peter think that such baptism with the holy spirit was sufficient for those consecrated believing Gentiles? 'Then answered Peter, Can any man forbid water, that these should not be baptized, which have received the holy \[spirit] as well as we \[Jewish Christians]? And he commanded them to be baptized in the name of the Lord.' (Acts 10:44-48) The command was not for them to be baptized for remission of sins against the law covenant, for that covenant had never applied to the Gentiles. It is evident, therefore, that the baptism of the Gentile believers was and is different from John's baptism. It symbolized the same thing as it did in the case of Jesus, consecration to God. _W 2/1_
+
+# February 3
+
+_Arise, shine; for thy light is come, and the glory of the Lord is risen upon thee.—Isa. 60:1._
+
+In Isaiah's prophecy the prophecy about the anointing follows Jehovah's call to his organization Zion to 'arise, shine'. When Jesus came, the darkness of religion and of wickedness was covering the earth. He was the Chief One of Jehovah's universal organization Zion; and when he arose to his work of enlightening others as to God and his kingdom, Zion arose and shone with him. Hence, when Jesus had been anointed and went into Galilee, into the territory of the tribes of Zebulun and of Naphtali, preaching there and saying, 'Repent; for the kingdom of heaven is at hand,' then the prophetic call to arise and shine underwent fulfillment. 'The people which sat in darkness saw great light.' (Matt. 4:13-17) On this preaching tour Jesus testified in the synagogue of Nazareth that the prophecy of Isaiah 61:1,2 concerning the Anointed Preacher was fulfilled in him, Christ Jesus. _W 1/1_
+
+---
+
+<sup>**Page 251**</sup>
+
+[Open Page 251 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=251)
+
+# February 4
+
+_But the word is very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it. See, I have set before thee this day life and good, and death and evil.—Deut. 30:14, 15._
+
+If righteousness did not come by the Mosaic law, how could Moses rightly say that? Because he spoke in a prophetic way. He was a prophetic figure, foreshadowing the Greater Moses, Christ Jesus, whom Jehovah God was to raise up as Prophet and Commander. Hence Moses pictured Christ Jesus as providing the word and putting it right into the mouth and into the heart of Christians. And at the time that Paul wrote, Jehovah God had already sent down his beloved Son from heaven and let him descend into the abyss of death and then raised him up from the dead and thus God has provided the immortal Commander, to obey whom means life eternal. Thus that information was a present gospel to be at once acted upon. _W 6/15_
+
+# February 5
+
+_Hezekiah sent to all Israel and Judah, and wrote letters also to Ephraim and Manasseh, that they should come to the house of the Lord at Jerusalem, to keep the passover unto the Lord.—2 Chron. 30:1._
+
+It is not within the right or province of any government of 'Christendom' or 'heathendom' to determine what shall be the worship of its subjects, or to forbid and prevent any of them from worshiping the deity or god of their choice. The King of the New World, Christ Jesus, recognizes this privilege of choice as man's God-given right. Hence, like Hezekiah of old, he made this privilege available to the people by notifying them of the true God and His worship. Nineteen hundred years ago Christ Jesus had prophesied and declared that, during this time of his reign, 'this gospel of the kingdom shall be preached in all the world for a witness unto all nations.' This prediction he has stood by, now that his reign has begun. He took action like Hezekiah's. _W 3/15_
+
+---
+
+<sup>**Page 252**</sup>
+
+[Open Page 252 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=252)
+
+# February 6
+
+_God is our refuge and strength.—Ps. 46:1._
+
+Jehovah is the great refuge in the time of danger. When one's life is endangered by enemies opposing his mission, and when one's own means of defense are unequal to the situation, it is most reasonable to flee for refuge to the mighty Life-giver, who has sent one on this mission. This does not mean a bodily flight to any location, because, when hemmed in by enemies, he may be unable to remove himself from the danger zone. But fleeing to the great Preserver of life is accomplished by looking to Him under the circumstances, appealing to Him for help and preservation, and putting the keeping of ourselves entirely in His hands and ascribing all deliverance to Him. Our taking refuge in Him must be accompanied by our refusal to compromise with the enemies. Instead, we must faithfully keep our integrity toward Jehovah God and hold fast to our mission from Him. _W 7/1_
+
+# February 7
+
+_Jehovah hath given me the tongue of them that are taught \[or, of disciples].—Isa. 50:4, A.S.V., margin._
+
+The clergy are not witnesses of Jehovah but are blasphemers of His name; so how could they educate or ordain anyone to be Jehovah's witnesses? Jehovah God has repudiated their religious organization. He does not use it as an educational training school for his witnesses. He transmits no ordination through it. _He_ is the Teacher of his witnesses, and so states at Isaiah 43:10-12. He himself appoints this servant body to be His witnesses. He teaches them what to say and gives them the tongue or power of expression to say it. Jehovah thus ordains them by Christ Jesus. Having the ability to speak intelligently concerning things of God does not depend upon worldly schooling. Jehovah God, who conversed with the newly created Adam in Eden, is the Creator of the human tongue, and He can give to his servants a 'tongue' or ability to speak his message. _W 9/1_
+
+---
+
+<sup>**Page 253**</sup>
+
+[Open Page 253 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=253)
+
+# February 8
+
+_There is no truth, nor goodness, nor knowledge of God in the land. My people are destroyed for lack of knowledge.—Hos. 4:1, 6, A.S.V._
+
+The great peril to all nations is not the outbreak anew of global war. It is the outbreak of the universal war of Armageddon, between God's organization and Satan's organization, with all nations on Satan's side and against God's kingdom. The world catastrophe of Armageddon is whither the nations are now marching, even under banner and slogans of peace. There God by Christ Jesus will destroy all the backers and upholders of this old world and its institutions. After such destruction they will establish, without human hands, the promised new world, wherein righteousness dwells with peace forevermore. Only knowledge from God's Word is a defense against being swept along with politicians, financiers and clergymen in their willful march to destruction at Armageddon. _W 9/15_
+
+# February 9
+
+_His lightnings lightened the world: the earth saw, and trembled.—Ps. 97:4, A.S.V._
+
+Jehovah's lightnings which lighten the world are the flashings of truth, which shoot forth from him and show up the long-held religious errors and disclose the wicked deeds of darkness. His lightnings subject this old world to exposure as being the Devil's world, filled with the errors of religion and completely opposed to Jehovah's kingdom by Christ. Hence as the great Theocratic Ruler's lightnings continue to crash through the darkness of this world, revealing it as a doomed, hopeless organization, all that Satan's earthly organization can do is to shake with rage at Jehovah's witnesses and also to tremble in fear at the import of their bold message. Refusing to conform itself to the light of God's flashing truths, this symbolic _earth_ continues to writhe and twist as if in birth-pangs, suffering from sorrows which will reach their worst at her death at Armageddon. _W 10/15_
+
+---
+
+<sup>**Page 254**</sup>
+
+[Open Page 254 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=254)
+
+# February 10
+
+_I have put my spirit upon him.—Isa. 42:1._
+
+The spirit with which Jehovah anoints his servants is the active force by which he enables and empowers them to carry out their commission from him. The terms of the commission are plainly stated. Regardless of what the postwar arrangement brings forth to the nations, the terms of this commission stand unchangeable. These terms were fixed by Jehovah, who says: 'I am the LORD, I change not.' (Mal. 3:6) Those terms will stand and will be fulfilled without change until the great day of divine vengeance against all unrighteousness arrives and quickly brings the international postwar period to an end. Till then it is a time of special mercy and favor from God, during which time those who want to escape God's righteous vengeance may benefit themselves lastingly by listening to His anointed servants. His very sending of them is an act of divine mercy and grace. _W 1/1_
+
+# February 11
+
+_Thy seed shall possess the gate of his enemies; and in thy seed shall all the nations of the earth be blessed._
+
+_—Gen. 22:17, 18._
+
+In the warfare between God's organization and the enemy Satan's organization, which warfare culminates in the battle of Armageddon, Christ Jesus must win. He must violently seize the wicked organization and utterly destroy it; the enemy gates can not hold him off from doing so. Thereby Christ Jesus will vindicate Jehovah's name at Armageddon. That will result in the blessing of all faithful creatures that live. This means the faithful and obedient ones out of all mankind, whether now dead or alive, outside of the 144,000 who were joined with Christ Jesus in the Kingdom. The 144,000 were themselves first blessed by the Greater Abraham through his Seed, Christ Jesus, the Greater Isaac. Now, after the full number of the 144,000 are brought into the royal family, further blessings must go to those of good-will on earth. _W 5/1_
+
+---
+
+<sup>**Page 255**</sup>
+
+[Open Page 255 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=255)
+
+# February 12
+
+_Thus saith Jehovah that created thee, O Jacob, and he that formed thee, O Israel.—Isa. 43:1, A.S.V._
+
+The consecrated Christians composing the whole body or congregation of spiritual Israel are not the sovereign power, to control and regulate the organization by the power of voting and democratic elections. The organization abides by the absolute rule that Jehovah God is the supreme One, the universal Sovereign, and that therefore the organization he created is subject to His will in all things. He tops the organization and administers it, and thus it is Theocratic. It pays full submission to His dominion or Theocracy, and observes the divine will as revealed through his written Word. Since Christ Jesus is His Chief Servant and is most closely at one with his Father, therefore Jehovah the Theocrat had made his Son Christ Jesus the invisible, heavenly Head over the Theocratic organization of spiritual Israel. _W 6/1_
+
+# February 13
+
+_Wherefore the law was our schoolmaster to bring us unto Christ, that we might be justified by faith. But after that faith is come, we are no longer under a schoolmaster. For ye are all the children of God by faith in Christ Jesus.—Gal. 3:24-26._
+
+Hence “justification of life” by faith was almost 2,000 years later than Abraham’s day. It came only through the actual arrival of the promised Seed of Abraham, Christ Jesus. To Abraham, even with all his faith, no “justification of life” could be given in advance of or in anticipation of the bringing forth of this Seed. That was not God’s arrangement for Abraham; and God does not run ahead of himself when his purposes are fixed. Abraham’s justification by works of faith, or his imputed righteousness, was not the “justification of life” that is credited to the Christian church. If it had been such, then he would not have died and been buried. He would have been given human perfection as a human son of God. _W 8/1_
+
+---
+
+<sup>**Page 256**</sup>
+
+[Open Page 256 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=256)
+
+# February 14
+
+_Sing to Jehovah, bless ye his name, proclaim the glad-tidings from day to day of his victory._
+
+—_Ps. 96:2, Rotherham Psalms._
+
+Under such command from on high, how can the remnant and their good-will companions be silent any day? Any day of the week they cannot be quiet from publishing to others the glad-tidings concerning Jehovah's past victories and coming victories over Satan's organization. The message about the deliverance and salvation of all those who take their stand for His kingdom is good news. It is gospel. It must be daily proclaimed by Jehovah's united announcers on earth. They are not singing to the great heroes of the day, but are singing to Jehovah, who has revealed his name to them. They bless his name, which the religionists curse. They bless it by speaking well of his name, telling what it means, and keeping integrity in order to have part in vindicating his holy name. _W 10/1_
+
+# February 15
+
+_Our tribulation worketh out endurance. And our endurance a testing \[approval], and our testing hope, and our hope putteth not to shame._—_Rom. 5:3-5, Roth._
+
+In place of growing discouraged because of sufferings, the remnant of the church of God have reason to rejoice that they are 'counted worthy to suffer shame for his name'. If to be on Jehovah's side of the great controversy means to suffer for his name's sake, then they are glad to be the targets of such tribulation from the world, which is on the other side of the controversy, the wrong side. Such tribulations put a test upon their integrity to Almighty God, and call for their endurance without making any compromise with the opposers. If they endure such without letting their devotion to God be spoiled, it will work out for them God's approval. If they have his approval, then it makes their hope burn all the more brightly. They know that putting one's hope in God and in his King Christ Jesus will never bring disappointment. _W 8/15_
+
+---
+
+<sup>**Page 257**</sup>
+
+[Open Page 257 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=257)
+
+# February 16
+
+_He was rich, yet for your sakes he became poor, that ye through his poverty might be rich.—2 Cor. 8:9._
+
+Richer in heaven than all the other sons of God, Jesus emptied himself of _all_ this and took up human life. He left his home and went forth preaching the kingdom of heaven, all the while laying no claim to anything material on this earth, not even to where to lay his head. Finally he laid down his life in death, in proof of his unbroken devotion to God and also as a ransom sacrifice for men who will accept it. Though God raised him from the dead and restored him to heaven to greater riches and power than ever before, yet it was by first making himself poor to contribute everything for the vindication of Jehovah's name that Christ's faithful followers have been made so rich spiritually. These riches are the foretaste of the wealth of everlasting life that the faithful will inherit in the New World of righteousness. _W 12/1_
+
+# February 17
+
+_And in every work that \[Hezekiah] began in the service of the house of God, and in the law, and in the commandments, to seek his God, he did it with all his heart, and prospered.—2 Chron. 31:21._
+
+The noteworthy progress of the witness work since 1918 is not due to Jehovah's witnesses. They are few comparatively, like Hezekiah's kingdom amid mighty heathen nations of old. The progress is due to God's anointed King, Christ Jesus. His kingdom is at hand, and he has 'wrought that which was good and right and truth before the Lord his God' and in behalf of his devoted followers. He has led them 'in the service of the house of God' and in seeking the true God according to His law and commandments, and not according to religion. He has done this with all his heart. Hence Jehovah has prospered him; all this with benefit to his faithful remnant and their companions on earth. The interests of God's kingdom have been built up and advanced among them, and have prospered. _W 4/1_
+
+---
+
+<sup>**Page 258**</sup>
+
+[Open Page 258 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=258)
+
+# February 18
+
+_God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.—Rom. 5:8._
+
+From first to last Jehovah God has shown his loving-kindness in order to recover sincere men from the service of unrighteousness which leads to destruction. Since God's loving-kindness is in all cases extended toward sinners against him, his loving-kindness toward such is a great pouring out of compassion upon them. It is more than mere pity; for mere pity may be combined with scorn and contempt toward the pitied ones as being weak or inferior. It is _compassion_; for compassion combines tenderness that takes hold, as it were, of the bowels and causes them to quiver with emotion. Only such tenderness could move the Most High God to give his Son to the death in behalf of humankind. The gift of the Son expressed the tender regard of the Supreme Giver, because it was his only begotten and most beloved Son. _W 5/15_
+
+# February 19
+
+_God forbid that I should glory, save in the cross of our Lord Jesus Christ, by whom the world is crucified unto me, and I unto the world.—Gal. 6:14._
+
+Everlasting life is not by the works of the Mosaic law, but by God's grace or mercy through Christ. Hence Paul said he was not trying to frustrate the mercy of God by going back to the works of the law for justification. To do that would mean he looked on Christ's death as of no benefit and of no power to liberate Jews from the law. (Gal. 2:21) Paul was dead to the world, being viewed by the world as a crucified cursed creature, a criminal slave. At the same time the world was under God's curse of destruction and was a crucified dead thing to Paul. Hence Paul did not care to live to the world. He did not consider himself bound to live according to the world by conforming to its way and taking part in its works. He sought not to be justified by living up to its standards, but followed Christ faithfully. _W 7/15_
+
+---
+
+<sup>**Page 259**</sup>
+
+[Open Page 259 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=259)
+
+# February 20
+
+_He that soweth to the spirit shall of the spirit reap life everlasting.—Gal. 6:8._
+
+The time of life must be redeemed. We cannot afford to waste any part of our life, using it vainly, to no good result. The time of youth is a time of opportunity. The crop we reap in later life is largely determined by what we sow in youth. God's law applies in this matter and cannot be mocked, no matter how scientifically. All human flesh, even in the time of youth, is dying in corruption. So, if a man sows according to his animal passions and fleshly desires, he will reap no more than death in corruption at the time of dissolution of the fleshly body. But if he cultivates his life and implants in it what is in favor of spiritual growth and well-being, he is sure to reap spiritual benefits to life everlasting. If we sow to God and to his pleasing, we are certain to receive from the Great Spirit Being life by Christ Jesus. _W 11/15_
+
+# February 21
+
+_The law, or the prophets: I am not come to destroy, but to fulfil.—Matt. 5:17._
+
+Destroying the law by breaking God's law covenant is far different from fulfilling it and thus moving it out of the way and lifting its obligations from his disciples. Certainly the fulfilling of the prophets made their prophecies a thing of the past and no longer applying or requiring fulfillment. Likewise the fulfilling of the law makes it a thing of the past and relieves Christ's followers from its requirements. In order to fulfill the law and the prophets, Jesus by Jewish birth was 'made under the law, to redeem them that were under the law'. For illustration: The law commanded the yearly celebration of the passover over a slain lamb. Christ Jesus did not destroy the passover celebration, but moved it out of the way by fulfilling it, in that he became the antitypical passover Lamb, 'the Lamb of God, which taketh away the sin of the world.' _W 2/15_
+
+---
+
+<sup>**Page 260**</sup>
+
+[Open Page 260 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=260)
+
+# February 22
+
+_The spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me.—Isa. 61:1, A.S.V._
+
+No one could rightly take up these words and quote and apply them to himself in their fullness of meaning but Jesus Christ. About six months before his public application of the words to himself he had been anointed with the spirit of the Lord _Jehovah_. By reason of this, Jesus there became Christ, for _Christ_ means _Anointed One_. He became “Messiah the Prince”, for the Hebrew word _Messiah_ likewise means _Anointed One_, and Jesus was anointed to be the Chief One or Prince in the kingdom of heaven. (Dan. 9:25) Although he was in the flesh, Jesus as a sinless and perfect man was a member of God’s universal organization Zion. But now, on this occasion of his baptism, God’s organization or _woman_ Zion brought Jesus forth as “Messiah the Prince” or as Jesus the Anointed, Jesus _Christ_. He was therefore a new creature. W 1/1
+
+# February 23
+
+_Neither is it beyond the sea, that thou shouldest say, Who shall go over the sea for us, and bring it unto us, that we may hear it, and do it?—Deut. 30:13._
+
+One who is justified by faith does not question just how Christ could fulfill the prophecies and die and then be raised up from the depths of death. He does not doubt the almighty power of God to raise Christ from the dead in vindication of divine prophecy; nor does he doubt that God has already raised him from the dead and laid him as the “precious corner stone of sure foundation” in Zion above. Height and depth are no obstacles to the Omnipotent God in providing the true and rightful “Commander to the peoples” who leads men to eternal life. If God could send such Commander down from heaven by transferring his life to human flesh on earth, this same God could raise the Commander up from the abyss of death to life in heaven. Hence he does not reject the inspired Bible and look for a gospel yet to be produced. W 6/15
+
+---
+
+<sup>**Page 261**</sup>
+
+[Open Page 261 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=261)
+
+# February 24
+
+_Having the everlasting gospel to preach.—Rev. 14:6._
+
+The small original remnant that faithfully stood up under the judgment tests of 1918 burned with zeal to reopen publicly Jehovah's worship by a fearless witness world-wide to his kingdom until the final end of this world should come. This thing was bigger than themselves. They threw off the fetters of selfishness. They took counsel from God's Word, that his worship was for all who would gain everlasting life and that their own personal salvation was not the end of the matter nor the thing of chief importance. Others besides themselves must be informed of the Kingdom gospel of salvation and must be helped to worship God. Hence they joyfully rallied to the Scriptural standard, 'This gospel of the kingdom shall be preached in all the world for a witness unto all nations.' In 1922 the rousing cry was raised: 'Advertise the King and his kingdom.' _W 3/15_
+
+# February 25
+
+_Hezekiah the son of Ahaz king of Judah began to reign. And he did that which was right in the sight of the Lord \[Jehovah].—2 Ki. 18:1, 3._
+
+The effects of religion during the reign of Ahaz were ruinous to the nation of Judah. When Hezekiah began to reign, the choice lay between religion with destruction and Jehovah's worship with national salvation. This fact is of the highest importance to notice. The nations of 'Christendom' are unchangeably committed to their ways, and are too far gone to take this truthful fact to heart and amend their course. Their destruction at Armageddon is clearly in sight. It is left for individuals among such doomed religionized nations to take heed to this fact and to take personal action, with the wisdom of King Hezekiah. Then they will receive personal benefit, regardless of what befalls the nations. Hence each individual, feeling responsibility personally for his own destiny, will consider Hezekiah's course. _W 3/1_
+
+---
+
+<sup>**Page 262**</sup>
+
+[Open Page 262 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=262)
+
+# February 26
+
+_Fools hate knowledge.—Prov. 1:22._
+
+Some persons are frequently heard to say: 'Oh, I do not need that message of God's kingdom in those WATCHTOWER books. I try to keep the Ten Commandments, and that's enough. I do not try to do any wrong, and it will be all right with me in the end. I do not have to know what is in those books.' At the same time these persons refuse to follow the steps and instructions of Christ Jesus. In so doing, these would-be keepers of the Ten Commandments do just like the rich young Jew. This young ruler said he kept all the commandments of God from his youth up, but he refused Jesus' invitation to dispose of all his wealth for the sake of the Lord's poor and to come and follow Christ Jesus in preaching God's kingdom. The entire Jewish nation professed to keep the Ten Commandments and Moses' law, but they failed to acquire righteousness and eternal life by their self-conceited course. _W 6/15_
+
+# February 27
+
+_I will bring thy seed from the east, and gather thee from the west; I will say to the north, Give up; and to the south, Keep not back.—Isa. 43:5,6._
+
+The gathering of the remnant of spiritual Israel in these latter days connotes or means along with that the gathering together also of the 'stranger' class and establishing them within the 'gates' of the remnant's organization. It is exactly so, particularly from and after 1931. Now the gathering of these persons of goodwill continues, and the distances from which they are gathered continue to lengthen out, farther to the south, north, east and west. In every direction Jehovah God is calling out: 'Give up! Keep not back! Bring them from far, yes, from the ends of the earth!' His call for the delivery is irresistible. Persons disposed to interfere should call to mind Egypt's fate, and Babylon's. Men, peoples and nations are of little consequence when interfering with the fulfillment of God's declared purposes. _W 6/1_
+
+---
+
+<sup>**Page 263**</sup>
+
+[Open Page 263 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=263)
+
+# February 28
+
+_That the soul be without knowledge, it is not good; and he that hasteth with his feet sinneth. The foolishness of man perverteth his way.—Prov. 19:2,3._
+
+“Christendom” rebels against the reproofs which God sends against her through the message of His witnesses. She has no knowledge and understanding. For her willful ignorance she will be destroyed at the battle of Armageddon. Those who want to avoid her fate will not resist the information and the reproofs which she refuses. Without first knowing what is God’s will, they would be hastening down the same path of sin in which she hurries toward Armageddon, and would show themselves foolish. The end would not be a good one. If our business fails due to our foolishness and we fret against God and blame him for it, it will do us no good. We could have protected ourselves against such a result by seeking information beforehand on God’s will. It is not good to be without defense by knowledge. _W 9/15_
+
+# March 1
+
+_For with the heart man believeth unto righteousness; and with the mouth confession is made unto salvation._
+
+_—Rom. 10:10._
+
+This means that the gospel word must first get into the heart of man. Man must mentally grasp the facts and must get a heart belief and conviction that God sent his Son and resurrected him from the dead and that God exalted him as Lord and Commander to His own right hand on the throne of the universe. Man must next prove his belief by surrendering himself to God in full consecration. Man must do this, because, being purchased by the sacrifice of the One whom God raised from the dead, man is no longer his own, but owes all his prospects and provision for eternal life unto God. But this is not all. Besides such consecration, man must make a confession before others of what God has done by and through Christ Jesus. The confession must be with firm belief therein. _W 6/15_
+
+---
+
+<sup>**Page 264**</sup>
+
+[Open Page 264 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=264)
+
+# March 2
+
+_Jesus came from Nazareth of Galilee, and was baptized of John in Jordan.—Mark 1:9._
+
+Water baptism is performed by man. However, it did not originate with man, nor is it performed by the authority of men. Those immersed in water according to the Scriptures do not go through any rite or ceremony established and authorized by mere men. Baptism is of God, who once baptized a whole world with watery destruction, namely, by the flood of Noah's day. (1 Pet. 3:20, 21) Jesus recognized the baptism of John as being from heaven. For that reason he came to John at the Jordan river to have the act performed toward himself. So Jesus submitted to immersion at the hands of John, and said at the time: 'For thus it becometh us to fulfil all righteousness.' (Matt. 3:13-17) That is, Jesus was immersed because it was right; it was the will of God toward Jesus. _W 2/1_
+
+# March 3
+
+_Your sons and your daughters shall prophesy, . . . also upon the servants and upon the handmaids in those days will I pour out my spirit.—Joel 2:28, 29._
+
+Everyone, therefore, that is brought into the body of Christ by reason of being anointed with God's spirit is brought into the organization to be a preacher, a minister of God. None are brought into the body to merely form a congregation of hearers to listen while an appointed few members do some weekly preaching for an hour or so. But all brought into Christ's body, whether male or female, are brought in to be ministers, to preach. 'There is neither male nor female: for ye are all one in Christ Jesus.' (Gal. 3:28) Whereas women are not suffered to preach and teach _within_ the church (1 Tim. 2:11, 12), yet the anointing is upon them also. Hence the responsibilities and assigned duties of the anointing rest upon them equally with the men. That means they as well as the men are anointed to preach the glad tidings. _W 1/1_
+
+---
+
+<sup>**Page 265**</sup>
+
+[Open Page 265 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=265)
+
+# March 4
+
+_I will greatly rejoice in the Lord \[Jehovah], my soul shall be joyful in my God; for he hath clothed me with the garments of salvation.—Isa. 61:10._
+
+It is no individual on earth who speaks these words in the fulfillment of the prophecy. It is the remnant as a unit under their Anointed Head Christ Jesus. He is the Bridegroom, and they are a part of his “bride”. They greatly rejoice because God has delivered them from the enemy’s power and has thus vindicated them as his chosen and approved “faithful and wise servant”. He has covered the remnant with ‘salvation’s garments’ by saving them and rescuing them from Babylon’s power and thereafter continually preserving them in his joyous service. They are a company identified by his salvation, and they declare that “salvation belongeth unto Jehovah”. _W 1/15_
+
+# March 5
+
+_May God . . . give you such harmony with one another, in following the example of Christ Jesus, that you may praise the God and Father of our Lord Jesus Christ with one accord and one voice._
+
+_—Rom. 15:5, 6, Goodspeed._
+
+Christians who are united with the “body of Christ” should be like the human body, which is one body even if it has many members. They should therefore recognize the various kinds of service each member renders in the “body of Christ” through the power of God’s spirit; and they should owe one another nothing but to love one another. (Rom. 12:4-6; 13:8-10) Remembering that their brother in Christ is the Lord’s servant and that the Lord is the judge of his servants, they should not judge their brother if he is conscientious, but be very considerate of his tender conscience. (Rom. 14:4, 10, 19-22) Those strong in faith and understanding should put up with the weakness of those not fully grown in faith and understanding. They should not be always pleasing and suiting themselves selfishly. Then they will be Christlike. _W 12/15_
+
+---
+
+<sup>**Page 266**</sup>
+
+[Open Page 266 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=266)
+
+# March 6
+
+_And so all Israel shall be saved.—Rom. 11:26._
+
+With Christ Jesus the spiritual Israel began. He chose, taught and trained twelve apostles to be the foundations for the spiritual Israel, Christ Jesus himself being the basic, general Foundation. Therefore it is by means of the new covenant over Christ's blood that any of the branches stand in this Theocratic organization; and those who are branches in it make up the spiritual Israel. Christ Jesus, the 'one mediator between God and men', is the stem or tree-trunk in which these branches are inserted. (1 Tim. 2:5, 6; Isa. 11:1-5; Zech. 3:8; 6:12) The full number of these spiritual Israelites, that is to say, _all_ spiritual Israel, must be saved to the heavenly kingdom. The predetermined number of 144,000 must be made up; and to that end God extended his goodness to the Gentiles and set before those of them that believe an open door of opportunity to enter the Kingdom. _W 5/1_
+
+# March 7
+
+_Jehovah is the portion of mine inheritance and of my cup: thou maintainest my lot. The lines are fallen unto me in pleasant places.—Ps. 16:5, 6, A.S.V._
+
+All of Jehovah's witnesses, who have turned their backs upon the selfish advantages of this world, rejoice to have the Most High God as their all in all. They are persuaded that, if they abide faithful to him, he will maintain the lot or assignment that he has ordained for them, whether to be with Christ on the heavenly throne or to be upon this earth after Armageddon during the thousand-year reign of Christ. They need not worry about that. Meantime, if Jehovah grants them the privilege, the opportunity, the means and the territory to engage in his worship and service as his witnesses, then they agree with David that the measuring lines of God's will have fallen and marked off for them a pleasing field of activity and of present living for them. Hence they fight for such freedom to worship God in this favored state. _W 7/1_
+
+---
+
+<sup>**Page 267**</sup>
+
+[Open Page 267 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=267)
+
+# March 8
+
+_He shall be to thee a mouth.—Ex. 4:16, A.S.V._
+
+Satan's world was foreshadowed by ancient Egypt, and at this end of it God sends his Greater Moses to deliver his message. He sends him to reveal Jehovah's name to his consecrated people and to declare his vengeance against the mighty organization of antitypical Pharaoh, Satan. Christ Jesus being invisibly in the spirit at the temple and not speaking directly to creatures on earth, Jehovah God has given him the remnant of his brethren on earth to speak the divine message for him. They serve as his spokesmen to the people and as a mouth for him. Jehovah is with the mouth of his servant class, that is, both the mouth of Christ Jesus the Head of the servant class and also the mouth of the remnant today of that servant class. The words which Jehovah gives to his Greater Moses, these Christ Jesus transmits to the remnant by revealing the truth through the Bible. _W 9/1_
+
+# March 9
+
+_That there may be equality: as it is written, He that had gathered much had nothing over; and he that had gathered little had no lack.—2 Cor. 8:14, 15._
+
+Thus, according to God's loving pleasure, those having more will not have too much and waste it, while those having little will not have a deficiency that cuts down their strength and ability to serve Jehovah actively. It is as when Jehovah provided manna miraculously for the Israelites in the wilderness. (Ex. 16:18) So suppose a company publisher is trying to make a quota of hours in service. Yet, if he tries to help any brethren or any of the newly interested to get into the field, he need not fear he will be hurting his quota of service to the Lord. In the long run, as the service continues on, the Lord will equalize matters, whereas at the same time our fellow servants are being actively aided into His witness work. Thus neither the general work suffers nor our individual work; our help is more widespread to others. _W 12/1_
+
+---
+
+<sup>**Page 268**</sup>
+
+[Open Page 268 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=268)
+
+# March 10
+
+_Thou trustest upon the staff of this bruised reed, even upon Egypt; whereon if a man lean, it will go into his hand, and pierce it: so is Pharaoh king of Egypt unto all that trust on him. But if ye say unto me, We trust in Jehovah our God.—2 Ki. 18: 21, 22, A.S.V._
+
+The religious-political totalitarian rulers are aware of the vigorous fight which Jehovah's witnesses still wage for the preservation of the rights and freedoms which are cherished by the honest people of genuine democratic spirit. Satan's mouthpieces warn Jehovah's witnesses that they should not trust that these democratic rights and liberties will always be guaranteed and available for them in their witness work; but democracy will fail them, just as Egypt, 'the king of the south,' failed the Israelites of old. Jehovah's witnesses answer that they are fighting for God-given rights and freedom, and that they fear, obey and trust in Him, the King of Eternity. _W 4/1_
+
+# March 11
+
+_Let them be put to shame, and perish: that men may know that thou, whose name alone is JEHOVAH, art the most high over all the earth.—Ps. 83: 17, 18._
+
+When the time comes to prove that the God who alone bears the name of Jehovah is the Most High over all the earth it will be at the cost of the lives of many men and women of all nationalities, all such being his enemies. That means that many will not get the eternal life which comes from rightly knowing Jehovah God and the Son whom He sent. But the lives of such enemies are easily expendable in order for the great issue to come to permanent settlement. Why, so important is it to the peace, harmony and prosperity of all the universe to prove before all creatures that Jehovah God is the Most High over all things that the whole world, this old world, must die. World destruction is ahead of us and not possible to be turned aside. The Bible long ago foretold of its coming, and holds out hope that 'men of good will' may survive it. _W 6/1_
+
+---
+
+<sup>**Page 269**</sup>
+
+[Open Page 269 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=269)
+
+# March 12
+
+_I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, holy, acceptable unto God.—Rom. 12:1._
+
+These brethren had already dedicated themselves to God in full consecration and had been justified by Christ's blood. There was now no condemnation to them, because they were in Christ Jesus as members of 'his body'. Also God, by his spirit or active force, testified to them that they were in line for the Kingdom as heirs of God and joint-heirs with Christ Jesus. As members of his body, they were 'branches' in the trunk or stem of the Theocratic 'olive tree'. The divine mercy will be discontinued to the unfaithful branches. What the apostle here appeals for, then, must be for his brethren to carry out their consecration to God, and to do so in a practical, active way. How shall this be done? By presenting their bodies a living sacrifice that will be holy and acceptable. _W 5/15_
+
+# March 13
+
+_If thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved.—Rom. 10:9._
+
+The 'word of faith' has been enlarged upon by facts of history since Paul's day, and particularly since 1914, which facts fulfill the prophecies concerning the end of this world and the presence of the Lord Jesus in the established kingdom of God. Hence in preaching the Kingdom message Jehovah's witnesses must call the notice of all to those long predicted facts and their present meaning. Therefore in now confessing Christ Jesus as Lord we must confess him as our Leader, our Commander, and our reigning King, the only Foundation Stone laid in that exalted position in Zion, and the One upon whom the capital government of the universe is built by Jehovah God. If these facts are not believed on and confessed by the Christian, there is no salvation for such one. _W 6/15_
+
+---
+
+<sup>**Page 270**</sup>
+
+[Open Page 270 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=270)
+
+## March 14
+
+_It is God that justifieth._—Rom. 8:33.
+
+Jehovah is the only One who can justify creatures and whose justification leads to life everlasting for such creatures. In other words, justification by him is the only kind that counts. The act of justifying means to show, prove, pronounce or declare a person to be right, just, holy, or devoted to righteousness. If a person has justification from Jehovah God, he need not care how any other creatures or even all this present world looks upon him and judges him. Let the world condemn all it wants to; yet he can take the position of the Christian writer Paul, who said: “If God is for us, who can be against us? Will not he who did not spare his own Son, but gave him up for us all, with that gift give us everything? Who can bring any accusation against those whom God has chosen? God pronounces them upright; who can condemn them?”
+—Rom. 8:31-34, _Goodspeed_. W 7/15
+
+## March 15
+
+_And hope will not disappoint us. For, through the holy spirit that has been given us, God’s love has flooded our hearts._—Rom. 5:5, _Goodspeed_.
+
+The Christians’ rejoicing in tribulation, and the enduring of it, all the time hoping in God, denotes that they love Him. Such tribulation is no mark of God’s disfavor and disapproval concerning them, but is a proof that He loves them. “For whom the Lord loveth he chasteneth, and scourgeth every son whom he receiveth. If ye endure chastening, God dealeth with you as with sons; for what son is he whom the father chasteneth not?” (Heb. 12:6, 7) God gives to his sons his spirit or active force. It is holy, and is hence no spirit of shame or fear of men. It is a spirit “of power, and of love, and of a sound mind”. (2 Tim. 1:7) It floods the heart with love for God. It makes them appreciate more the love that God showered upon them. Hence Satan’s attempts to cool off their love to God by tribulation and reproach fail. W 8/15
+
+---
+
+<sup>**Page 271**</sup>
+
+[Open Page 271 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=271)
+
+# March 16
+
+_Enter not into judgment with thy servant: for in thy sight shall no man living be justified.—Ps. 143:2._
+
+Man cannot relieve himself of the sin and imperfection he inherited from mankind's first father, Adam the sinner. Man cannot blot out his transgressions and sins nor lift from himself God's condemnation which descended upon him with his inheritance of sin and imperfection from Adam. The Israelites, with God's law given to them through Moses, could not do it. Their inability to keep God's law perfectly simply proved them to be covenant-breakers before God, and it made their sinfulness all the more outstanding. The failure of the Israelites under the law covenant proved that there is absolutely none of mankind that is righteous in himself, but that all who gain life through righteousness must do so by the righteousness of God, the justification He provides through Christ. _W 8/1_
+
+# March 17
+
+_It is God who guarantees us and you to Christ; he has anointed us.—2 Cor. 1:21, Goodspeed._
+
+Are we to conclude, then, that the members of the church or Christ's body are authorized to use and apply to themselves the same words as Jesus did, namely, 'The spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me to preach good tidings unto the meek'? Yes; although it is more as a church body under Christ their Head that they must speak. The prophet Isaiah, in using the personal pronoun _me_ under inspiration, was not picturing each individual Christian member, but was foreshadowing primarily Christ Jesus and then secondarily all the church under him as a unit or one body. It is, of course, proper for each individual member under Christ to apply Isaiah 61:1-3 to himself as indicating the source of his ordination; but that does not mean that such prophecy is wholly fulfilled in that one individual so quoting it. Not all the members of the body of Christ have been on earth at one time. _W 1/1_
+
+---
+
+<sup>**Page 272**</sup>
+
+[Open Page 272 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=272)
+
+# March 18
+
+_Receive my instruction, and not silver; and knowledge rather than choice gold. For wisdom is better than rubies; and all the things that may be desired are not to be compared to it.—Prov. 8:10, 11._
+
+What a precious privilege it is to be bearers of the Lord's knowledge to others! Just to think how priceless is the instruction with which we are entrusted makes us appreciate the more how rare and honored a privilege it is for us to transmit it to others. Glittering gold, purified silver, and sparkling jewels, are not comparable with it. The enrichment we experience by receiving it is described by one wiser than Solomon, namely, Christ Jesus, in the words above. Such spiritual treasure is rare and costly and beyond compare, and not everywhere to be found. So are those from whose lips fall such preciousness. Those possessed of such lips of knowledge are as rare as a precious jewel. _W 9/15_
+
+# March 19
+
+_Sing unto Jehovah, all the earth.—Ps. 96:1, A.S.V._
+
+'All the earth' which is commanded to sing since A.D. 1914 means persons upon this globe who are wholly devoted to Jehovah and his Theocratic Government. In David's day the 'earth' was the territory of the typical Theocratic government, and its inhabitants were under the leadership of Asaph and other Levite musicians in the land of Israel. In our day 'all the earth' means first all the antitypical Levites, the remnant of the footstep followers of the King Christ Jesus, and who are in line for the kingdom of heaven. (Rev. 14:1-3) In David's day all the other tribes besides the Levites joined in singing and shouting, men and women alike, under their musical leadership. (2 Sam. 6:15) Hence 'all the earth' now includes the present-day people of good-will who become companions of the antitypical Levites, the remnant of the 144,000. The song which such good-will persons hear from the remnant they are taking up by joyful publicity service. _W 10/1_
+
+---
+
+<sup>**Page 273**</sup>
+
+[Open Page 273 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=273)
+
+# March 20
+
+_The Lord reigneth; let the people tremble.—Ps. 99:1._
+
+Never in all the passage of time from everlasting to everlasting has there been a period like ours. It is because Jehovah has begun reigning by the instrumentality of a new creation. Such creation was never before in existence, and now He makes it his capital organization of the universe. His sacred Word calls it _Zion_; and the chief one in it is his first-begotten Son. By exalting his Son to be the principal member of the capital organization Jehovah has exalted him far above all other created heavenly powers. He has now brought his only begotten Son to the beginning of a new world which will cause righteousness to spring up everywhere on earth. Therefore Jehovah's reign brings in that New World of righteousness. The beginning of his reign means that the end of the free activity of wickedness is now in sight. _W 10/15_
+
+# March 21
+
+_And strangers shall stand and feed your flocks, and the sons of the alien shall be your ploughmen and your vintners.—Isa. 61:5, Leeser._
+
+The action of the 'strangers' is in harmony with the Spirit's invitation that all thirsty ones hearing the call to come to the water of life, and coming, should themselves say to others, 'Come.' (Rev. 22:17) Thus these 'strangers' too have a commission from Jehovah's Chief Anointed One, Christ Jesus the Spirit, to take part in preaching the Kingdom gospel to all the nations as an invitation to the waters of life. They recognize, therefore, that their appointment to service comes by Christ Jesus, and is not by or from men. As authority for them to serve in connection with the Kingdom gospel they refer to their Anointed King. They refer to his authority as expressed in his words at Isaiah 61:1-3. (Luke 4:18,19) They rely on his authority to send forth others to preach, even those whom he calls his 'other sheep'. _W 1/15_
+
+---
+
+<sup>**Page 274**</sup>
+
+[Open Page 274 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=274)
+
+## March 22
+
+_So the posts passed from city to city through the country of Ephraim and Manasseh even unto Zebulun: but they laughed them to scorn.—2 Chron. 30:10._
+
+The like treatment accorded to Jehovah's witnesses from and after 1919 is so notorious throughout 'Christendom' as not to need recital in detail. They are laughed to scorn and mocked as impostors, book- and magazine-peddlers, bigots, seditionists, unpatriotic fanatics, proselytists, Communists, etc. The abuse has gone to the extreme of greatest violence as to their persons and to destruction of their property, as by mobs and raids. Various pretexts, and base twistings of the law, have been seized upon to arrest and imprison them. And behind all this have been religion's dupes; and behind these, Satan and his demons. The survival of Jehovah's witnesses to this year 1946 is only by Jehovah's protection and preservation of his faithful servants. _W 3/15_
+
+## March 23
+
+_Vanity of vanities, saith the preacher; all is vanity._
+
+The inspired preacher or proclaimer correctly pronounced as the height of vanity the course of one who in youth ignores the Creator's existence and will and who grows old in such willful ignorance and has only the broken-down condition of old age to show for his long life. All was vanity or emptiness in his case, though he die a multimillionaire or respected politician or religious clergyman. Getting off in youth to a start in the commercial, political and religious things of this world, in disregard of the Creator of the New World, leaves the man at old age as empty as this doomed old world. Not so as to the one who from life's threshold forward has laid up treasures in heaven, the treasures which come down from the heavenly Creator, and who has served him faithfully with such treasures of knowledge and understanding, as one of His witnesses. _W 11/15_
+
+---
+
+<sup>**Page 275**</sup>
+
+[Open Page 275 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=275)
+
+# March 24
+
+_And God blessed the seventh day, and sanctified it: because that in it he had rested.—Gen. 2:3._
+
+At the beginning of the “day” Jehovah blessed it, pronouncing it good and to his glory and for the benefit of faithful creatures. At its ending in His due time the “day” will likewise be blessed, for the cursed conditions will then be entirely removed. He sanctified or consecrated this “day” to his holy purpose, in that from its very beginning he ordained that it should vindicate him as the Creator of that which is good and as the Maintainer and Preserver of such. And the end of this “seventh day” will yet prove that his original purpose in creating earth and putting man upon it has not been thwarted but has been gloriously realized in proof of his Godship, his supremacy and his all-power. By the end of this “seventh day” earth will be a paradise, filled with righteous human creatures all in harmony with God and acting as his representatives on earth. _W 2/15_
+
+# March 25
+
+_With their lips they make the acknowledgment and are saved.—Rom. 10:10, Goodspeed._
+
+True, by believing in their hearts and then making a consecration the result is righteousness by faith for the members of Christ’s body. Yet, one’s final salvation is not permanently fixed by mere belief at heart. After man consecrates to God in faith, then he must make confession with his mouth and persist in so doing until salvation is attained. The necessity of thus confessing or bearing witness before men so as to gain salvation, either in heaven or in earth, is made certain by Jesus’ words. (Mark 8:38) The confessing is not a mere lip service. The confession which is made unto salvation must be intelligent, with an understanding of the truth and with a firm belief in it. The confession that pleases God must be a speaking forth and testifying out of the abundance of a heart that has the truth and believes it. _W 6/15_
+
+---
+
+<sup>**Page 276**</sup>
+
+[Open Page 276 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=276)
+
+# March 26
+
+_He said, Because the gods of the kings of Syria help them, therefore will I sacrifice to them, that they may help me. But they were the ruin of him, and of all Israel.—2 Chron. 28:23._
+
+Who will deny and say that religion is not ruinous? (2 Chron. 29:6-9) Let the religious nations of 'Christendom', every one of whom is against Jehovah and his King Christ Jesus, survey the condition of this earth today and answer honestly. Is it any improvement over the global conditions in 1918 and 1919, when they rejected the testimony of Jehovah's witnesses concerning his Righteous Government by Christ Jesus and followed religion's lead? Jehovah's witnesses wait for a true-to-fact answer from the nations and their spiritual advisers. We still stand by the slogan widely publicized in 1938 and afterwards, that 'religion is a snare and a racket' and is the enemy of Jehovah and of his King. We know the Bible agrees. _W 3/1_
+
+# March 27
+
+_Let him that is athirst come. And whosoever will, let him take the water of life freely.—Rev. 22:17._
+
+Today, in answer to the proclamation that the kingdom of heaven is at hand, a vast multitude of persons from all nations and races are showing good-will and taking their stand for God's kingdom as instead of worldly politics. They are not thereby called to go to heaven and become a part of the Kingdom; neither are they expecting a heavenly destiny. They joyfully look ahead to staying on this earth forever and enjoying life in human perfection under the established kingdom of heaven. They expect to be its earthly subjects, and are regulating their entire lives in harmony with that comforting hope. The question arises now, Are natural Jews of today debarred from joining that multitude, just because of what the national organization of Israel did nineteen centuries ago? God's Word shows no exclusion. His invitation extends to persecuted Jews as well as Gentiles. _W 4/15_
+
+---
+
+<sup>**Page 277**</sup>
+
+[Open Page 277 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=277)
+
+# March 28
+
+_Nor is there any comparison between the gift and the effects of that one man's sin. That sentence arose from the act of one man, and was for condemnation; but God's gift arose out of many offenses and results in acquittal.—Rom. 5:16, Goodspeed._
+
+The _Authorized Version_ expression, 'by one to condemnation,' is set off in contrast with the expression, 'of many offenses unto justification'. On the one hand, God's judgment came by just one man and by one act of sin, and God's judgment brought condemnation. On the other hand, God's free gift comes when there have been many offenses committed, offenses committed by many more than one man. Besides that, God's free gift is for the opposite of condemnation; it is to acquittal or justification. So from the purely legal standpoint there is a difference between the two ways of procedure. All this indicates that _many_ are to be justified by God's grace. _W 8/15_
+
+# March 29
+
+_Being justified by his grace, we should be made heirs according to the hope of eternal life.—Titus 3:7._
+
+If a Christian had justification as to the flesh, even with righteousness according to the flesh imputed to him, he could not get to heaven on that basis alone, for 'flesh and blood cannot inherit the kingdom of God'. (1 Cor. 15:50) The perfect Adam, a creature of flesh and blood, was not made for heaven. The perfect man Jesus, therefore, before he returned to heaven, laid down his human life and gave his perfect flesh as bread for the life of the world, and was raised from the dead a spirit creature. He left an example for his footstep followers. Hence the members of his body may not forever remain living as humans, but must likewise die faithful. Rather than remain on the earth forever, they must for ever forsake the things of the flesh, this earthly existence. They must be presented in sacrifice to God for a vindication of his name, as their Leader Christ Jesus was. _W 8/1_
+
+---
+
+<sup>**Page 278**</sup>
+
+[Open Page 278 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=278)
+
+# March 30
+
+_Wherefore, . . . when I called, was there none to answer? Is my hand shortened at all, that it cannot redeem? or have I no power to deliver?—Isa. 50:2._
+
+There is every reason to turn away from this world's institutions and leaders of the postwar era and appeal to the almighty hand of Jehovah for redemption and deliverance. The Devil's world may seem to have built up in power, but there has been no diminution of Jehovah's supreme power. The honest-hearted persons who really hunger and thirst after righteousness will turn from 'Christendom' and will welcome Jehovah, who comes by his kingdom under Christ Jesus. They will rejoice at the call which he sends in the Kingdom message preached by his witnesses to all nations. They will answer Jehovah's call, by devoting themselves to the service of his kingdom by Christ Jesus. All such will experience the saving power of Jehovah's hand at the battle of Armageddon. _W 9/1_
+
+# March 31
+
+_Hezekiah commanded to prepare chambers in the house of the Lord; and they prepared them, and brought in the offerings and the tithes.—2 Chron. 31:11, 12._
+
+Hezekiah reminded the people of their responsibilities to contribute toward the temple support. With his faithful example before them, the people of the kingdom of Judah brought their tithes to the temple storehouse. For about five months they kept piling up their tithe contributions. There was such willing giving by Jehovah's worshipers that the priests and Levites and Nethinim had more than enough. The superabundance must not be wasted or let spoil; so Hezekiah arranged to build more storechambers at the temple. He appointed Levites to act as storekeepers to distribute supplies to the temple workers and their dependents as need came due. Thus the temple workers were not obliged to hunt jobs outside, but could apply themselves to their duties with the least concern for the material things of life. _W 4/1_
+
+---
+
+<sup>**Page 279**</sup>
+
+[Open Page 279 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=279)
+
+# April 1
+
+_I beseech you therefore, brethren, by the mercies of God, that ye present your bodies a living sacrifice, . . . which is your reasonable service.—Rom. 12:1._
+
+Jehovah's faithful remnant were deeply moved by His great mercy displayed to them in such richness to make them the ambassadors of the established kingdom of Jehovah by his Christ, and they responded. They presented their bodies unitedly as a living sacrifice. They did so by putting to active use all their bodily members and all their physical and mental faculties in order to perform the reasonable service or preaching 'this gospel of the kingdom' to all the inhabited earth. They continue proceeding to do so according to organization instructions, because, to render this united Kingdom witness as an organized body, they must have organization instructions. These instructions must be according to Jehovah's Theocratic Word. The apostle's words are organization instructions. _W 5/15_
+
+# April 2
+
+_He hath sent me to heal the brokenhearted, to preach deliverance to the captives.—Luke 4:18._
+
+The broken hearts which Jesus healed had been broken by the seeming failure of the divine promises concerning the Kingdom. The hearts had also been broken by the abominations and injustices committed in the name of the Jews' religion, which abominations blasphemed God's name, made void his commandments, and shackled the people. Those hearts had also been broken by the consciousness of sin and the need of true atonement toward God, rather than swelled up and fattened with the pride of self-righteousness such as the religious clergy generally displayed. Such hearts Jesus healed by proclaiming to them the curative message of God's kingdom and of true redemption from sin. He preached deliverance to the meek or oppressed ones, which was a lasting deliverance from the captivity of sin and its author Satan and his wicked organization. _W 1/1_
+
+---
+
+<sup>**Page 280**</sup>
+
+[Open Page 280 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=280)
+
+# April 3
+
+_Disciple all the nations, immersing them into the name of the Father.—Matt. 28:19, Rotherham._
+
+Baptism “into the name of the Father” means that the baptized one must recognize that not only is Jehovah the Father and Life-giver of all who get life but He is the Supreme One of the universe; he is The Theocrat and it is not for us to question but for us to obey his will; we are subject to him and we must be obedient to him in all trust and confidence. Being baptized into the name of the Father must mean that we consecrated ourselves to Jehovah God in recognition that He is the rightful Owner and Exerciser of the universal domination and he is the Highest Power and every creature ought according to the fitness of things to be subject to him and obey him. One can not be baptized validly unless having and making a recognition of these facts as to Jehovah’s name, which name stands for what he is. _W 2/1_
+
+# April 4
+
+_If the root be holy, so are the branches.—Rom. 11:16._
+
+The stock and branches of the true “olive tree” described by the apostle Paul picture the real seed of Abraham meant in God’s covenant with Abraham. The Israelites did not understand the mystery of God and thought it was to be a natural seed, all flesh-and-blood descendants of Abraham on earth. But the seed that was contemplated in the statement of God’s covenant to Abraham was and is a spiritual seed, a heavenly seed. It is not absolutely dependent upon the fleshly relationship. Therefore the real root of the Seed is Jehovah God himself, who is the Greater Abraham and of whom Abraham on earth was a type. The real Seed of this Abraham is Christ Jesus. (Gen. 12:7; Gal. 3:16) The trunk of the “olive tree” which bears the branches consequently pictures Christ Jesus as the true Seed. Hence the “branches” are the faithful followers of this true Seed of Abraham. If the “root” is God, who is holy, the branches must be holy. _W 5/1_
+
+---
+
+<sup>**Page 281**</sup>
+
+[Open Page 281 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=281)
+
+# April 5
+
+_But now thus saith the Lord that created thee, O Jacob, and he that formed thee, O Israel.—Isa. 43:1._
+
+Being a people for his name Jacob or Israel must of necessity be Jehovah's witnesses. Such spiritual Israel, or 'people for his name', the Creator did not form according to the political pattern of any nation of this world. He followed no democratic pattern as provided in the democracies of pagan Greece centuries before Christ. He did not imitate the republican model which Rome provided early in its history. He did not copy the later authoritarian style or design of the Roman Empire. God formed his people according to his own perfect will and purpose; that is, he made it a Theocratic organization. Its structure and operation are different, therefore, from anything the political, religious and commercial organizations of this world have to offer. No autocratic human head, hierarchy or ruling body of priests runs spiritual Israel. _W 6/1_
+
+# April 6
+
+_I will put enmity between thee and the woman, and between thy seed and her seed; he shall bruise thy head.—Gen. 3:15, Leeser._
+
+Jehovah's promise meant that God would destroy the old devilish heavens and the earthly organization subject to such; and that God would bring in a victorious new righteous heavens and build up a new righteous earthly organization. This meant the creation of a new world by means of His Seed, the regeneration of the world of righteousness. (Matt. 19:28) It meant that the reign of Jehovah God toward this earth would be restored or resumed. His Theocratic Government would be set up anew over this earth. His universal sovereignty would be made known and enforced again toward this earthly footstool and would be gladly recognized and complied with by all men that live. The bringing of such things to actuality would be cause for a new song, to fill all the earth at that time. _W 10/1_
+
+---
+
+<sup>**Page 282**</sup>
+
+[Open Page 282 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=282)
+
+# April 7
+
+_Preach good tidings unto the meek.—Isa. 61:1._
+
+Christ Jesus, Jehovah's Chief Anointed Servant at the temple, preached good tidings to the meek, poor and oppressed remnant of Jehovah's witnesses, by revealing to them in God's Word the glorious news concerning the long-promised Kingdom now set up in power. Their hearts had been broken by beholding the enemy depredations against God's people and their work, and had also been broken by sorrow and repentance at realizing their own failure to show courage and to keep up the active service of God in the face of enemy antagonism and persecution. Such broken hearts Christ Jesus bound up. Hearing their prayers to be cleansed from such iniquity of lip, he interceded for them with Jehovah. He then purged away such iniquity by sending the spirit upon them and filling them with fiery zeal to move their lips and all their powers as fearless witnesses of Jehovah.—Isa. 6:1-9. _W 1/15_
+
+# April 8
+
+_The word is very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it.—Deut. 30:14._
+
+Back there not only were the Israelites gathered before Moses, but also a mixed multitude of strangers. (Deut. 31:12, 13) However, today not only are the remnant of spiritual Israelites gathered to Christ Jesus at the temple, but a great flock of 'other sheep' also, the 'stranger' class, who expect to gain eternal life on earth in the New World. A vast multitude of this class have yet to be gathered. To all these, therefore, the Greater Moses is saying that the word of faith is not far off in the future, but is now nigh them. So the great Commander sends forth his word through preachers or proclaimers, and it is a word or gospel at hand, and thus this 'stranger' class can fix their hearts upon it and take it up in their mouths. This they must do in order to escape destruction with the old world at Armageddon and in order to enter into the New World of abundance of life. _W 6/15_
+
+---
+
+<sup>**Page 283**</sup>
+
+[Open Page 283 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=283)
+
+# April 9
+
+_Jesus also being baptized, and praying, the heaven was opened, and the holy \[spirit] descended in a bodily shape like a dove upon him.—Luke 3:21, 22._
+
+At the age of thirty Jesus directly devoted himself as of independent age to his special mission. That is to say, Jesus consecrated himself or set himself to do the special will of God. Jehovah God his Father sanctified or made holy such consecration of Jesus by pouring out his spirit upon Jesus as evidence of the divine acceptance of him. Hence, before Jesus was able to proceed on his mission he had to be anointed of his God and must be enlightened as to his mission and must be sent. The evidence that God gave of now sending Jesus forth was his anointing of Jesus. God, because of anointing or commissioning Jesus, sent his spirit upon Jesus and this spirit enlightened Jesus and filled him with might to do God's will. _W 1/1_
+
+# April 10
+
+_The priests were too few, so that they could not flay all the burnt offerings: wherefore their brethren the \[non-priestly] Levites did help.—2 Chron. 29:34._
+
+Restoration of the temple to God's worship not only provided employment there for all Levites, priests and non-priests, but also called for the services of all those who were not Levites, the so-called 'Nethinim'. They were not Israelites at all; but they had left demonism and become devoted to God's service at his temple in Jerusalem, rendering assistance to the Levites, even though in menial ways. These Nethinim must be understood as rendering their part of this revival of Jehovah's worship at his temple, even if they are unmentioned. There is no doubt that they rejoiced with Jehovah's chosen nation. Likewise, from and after 1919 many persons outside of Jehovah's remnant saw the reconstruction work of His worship in progress. In good-will they expressed their consecration to Him and His kingdom by joyfully joining in his service at His temple, 'day and night.' _W 3/1_
+
+---
+
+<sup>**Page 284**</sup>
+
+[Open Page 284 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=284)
+
+# April 11
+
+_Search for her as for hid treasures: then shalt thou understand the fear of Jehovah, and find the knowledge of God.—Prov. 2:4, 5, A.S.V._
+
+The Bible is complete in our day. By that recorded Word of God we acquire the enlightening information and testimony concerning our Creator, Jehovah. Rather than try to find flaws and seeming contradictions in the Bible so as to discredit it in our own eyes, we should approach it as Christ Jesus and his apostles did, namely, as being the Word of God. We should lift up our voice in prayer to its Author to help us to discern its truth and to understand its depths of learning. We should accept it as the Book containing his Word and commandments. Then, with a love for learning, we should dig into it and search through it, not to uncover doubtful things and stumblingblocks, but to discover precious truths and disclosures of vital information and instruction. _W 9/15_
+
+# April 12
+
+_It shall be perfect to be accepted.—Lev. 22:21._
+
+That is why those who become members of the 'body of Christ' needed justification first. Justification by faith serves a very necessary purpose for the church of God. It is by this, says Romans 5:1, 2, that these have access 'into this grace wherein we stand, and rejoice in hope of the glory of God'. If the members of the church did not exercise faith in Christ and then receive the imputation of righteousness to justify or acquit them, they could not be accepted of God to be sacrificed with Jesus. There would be nothing that they could lay down, seeing that they were already under condemnation to death and hence had no right to life. Human perfection as sons of God worthy of eternal life on earth in the new world would not have been credited to them. Also God would not then have his High Priest Christ Jesus to offer them in sacrifice to him. Hence, first, God by his grace justified them and so made them 'accepted in the beloved'. _W 8/15_
+
+---
+
+<sup>**Page 285**</sup>
+
+[Open Page 285 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=285)
+
+# April 13
+
+_Who also hath made us able ministers of the new testament; not of the letter, but of the spirit: . . . how shall not the ministration of the spirit be rather glorious?—2 Cor. 3:6,8._
+
+The glory attending the Mosaic law covenant was a passing glory. But the new covenant has a better mediator, a better sacrifice, and a power for righteousness which is stronger than the Ten Commandments engraved in letters of stone. It has a glory that never fades. Its power for righteousness is God's spirit. That active force makes alive, whereas the handwriting of the old law covenant showed up the Israelites as covenant-breakers, sinners, and assigned them to death. The consecrated Christians who are under this new covenant are made its ministers or servants. They receive their qualifications for this service from Jehovah by Christ Jesus. The new covenant with its life-giving spirit replaces the old covenant. The spirit transforms them to a godly likeness. _W 11/1_
+
+# April 14
+
+_It is Jehovah's passover.—Ex. 12:11, A.S.V._
+
+The passover lamb typified Christ Jesus, whose blood washes away the sin of those who gain eternal life in God's new world of righteousness. Sprinkling the lamb's blood on the outside of the doors, while it pictured faith in Christ's blood by those taking refuge under it, did not mean deliverance and life to the unbelievers outside. Instead, it betokened God's vengeance and death upon the Egyptians and those like them today. The lamb's flesh was eaten by the household, who were all shod and equipped ready to get out of Egypt that night immediately after the supper. That pictured how those who acknowledge Jehovah as Theocratic Ruler and his King Christ Jesus as the vindicator of God's name and as the ransom price for God's worshipers are not of this world, this modern Egypt and its Pharaoh Satan. They are of God's new world and are shortly due to enter into it. _W 3/15_
+
+---
+
+<sup>**Page 286**</sup>
+
+[Open Page 286 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=286)
+
+# April 15
+
+_God showed him publicly dying as a sacrifice of reconciliation to be taken advantage of through faith. This was to vindicate his own justice.—Rom. 3:25, Goodsp._
+
+What Jesus redeemed by the sacrifice of his own perfect human life was not the sinner Adam, but the perfect human life which Adam had willfully forfeited by sin and which he had failed to pass on to his offspring. 'Life shall go for life.' (Deut. 19:21) So God, in accepting the perfect sacrifice of Christ Jesus, was showing forth his own righteousness. That is, by so doing, God was not setting aside his own sentence against Adam nor by-passing His own perfect, inviolable justice; but he was receiving the sacrifice of Jesus in order to provide a righteous basis for settling the claims of justice against the members of Adam's offspring and for justifying them. That was God's righteous way of providing righteousness for humankind. Jesus' sacrifice was one of justified humanity. _W 8/1_
+
+# April 16
+
+**Memorial Date**
+
+**After 6 p.m., Stan. Time**
+
+_Christ our Passover is sacrificed for us.—1 Cor. 5:7._
+
+When Jesus died as the antitypical passover Lamb, Jehovah his Father caused a new covenant to be established toward Jesus' disciples, just as the old law covenant with its sabbath feature was established over the blood of the typical passover lamb down in Egypt. Hence at the memorial supper Jesus said respecting the cup of wine: 'This cup is the new testament \[covenant] in my blood, which is shed for you.' (Luke 22:20) For such reason Paul, who was one of Jesus' foremost apostles, writes to his fellow Christians: 'Our sufficiency is from God; who also made us sufficient as ministers of a new covenant; not of the letter, but of the spirit: for the letter killeth, but the spirit giveth life. But if the ministration of death, written, and engraven on stones, came with glory, . . . how shall not rather the ministration of the spirit be with glory?'—2 Cor. 3:5-8, _A.S.V. W 2/15_
+
+---
+
+<sup>**Page 287**</sup>
+
+[Open Page 287 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=287)
+
+# April 17
+
+_A living sacrifice, holy, acceptable unto God, which is your reasonable \[logikós] service.—Rom. 12:1._
+
+The presenting of the living sacrifice is the reasonable service, that is, the service of God; and the service of sacrifice must continue as long as those making the presentation are alive in the flesh. God's service rightfully would be reasonable, for God is reasonable; and his service is performed by intelligent, reasoning creatures. It is written: 'God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.' (2 Tim. 1:7) Such service must also be according to the Word of God; and God's Word is reasonable. It must include a serving or holding forth of God's Word of life to others. Hence it could not mean a trying to serve God according to religion; for religion is not according to his Word but it confuses and annuls his Word. Service according to his inspired Word is worship of God. _W 5/15_
+
+# April 18
+
+_I have given Egypt as thy ransom, Ethiopia and Seba in thy stead.—Isa. 43:3, A.S.V._
+
+There will be the final ransom toll to pay for further persecuting and pursuing Jehovah's people to drag them back into enforced service of this world. That final toll will be destruction at Armageddon. Whereas the world may despise and hate Jehovah's witnesses, yet Jehovah loves his persecuted people. He has honored them to make them the people for his name. Hence it is either the freedom of those whom God loves or the death of the men and peoples who fight against him and who try to debar his people from serving and worshiping him. Since such ones persist in their oppressions upon his people, they must die at Armageddon. They will not be let stand in the way of the establishment of Jehovah's new world. Let such ones be warned. Jehovah has not spoken in vain to his own new creation, saying: 'Therefore will I give men for thee, and people for thy life.' _W 6/1_
+
+---
+
+<sup>**Page 288**</sup>
+
+[Open Page 288 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=288)
+
+# April 19
+
+_For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption. Thou wilt shew me the path of life.—Ps. 16:10, 11._
+
+Jesus knew that the triumph of the enemy over him by killing him would be only seeming; because on the third day God would bring him forth from the death condition (Sheol, hell, or the grave) by re-creating him, not as a man, but as he was before coming to the earth, namely, a spirit person, only now clothed upon with immortality, incorruptibleness, the express image of his Father's person. (1 Pet. 3:18) By the resurrection Jehovah God showed his faithful worshiper, Christ Jesus, the path of life immortal in the heavens; and Christ Jesus ascended to heaven, where flesh and blood cannot come. He entered into the literal presence of God, upon whose face no man of flesh can look and live, and sat down on the right hand of God, there to enjoy delightful pleasures forevermore. W 7/1
+
+# April 20
+
+_Jehovah hath opened mine ear, and I was not rebellious, neither turned away backward.—Isa. 50:5, A.S.V._
+
+The 'faithful and wise servant' class today know that to be obedient doers of God's Word means for them to suffer treatment like Christ's at the hands of this world and its religionists. They are no more immune or exempt from such mistreatment than was he. They too, like him, must preserve their integrity to God under keen trials and provings in order to share with Christ in vindicating Jehovah as Universal Sovereign, the One whose will it is always proper to obey, even at cost of great suffering and reproach. Hence, although knowing that to undertake to be obedient proclaimers of his Word means shame, antagonism, violent treatment, and misrepresentation by all the religious sects and cults, Jehovah's witnesses have not rebelled against discharging their duties and responsibilities. Forward they march, proclaiming his Word 'publicly, and from house to house'. W 9/1
+
+---
+
+<sup>**Page 289**</sup>
+
+[Open Page 289 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=289)
+
+# April 21
+
+_David also describeth the blessedness of the man, unto whom God imputeth righteousness without works, saying, Blessed are they whose iniquities are forgiven, and whose sins are covered.—Rom. 4:6,7._
+
+Such blessedness did not come upon David, and does not come upon men whom David here describes, without confessing such iniquities and sins to God and applying to him for his means of forgiving and covering such. David's statement, which Paul quotes only partially, proves this, when David says: 'I acknowledged my sin unto thee, and mine iniquity have I not hid. I said, I will confess my transgressions unto the LORD; and \[then first] thou forgavest the iniquity of my sin.' Here again the willing action on the part of the sinner while God may be found is emphasized before any justification can result to him from God by cleansing away his sins. Justification of life is not automatically bestowed; it comes by faith. _W 8/15_
+
+# April 22
+
+_Put to shame are all they who were serving an image, who were boasting themselves in nothings: all messengers divine, bow ye down to him.—Ps. 97:7, Roth. Pss._
+
+This command to worship applies to the time when Jehovah brings his only begotten Son Christ Jesus to the throne in 1914, preparatory to the beginning of the New World of righteousness. (Heb. 1:6, _A.S.V._) As Jehovah now reigns as King by means of his capital organization Zion, then whosoever would worship Him must also worship and bow down to his Chief One in that capital organization, namely, Christ Jesus, his Coregent on the throne of The Theocracy. The holy angels gladly obeyed the divine command and proved their worship of Jehovah's new King and their subjection to him by joining in his 'war in heaven' against Satan. Thereafter, when he came to the temple in 1918, many of such angels came along as servants. At Armageddon they will fight under him to the utter destruction of Satan's entire organization. _W 10/15_
+
+---
+
+<sup>**Page 290**</sup>
+
+[Open Page 290 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=290)
+
+# April 23
+
+_The Lord sent an angel, which cut off all the mighty men of valour, and the leaders and captains in the camp of the king of Assyria.—2 Chron. 32:21._
+
+Night fell, with Sennacherib chagrined at the joint answer from King Hezekiah and the prophet Isaiah. His boastfully inscribed monuments do not tell what then took place, but 2 Kings 19:35 (_Amer. Trans._) says: 'Now that night the angel of the LORD went forth and slew in the camp of the Assyrians one hundred and eighty-five thousand; and when men rose early next morning, they were all dead bodies.' What a strange act! It was Jehovah's act decisively answering Satan on the issue of universal domination. Thus it was that, when Sennacherib rose or was awakened early from his sleep at Libnah, he beheld the desolation that God had wrought upon Satan's hosts. Admitting defeat, Sennacherib drew his crippled army out of Judah without coming near to Jerusalem. _W 4/1_
+
+# April 24
+
+_How then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard?—Rom. 10:14._
+
+Jehovah was perfectly aware that to call on his name in open confession, whosoever wills must believe upon him; and that, to believe on him, whosoever wills must hear about him and his name. Belief or faith is founded upon truthful information and knowledge, and, to believe, whosoever wills must have information given to him and must heed it or hear it. Since it was not Jehovah's will or purpose to send direct revelations to whosoever wanted the information, then it was necessary for him to send forth those to bear the information and to proclaim it. What then? This, namely: it rested with God to do the sending of preachers or proclaimers. Therefore his prophecy that 'whosoever shall call on the name of Jehovah' foretold or presupposed and implied a great publicity campaign world-wide. _W 6/15_
+
+---
+
+<sup>**Page 291**</sup>
+
+[Open Page 291 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=291)
+
+# April 25
+
+_God proves his love for us by the fact that Christ died for us when we were still sinners.—Rom. 5:8, Am. Tr._
+
+God's love is not toward those who hopelessly drown themselves in sin and harden themselves in it and who abide under his condemnation and wrath. (John 3:18, 36) Those who will take advantage of his loving provision that God makes for their redemption are the ones toward whom his love turns. The apostle Paul, who once practiced the Jews' religion and persecuted the church of God, was one of such sinners and ungodly men for whom Christ Jesus died in proof of his Father's love. Christ's death was _for_ Paul or with effect toward Paul because Paul accepted the ransom sacrifice of Christ when his eyes of understanding were opened to it. (1 Tim. 1:13-16) In harmony with the facts he could well say to men who had taken advantage of Christ's death that God commends his love in that, while yet sinners, Christ 'died for us'. _W 8/15_
+
+# April 26
+
+_Your generosity, of which I am the agent, will make men give thanks to God; for the service rendered by this fund does more than supply the wants of the saints, it overflows with many a cry of thanks to God._
+
+_—2 Cor. 9:11, 12, Moffatt._
+
+No greater pleasure could be ours than to see those who benefit by our gifts to God's cause recognize Him as the Promoter of such true charity and then give him thanks and praise, especially by making a consecration to him and going forth in his service to sing his praise. Hence our gift does not stop with just relieving the needy person. It goes beyond this unto causing God to be thanked and served by others. God will lovingly take care of the cheerful givers. (2 Cor. 9:9-11) What, then, is the purpose of the generous giver? It is this, namely, not to attract the thanks to himself, but to cause them to be expressed to the Original Giver, Jehovah God, for whom the generous person is just the agent. _W 12/1_
+
+---
+
+<sup>**Page 292**</sup>
+
+[Open Page 292 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=292)
+
+# April 27
+
+_Welcome one another, then, as Christ has welcomed yourselves, for the glory of God.—Rom. 15:7, Moffatt._
+
+What a welcome Christ Jesus gives to everyone who has learned of God by being taught through His Word and who then comes to him as Jehovah's anointed King! As he said: 'Him that cometh to me I will in no wise cast out. It is written in the prophets, _And they shall be all taught of God_. Every man therefore that hath heard, and hath learned of the Father, cometh unto me.' (John 6:37, 45) However, Jesus recognized God's time order. He abode by God's time to receive or welcome the Gentiles. After he was baptized there was an interval of seven years before he began welcoming Gentile believers and treating them as brothers in 'his body'. Thus he proved himself to be not just a gospel minister to circumcised Israelites, but also God's servant in making salvation open to the Gentiles, 'that the Gentiles might glorify God for his mercy.'—Rom. 15:9. W 12/15
+
+# April 28
+
+_Present all your faculties to Him as a living and holy sacrifice acceptable to Him.—Rom. 12:1, Weymouth._
+
+This means that one's body must be considered as alive to God. The body has certain members, such as hands, feet, ears, eyes, lips and tongue; and all these should be put to use in God's active work. The body is also possessed of certain faculties, such as the _mind_ for gathering information; and _reason_ for studying over the information thus gathered from the Word of God and coming to right conclusions as to it and its meaning; and _memory_, to remember God's Word and all his dealings and acts in fulfillment of his Word; and a _heart_, to appreciate God and all that he is and does and to be moved thereby to worship, obey and serve him; and _strength_ or _power_, with which to do God's will joyfully and heartily. A dead sacrifice would be incapable of using such faculties and powers and members of the body to the praise of God. W 5/15
+
+---
+
+<sup>**Page 293**</sup>
+
+[Open Page 293 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=293)
+
+# April 29
+
+_Proclaim liberty to the captives.—Isa. 61:1._
+
+Through the illuminated Word of God Christ Jesus proclaimed liberty, freedom, to all the children of Zion, yes, the opening of the enemy prison which held them captive and which bound them till now away from the worship and service of Jehovah and his kingdom. He broke the enemy's power to hold them captive and in a prisonlike state of restraint, and did so by the liberating power of the truth. He made plain to them that fear of man had led them into a snare, but that God by Christ Jesus had called them into freedom to serve him, and they must fear and obey Him rather than men, even men in official worldly positions. He conferred freedom upon them to push ahead with their brethren in the witness work, completely cleared of all the false charges by which the religionists had brought about their penal servitude. Remarkable reconstruction work was due to follow. History since 1919 shows that it has done so. _W 1/15_
+
+# April 30
+
+_Because the Preacher was wise, he still taught the people knowledge; . . . The Preacher sought to find out acceptable words, and that which was written uprightly, even words of truth.—Eccl. 12:9, 10, A.S.V._
+
+The great Preacher left us the example to follow. His wisdom was displayed in teaching the meek people the knowledge of Jehovah. To do so, he pondered over the resemblance of many earthly things to spiritual matters; and so he composed, and sought out and arranged many proverbs or parables, to convey knowledge to the honest seekers after God and to hide it from men who did not remember Jehovah God the Creator. The words that the Preacher sought out as being words of acceptableness and pleasantness, written uprightly and correctly, and being hence the words of truth, were the Holy Scriptures. He also sought to preach this Word of God in the best of speech and presentation. 'Never man spake like this man.' _W 11/15_
+
+---
+
+<sup>**Page 294**</sup>
+
+[Open Page 294 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=294)
+
+# May 1
+
+_Bring . . . every one that is called by my name: for I have created him for my glory, I have formed him; yea, I have made him.—Isa. 43:6,7._
+
+That they are the people created for the issue in Jehovah's favor is certified. His declaration is that all those called by his name as his spiritual Israel he has created for His glory. Since not one jot or tittle of God's written Word shall fail till all be fulfilled, nothing else could be expected at this crisis in world history than that Jehovah would assemble the remnant of his name-people. Thereafter he would form them into a Theocratic body under his King Christ Jesus, who came into his kingdom in 1914. The assembling of these into an organized unity of action and service has been done under the direction of the holy angels who accompany Christ the King. None of the demons under Satan has been able to interfere successfully with this assembling. _W 6/1_
+
+# May 2
+
+_And Jesus, when he was baptized, went up straightway out of the water.—Matt. 3:16._
+
+By his full consecration to Jehovah God Jesus was dead and buried to his own will. Nevertheless thereafter he would live. By God's spirit he would be raised as a new creature to life, even though yet in the flesh, living to God's will as God would reveal it to him. And that was the significance of Jesus' baptism, his being submerged beneath the waters as in burial and his being raised up again therefrom by John's strong arms. That water baptism symbolized that the Son of God had died, in figure, and was buried to his own personal will, even though his was the righteous will of a perfect, sinless Son of God. Thereafter, in harmony with God's law, he was called of God to something special as foreshadowed in the sacrificial and ceremonial shadows of the law covenant, to live the rest of his days on earth in exact accord with the manifested will of God. _W 2/1_
+
+---
+
+<sup>**Page 295**</sup>
+
+[Open Page 295 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=295)
+
+### May 3
+
+_They received the word with all readiness of mind, and searched the scriptures daily, whether those things were so.—Acts 17:11._
+
+They did not let the table of religion become a snare to them to catch them into disbelief and opposition toward the Son of God and his message. They saw that religion was not to their welfare. They did not rest in it and do works according to its standards. The rest of the natural Israelites had their vision darkened against the rays of the light of truth. They continued to bend over their backs to their heavy religious burdens, in subjection to the “god of this world”, who blinds the mind of them that believe not. These things were written for our cautioning and learning today. For those who go in the way of religion God’s Word predicts only a snare and trap, and a deserved recompense at the hand of the God who shows mercy and grace toward the faithful remnant. W 4/15
+
+### May 4
+
+_But we look for new heavens and a new earth according to his promises, in which justice dwelleth._
+
+—2 Pet. 3:13, Douay.
+
+The heavens are higher than the earth; and the “new heavens” will rule the righteous new world. Their Creator has seen to it that those ruling powers shall be just and righteous. This is the first requirement in order for perfect justice and righteousness to prevail all over this earth. None will gain life eternal on the earth who will not measure up to God’s perfect standard of righteousness. By Jehovah’s righteous new heavens it will be possible to lift humankind up to such a high standard. God’s way of building up the new heavens and filling this earth with just inhabitants, all engaged in doing righteousness in its perfection, includes His gracious action known as “justification”. Men of good-will now may take courage and may fix their hopes upon the promised “new heavens”, the kingdom of God by his King Christ Jesus. W 8/15
+
+---
+
+<sup>**Page 296**</sup>
+
+[Open Page 296 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=296)
+
+# May 5
+
+_Hezekiah . . . in the first year of his reign, in the first month, opened the doors of the house of the Lord, and repaired them.—2 Chron. 29:1, 3._
+
+Hezekiah's God brought Christ Jesus to the throne of The Theocracy, the kingdom of God, in 1914. Hezekiah, shortly after beginning to reign, went to the desecrated temple at Jerusalem, flung wide its doors, regathered the consecrated Levite servants, cleansed the temple of the trash and defilement of religion, and reinstated the free worship of Jehovah. Likewise did the King Christ Jesus, but on a larger scale. In 1918, after settling the 'war in heaven' victoriously by casting Satan and his demon hosts down from heaven to this earth, Christ Jesus came to the temple, 'suddenly,' as King Hezekiah did. He began the cleansing of the temple class on earth, his remnant of true followers, and re-established the free and fearless worship of Jehovah.—Mal. 3:1. W 3/15
+
+# May 6
+
+_And it shall come to pass in the last days, saith God, I will pour out of my spirit upon all flesh._
+
+_—Acts 2:17; Joel 2:28._
+
+With all fitness the consecrated, spirit-begotten sons of God may take up today the words of Isaiah 61:1, namely, 'The spirit of the Lord God is upon me; because the LORD hath anointed me to preach good tidings unto the meek.' Openly they may declare everywhere their anointing to preach as being from Jehovah God, the Most High, The Theocrat. The final coming true of Joel's prophecy above began in a marked way in the year 1919 upon the remnant of Jehovah's witnesses, and became especially marked in 1922. Hence in a realistic way this remnant of justified, spirit-begotten ones, including the new ones that have been added to the remnant since the above dates, can take up and voice Isaiah's prophecy concerning the anointing from Jehovah. Indeed, they do so as a unit, as the 'faithful and wise servant' under Christ. W 1/1
+
+---
+
+<sup>**Page 297**</sup>
+
+[Open Page 297 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=297)
+
+# May 7
+
+_It was imputed to him for righteousness. Now it was not written for his sake alone, that it was imputed to him; but for us also, to whom it shall be imputed, if we believe on him that raised up Jesus.—Rom. 4:22-24._
+
+What was possible for God to do toward Abraham was also possible for him to do toward others. What? Justify them by faith; reckon, impute, account or credit righteousness to them on the basis of their faith. Away back there Abraham could not attain “justification of life”, because the necessary conditions had not been provided. Hence, the likeness between God’s treatment of Abraham and his treatment of Christians is not as to the degree of justification, but is as to the imputation of righteousness. The likeness is as to the use of imputation. The justification which the church of God enjoys, however, ushers them into privileges of greater degree than those enjoyed by Abraham, who was justified to friendship with God. _W 8/1_
+
+# May 8
+
+_Therefore, as by the offence of one, unto all men to condemnation; so also by the justice of one, unto all men to justification of life.—Rom. 5:18, Douay._
+
+The apostle himself places a limitation upon the scope of his expression “upon all men unto justification of life”. All along his argument has been that men, not Jews merely, but Gentiles also, and hence _all_, may avail themselves of justification by faith in God and his Christ. There is no partiality on God’s part, but persons of all races, kindreds, peoples and tongues may take advantage of justification through the one individual, Christ Jesus. In this sense note Jesus’ use of the expression “all men”, at John 12:31-33: “Now is the judgment of this world: now shall the prince of this world be cast out. And I, if I be lifted up from the earth, will draw ALL MEN unto me. This he said, signifying what death he should die.” The facts are against arguing that “all men” means every human will at last be drawn to Christ. _W 8/15_
+
+---
+
+<sup>**Page 298**</sup>
+
+[Open Page 298 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=298)
+
+# May 9
+
+_Declare his glory among the nations, his marvellous works among all the peoples.—Ps. 96:3, A.S.V._
+
+In the face of this royal command by the Greater David, Christ Jesus, the proclamation of the good news of Jehovah's glory and wondrous works is not to be confined to inside the visible organization of His people on earth. It must be told among all the nations and peoples, that these may choose whether to glorify and worship Jehovah or the popular heroes of the day. Obedience to this command is proper. Why? 'For great is Jehovah, and to be highly praised, fear-inspiring is he above all messengers divine; for all the gods of the peoples are nothings, but Jehovah made the heavens.' (Ps. 96:4, 5, _Roth. Pss._) How, then, can anyone who claims to be a Christian either seek to draw praise of men to himself or indulge in praising other men for their worldly achievements? Jehovah is the One to be highly praised above all creatures. _W 10/1_
+
+# May 10
+
+_I have set my face like a flint.—Isa. 50:7, Am. Tr._
+
+Jehovah's witnesses do not rebel against the addition of further service that is laid upon them, to succor and sustain the weary people of good-will with the life-giving Word in the oncoming postwar years. They do not draw backward from the enlargement of their service. They look on it as an increased privilege, even with the self-expenditure, the hardship and the persecutions that such means. They set their faces hard like flint, to cut through the hostility of the opposers and to forge ahead with the witness work. They know the outcome will be glorious, and not one of shame and confused embarrassment. Not concerned at the glowering faces of the foes, they make bold to deliver God's Word without dismay or compromise. They do not quail before the multitude and pomposity of their enemies. If they did, then Jehovah would confound them before such enemies, because fear of men entangles a person in a snare.—Jer. 1:8, 17. _W 9/1_
+
+---
+
+<sup>**Page 299**</sup>
+
+[Open Page 299 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=299)
+
+# May 11
+
+_The heavens declare his righteousness, and all the people see his glory.—Ps. 97:6._
+
+The peoples wear down their strength to back up the nations in their vain effort to run the earth satisfactorily. They back them up in their dispute against the righteousness of Jehovah in claiming the right to govern the earth as His own creation. The very heavens proclaim the rightness of his claim and title to sovereignty over the universe, including our earth. Also Christ Jesus, Jehovah's King in the 'new heavens', declares the justness of Jehovah's domination. The faithful followers of Christ who are called to be with him in the 'new heavens' are serving as Jehovah's witnesses and thus declaring to all nations the righteousness of Jehovah as 'the Lord of the whole earth'. Whereas the peoples on earth refuse the testimony of the 'heavens', Armageddon's stern realities will make them see Jehovah's glory. _W 10/15_
+
+# May 12
+
+_Men shall call you the Ministers of our God: ye shall eat the riches of the Gentiles, and in their glory shall ye boast yourselves.—Isa. 61:6._
+
+Their riches of devotion, praise and service the Gentiles of good-will render to God in united support of His anointed remnant. These ministers rejoice in such glorifying of God by these 'other sheep', since these 'sheep' are as a letter of recommendation in flesh and blood proving the remnant are ministers of Jehovah God and that he recognizes their work and gives fruitage to it. The remnant do not boast in themselves, but in what God has wrought through them as regards his 'other sheep'. They delight to see these 'sheep' giving the glory and honor to Jehovah and his King Christ Jesus. Such 'other sheep' do not try to take the places of the anointed remnant within the Theocratic organization, but are glad to serve God together with them, passing the spiritual food on to others or helping produce it. _W 1/15_
+
+---
+
+<sup>**Page 300**</sup>
+
+[Open Page 300 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=300)
+
+### May 13
+
+_Said David to the Philistine, . . . I come to thee in the name of the Lord of hosts, the God of the armies of Israel, whom thou hast defied.—1 Sam. 17:45._
+
+Jehovah God meets the enemy's challenge with a counter-challenge. This he does by putting in the field willing servants of His whom he arms with his divine Word. These then call the bluffing enemy and they dispute the enemy's claims and expose the falsity of such. During the time that God has permitted the enemy the chance to produce arguments and proof in support, he has raised up such challengers of Satan the Devil and that one's wicked host. When the time runs out, Jehovah will vindicate his courageous defiers of the enemy by settling the grand dispute in his own favor and thus vindicating his own name as Almighty God and Universal Sovereign. How God will do this in sight of the coming postwar world, he gave examples from time to time in days of old. _W 4/1_
+
+### May 14
+
+_Transform yourselves by the renovation of your mind._
+—_Rom. 12:2, The Emphatic Diaglott._
+
+We must gain knowledge, truthful testimony from God's Word, in order to have mental affection for God, his King and the Kingdom. By increasing our knowledge and understanding concerning God and his Theocratic Government, our love and affection for such increase. This transforms our ambitions, our aims and purposes and our disposition. We become more God-like and are conformed to the Son of God. It is with the mind that we must serve God and his law, regardless of how imperfect be our flesh. (Rom. 7:25) To win, we must have the "mind of Christ". We must be fully persuaded in our own mind concerning what God's will is, and then follow out our disposition to do it. (1 Cor. 2:16; Rom. 14:5) Continual and prayerful study of the Holy Scriptures is necessary, using all the helps God provides through his organization to aid us to understand and apply them. _W 5/15_
+
+---
+
+<sup>**Page 301**</sup>
+
+[Open Page 301 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=301)
+
+# May 15
+
+_God at the first did visit the Gentiles, to take out of them a people for his name. . . . that the residue of men might seek after the Lord, and all the Gentiles, upon whom my name is called.—Acts 15:14-17._
+
+Through the preaching of the gospel only a _residue_, or small remnant, had been selected out from the Jews to bear the name of Jehovah because of their new relationship to Him through Christ Jesus. Such being the case, the Lord God then visited or began showing favor to the Gentiles, to take out from among them also a people to bear the responsibilities and privileges connected with Jehovah's name. This did not mean that henceforth he had two peoples on earth, but that the remnant out from the Jews and all those thereafter taken out from the Gentiles would be combined to make up one people for the name of Jehovah. Thus Jehovah was the Creator of a new people for his name, that is to say, spiritual Israel. _W 6/1_
+
+# May 16
+
+_The Jew and the Greek: for the same Lord over all is rich unto all that call upon him.—Rom. 10:12._
+
+Those who will make up the 'great multitude' are Christ's 'other sheep'. Therefore, as distinct from the 144,000 spiritual Israelites, they are 'Gentiles', as it were. They are the 'stranger' class who are found within the 'gates' of spiritual Israel. They may not be of the same 'fold' as the spiritual Israelites, yet the Good Shepherd, Christ Jesus, now brings them together in touch with the remnant of Kingdom sheep or spiritual Israelites, and thus they 'become one flock, one shepherd'. (John 10:16, _A.S.V._) They acknowledge Jehovah as Universal Sovereign or as Lord over all his universal organization. His Good Shepherd leads them in the way that leads to life in the endless New World. Thus the Lord Jehovah God is Lord over the 'other sheep' as well as the spiritual Israelites and is rich in goodness and mercy toward all that call upon Him in public confession. _W 6/15_
+
+---
+
+<sup>**Page 302**</sup>
+
+[Open Page 302 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=302)
+
+# May 17
+
+_For God so loved the world, that he gave his only begotten Son.—John 3:16._
+
+Far more was concerned in the matter than just the ransoming of obedient and faithful men. A world of righteousness was the thing that was at stake, and that world had to be a part of Jehovah's universal organization and had to be immovably subject to His universal domination or sovereignty. So, instead of its being the ransoming of humankind, the foremost issue facing Jehovah God was the justifying or vindication of His universal sovereignty. The settling of this righteous issue was what was demanded by absolute justice, whereas the ransoming of men was not, but was born solely from God's mercy. The vindication of God must come by the new righteous world that he made it his purpose to create. Therefore Jehovah God loved that world of righteousness, and to such a degree that he gave his only begotten Son. _W 12/1_
+
+# May 18
+
+_He taught the people.—Luke 20:1._
+
+Jesus, just past his twenties when he began preaching and teaching the people knowledge, sets the example of wisdom for the youthful persons consecrated to Jehovah God in these days. His wisdom lay not only in searching out true and right knowledge, but also in teaching it, when acquired, to others. By gaining the knowledge of God, the youthful ones have something by which to remember their Creator. But the best way to remember and not be forgetful hearers is to put the knowledge to work by teaching others. This causes the youths to stir up their minds continually and to revive the knowledge they have gained and to frame it in their own words in expressing it to others. This not only makes _them_ always mindful of the Creator but also causes the attentive hearers to remember Him also. Let Christian parents assist their youthful sons and daughters to remember their Creator in the days of their youth, right in the home. _W 11/15_
+
+---
+
+<sup>**Page 303**</sup>
+
+[Open Page 303 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=303)
+
+# May 19
+
+_Seek righteousness, seek meekness.—Zeph. 2:3._
+
+The Lord's 'other sheep' are not called to the sacrifice of the human nature in order to inherit the kingdom of God. (1 Cor. 15:50) Hence no present need exists for God to impute or credit righteousness to them through Christ Jesus. Their hope is to become perfect human sons and daughters of God in the flesh on earth, and to live everlastingly here on earth under the 'new heavens'. So the justification by the reckoning of righteousness such as the remnant of the church today have does not apply to the 'other sheep'. The justification which they seek is absolute justification in the flesh, which comes by attaining human perfection through Christ's reign for a thousand years. They must, of course, exercise faith in his sacrifice in order to attain that. In other words, they must gratefully accept from God the benefits of the sacrifice of his Son, and then they must obey the King on their way to absolute justification. _W 8/15_
+
+# May 20
+
+_I lay in Zion a stone, a well-tested stone, a precious stone, as the cornerstone of a sure foundation—He who believes shall not be worried.—Isa. 28:16, Am. Tr._
+
+God exalted the rejected Foundation Stone in Zion and has made all his enemies to be his footstool. Hence Christ Jesus remains the actively reigning Lord whom the believer must now confess, and he will not be ashamed to do so. Since 1918 God has poured out his spirit upon his faithful remnant, in final fulfillment of the prophecy of Joel 2:28, 29. The remnant go forward therefore without shame and with the courage and boldness of Elisha and preach the glad tidings to all nations of the earth for a witness. By this the opportunity is opened up for the Lord's 'other sheep' to believe on and accept Jehovah's Foundation Stone in Zion and then to confess him with their mouth by taking part in proclaiming the gospel that God's kingdom is now established and in operation. _W 6/15_
+
+---
+
+<sup>**Page 304**</sup>
+
+[Open Page 304 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=304)
+
+# May 21
+
+_Every prudent man worketh with knowledge; but a fool flaunteth his folly.—Prov. 13:16, A.S.V._
+
+Knowing the Holy Scriptures is the foundation for wisdom which leads to salvation, because the Scriptures teach the fear of Jehovah. (2 Tim. 3:15-17) Wisdom is in using the knowledge we have according to God's Word. Our having knowledge of God through his inspired Book is indispensable for salvation. 'This is life eternal, that they might know thee the only true God, and Jesus Christ whom thou hast sent.' (John 17:3) Eternal life is a gift of God through Christ Jesus. To be able to accept that gift we must become acquainted with God and be able to acknowledge him and to know what favors he extends to us. Christ Jesus is God's channel or agent by which He offers everlasting life to fallen humankind. He is thus used because he is Jehovah's righteous Chief Servant. The necessity of knowing Christ Jesus is therefore inseparable from that of knowing Jehovah. _W 9/15_
+
+# May 22
+
+_And again, Praise the Lord, all ye Gentiles; and laud him, all ye people.—Rom. 15:11._
+
+'Oh praise Jehovah, all ye nations; laud him, all ye peoples. For his lovingkindness is great toward us; and the truth of Jehovah endureth for ever.' (Ps. 117:1,2, A.S.V.) Till now these nations and peoples have been kept ignorant of Jehovah God, and the psalmist's exhortation to them to praise and laud Him presupposes that they must hear the actual facts as to Him. It would be idle words and a vain prophecy, to call nations and peoples to sing Jehovah's praise, unless He sent his witnesses to them to declare his ever-enduring truth to them. Hence Jehovah by this psalm foretold the witness to all nations that he would have delivered since A.D. 1918. His small band of witnesses are delivering it, and tens of thousands of the nations and peoples are now praising Jehovah God. The psalm-prophecy was not said in vain. _W 12/15_
+
+---
+
+<sup>**Page 305**</sup>
+
+[Open Page 305 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=305)
+
+# May 23
+
+_The spirit of the Lord is upon me, because he hath anointed me to preach the gospel._—Luke 4:18.
+
+These words, quoted by Jesus, plainly state that Jehovah God anointed and sent his Son Christ Jesus to preach, that is to say, to be a witness for Jehovah by making open proclamation of the good news. Jesus agreed that his was a preaching mission, when he said to those who wanted to tie him down as a preacher to one place: 'I must preach the kingdom of God to other cities also: for therefore am I sent.' (Luke 4:42, 43) The good news which he preached made him a witness of Jehovah, for the good news was of God's kingdom and hence pertained to the universal sovereignty of Jehovah God. Testimony to this effect, at Luke 8:1, reads: 'And it came to pass afterward, that he went throughout every city and village, preaching and shewing the glad tidings of the kingdom of God: and the twelve \[apostles] were with him.' W 1/1
+
+# May 24
+
+_For we who have believed do enter into that rest; even as he hath said, As I sware in my wrath, They shall not enter into my rest: although the works were finished from the foundation of the world._
+
+—Heb. 4:3, A.S.V.
+
+'There remaineth therefore a sabbath rest for the people of God. For he that is entered into his rest \[God's rest] hath himself also rested from his works, as God did from his. Let us therefore give diligence to enter into that rest, that no man fall after the same example \[given by unbelieving Jews] of disobedience.' (Heb. 4:9-11, A.S.V.) Christians, during all the days that they exercise faith and obedience through Christ, are keeping sabbath, God's sabbath or rest. They do not esteem one day above another. (Rom. 14:4-6) They must be diligent to hold their faith and keep faithful in God's active service as His witnesses, lest they fall away and fail to enjoy complete rest with God during his day, which is not yet over. W 2/15
+
+---
+
+<sup>**Page 306**</sup>
+
+[Open Page 306 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=306)
+
+## May 25
+
+_They sanctified the house of the Lord.—2 Chron. 29: 17._
+
+From 1919 onward the work has gone forward of purifying the temple worship of Jehovah's witnesses from all taints and besetting sins of religion. Only thus has the divine wrath been turned away from them. In the restoration and the burnishing up of the truth and in purifying the visible Theocratic organization from all the uncleanness of religion and its bondage Christ Jesus has led them. He once said: 'The truth shall make you free'; and he led his remnant onward into the fullness of the freedom wherewith Christ Jesus makes us free from religion and its captivity to Satan's organization. The combined forces of religion have fought the Bible educational work of Jehovah's witnesses. Religion's fight against them has been a fight against God and his King. It has been a losing fight. It always will be such. _W 3/1_
+
+## May 26
+
+_Nevertheless divers of Asher and Manasseh and of Zebulun humbled themselves, and came to Jerusalem._
+
+_Also in Judah the hand of God was._
+
+_—2 Chron. 30: 11, 12._
+
+In the issue that was then raised between religion and God's worship, and between obedience to man in the political state and obedience to the great Theocrat and his king, some persons took courage to decide for Jehovah and his king. They let no political considerations split them off from Jehovah's worship and from accepting his king's invitation. So now, too, due to the witness work of God's original remnant, many forsook religion and consecrated themselves wholly to Him and engaged in his worship and service. They all became one united band of Jehovah's witnesses, having one heart to keep his command through his King Christ Jesus. Hence the persecution by the religionists has failed to halt and defeat this 'strange work', and Jehovah has gathered his full quota of the anointed remnant. _W 3/15_
+
+---
+
+<sup>**Page 307**</sup>
+
+[Open Page 307 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=307)
+
+# May 27
+
+_And strangers shall stand and feed your flocks, and foreigners shall be your plowmen and your vinedressers.—Isa. 61:5, Am. Stan. Ver._
+
+The “strangers” of good-will see that Jehovah’s anointed remnant have the only true ordination from the Most High God and are in line for his “royal priesthood” in the heavens with Christ Jesus. They examine the Scriptures and note that the remnant are doing the foretold appointed work of God; and therefore they call the remnant the “ministers of our God” or the servants of Jehovah. (1 Pet. 2:9) In such appreciation of the actual facts those “strangers” align themselves with the remnant and join them in the true worship of Almighty God. They prove their worship of Jehovah God by active service of him. As foretold in Isaiah’s prophecy, they consecrate themselves to God by Christ and offer to assist the remnant in the reconstructive work of witnessing for the Kingdom. _W 1/15_
+
+# May 28
+
+_If some of the branches be broken off, . . . boast not against the branches. But if thou boast, thou bearest not the root, but the root thee.—Rom. 11:17, 18._
+
+This emphasizes the requirement of keeping faith and integrity toward Jehovah God. Gentiles who come into God’s favor have no cause for boasting against the rejected Jews. Gentiles must also first pass the test to which those Jews were subjected in order to abide in the symbolic “olive tree”, The Theocratic Organization. The purpose of the tree is to bring forth fruit holy to God and to his glory. The branches with a priority were broken off from the Theocratic organization because of not bringing forth fruits suitable for The Kingdom. This failure was because of their lack of faith in Jehovah God. They displayed this lack of faith by rejecting his Messiah, in whom the prophecies of God’s Word were fulfilled. That way, they could not draw any spiritual sustenance, the rich sap of the olive root, from Jehovah. _W 5/1_
+
+---
+
+<sup>**Page 308**</sup>
+
+[Open Page 308 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=308)
+
+# May 29
+
+_We went through fire and through water; but thou broughtest us out into a wealthy place.—Ps. 66:12._
+
+At Revelation 12:13-16 it was foretold how the 'dragon' organization would impound and organize within itself hosts of violent, Nazi-Fascist-religious elements. These it would release in great force against Jehovah's witnesses on earth who represent God's woman 'Zion', his organization. The remnant and their companions now see how the dragon organization did vomit out this great stream or river of violent hordes against them, especially from and after 1933, with the malicious intent of carrying them into destruction. The undiminished activity of the remnant and their companions to this day testifies that Jehovah has been with them as they forged ahead through the rivers. He has brought them through alive for his glorious service and purposes both today and henceforth. They march on to the New World. _W 6/1_
+
+# May 30
+
+_It is not in heaven, that thou shouldest say, Who shall go up for us to heaven, and bring it unto us, that we may hear it, and do it?—Deut. 30:12._
+
+According to the apostle Paul, Moses' words above are prophetic in meaning. His words show that one who is justified and who has the righteousness of faith does not ask doubtful questions. He does not ask questions showing doubt regarding the already accomplished acts of God. One with faith does not doubt for an instant that God has already sent down his beloved, only begotten Son from heaven to be made a man in order to vindicate Jehovah's name by his faithfulness on earth under test and also to provide the ransom sacrifice by his death on the tree. Hence the one who is righteous through faith does not look for anyone to ascend from earth to heaven in order to bring down Christ from above. He does not stumble over the fact that Jesus is the heavenly Son of God. Hence he does not look for men to fulfill the role of Christ. _W 6/15_
+
+---
+
+<sup>**Page 309**</sup>
+
+[Open Page 309 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=309)
+
+# May 31
+
+_By him all that believe are justified.—Acts 13:39._
+
+Behold the economical dealing of God in giving justification by faith to the church and doing so by the imputation of righteousness. Foreknowing that these Christians are to be sacrificed after making a consecration to Him, God does not give them actual perfection in the flesh. He imputes or credits it to them because of their faith and obedience and by virtue of the value of Jesus' perfect sacrifice. Thus these can be sacrificed as human sons, foregoing for ever their right to everlasting perfect human life on earth. Now God can beget them by his spirit of life and set before them the hope of life immortal in the heavenly kingdom. He does not have to wait till the end of the 1000-year reign of Christ in order to have perfect human sons who would be in condition to go through this sacrificial process. The crediting of righteousness through faith in Christ provides for him the just way to accomplish all this now during the reign of sin and death of humankind. _W 8/1_
+
+# June 1
+
+_For wisdom is a defence, and money is a defence: but the excellency of knowledge is, that wisdom giveth life to them that have it.—Eccl. 7:12._
+
+How could we show respect for the right or cause of the poor except by giving them the knowledge of Jehovah and his kingdom? This is of greater value than money, and it is a greater defense. The worldly-wise are vainly heaping up treasures of wealth and selfish things for these 'last days'. At Armageddon they will throw their silver, gold and material wealth into the streets, but neither silver nor gold will be able to deliver them in the day of Jehovah's anger and to buy a way for their lives to be spared. (Ezek. 7:19) While money may be a temporary defense now, our knowing God and his purpose is a permanent defense against disaster at Armageddon. Thus it has the advantage of money and is more excellent than it. _W 9/15_
+
+---
+
+<sup>**Page 310**</sup>
+
+[Open Page 310 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=310)
+
+# June 2
+
+_Know ye not, that so many of us as were baptized into Jesus Christ were baptized into his death? Therefore we are buried with him by baptism.—Rom. 6:3, 4._
+
+Such ones God first justified graciously through faith in Christ's shed blood and accepted them to be sacrificed with his Son in vindication of Jehovah's name. Hence he begot them of his spirit or life force to become his spirit sons, 'heirs of God, and joint-heirs with Christ.' As such spiritual sons he anointed them with his spirit to be his witnesses and servants in Christ, and thus they were baptized by his spirit into the body of Christ. That is, God's spirit to do his work is on the entire body of Christ and immerses it in its entirety, and all the members of the body are anointed through their Head Christ. (1 John 2:20, 27) Such body members must, if faithful continually to the end, be united with their Head in heavenly glory, beyond the life in the flesh. _W 2/1_
+
+# June 3
+
+_It is the blood that maketh an atonement for the soul. Therefore I said unto the children of Israel, No soul of you shall eat blood.—Lev. 17:11, 12._
+
+In harmony with the divinely stated fact that 'the life of the flesh is in the blood', God reserved the blood of sacrifices to be used in making propitiation or atonement for sinner souls; that is, for those who were in need of everlasting life and seeking it. For like reason, those who consumed the blood of creatures were held accountable to the Life-giver Jehovah God for the life of such creatures and came under the penalties of the everlasting covenant made with Noah. So precious is the measure of life that is in the blood of even imperfect, sinner humankind, that should anyone in Israel accidentally cause the death of a man or woman, that unwitting manslayer was not held guiltless. 'The revenger of blood . . . when he meeteth him, he shall slay him.' (Num. 35:19) The avenger of blood acted as Jehovah's executioner. _W 7/1_
+
+---
+
+<sup>**Page 311**</sup>
+
+[Open Page 311 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=311)
+
+# June 4
+
+_Jehovah is good to all; and his tender mercies are over all his works.—Ps. 145:9, A.S.V._
+
+No creature should presume upon God's compassion and mercies. The psalmist shows the proper effect of such mercies to God's works when he adds: 'All thy works shall praise thee, O LORD; and thy saints \[thy men of loving-kindness] shall bless thee. They shall speak of the glory of thy kingdom, and talk of thy power.' (Ps. 145:10, 11) It is the faithful ones to whom God's mercies are continued, for the faithful are the ones that show appreciation of the divine mercies by living up to their privileges and striving to walk worthy of God's loving-kindness to them. Those who forget God's consideration for them over and above what his perfect justice requires, and who grow indifferent and careless and without any urge to serve and please him, will not be kept in his mercy. _W 5/15_
+
+# June 5
+
+_We are not ignorant of his devices.—2 Cor. 2:11._
+
+Failing to frighten King Hezekiah into surrender, 'Rabshakeh returned, and found the king of Assyria warring against Libnah: for he had heard that he was departed from Lachish.' That meant that Sennacherib had moved closer to Jerusalem, Libnah being nearer than Lachish. Jerusalem's peril had increased. But now 'the king of the south', as represented by Egypt's neighbor, Tirhakah king of Ethiopia, put in a threatening appearance. Just so, too, the democratic ruling powers rose in their might in global war and threatened the future of totalitarian rule in postwar times. In his efforts hitherto Satan the Devil has failed to shatter the integrity of Jehovah's witnesses and their organized unity in God's service. Henceforth he will play Sennacherib's game and will renew his efforts in postwar times until the final showdown. So let Jehovah's witnesses not be deceived by any seeming retirement of the enemy hosts for a while and a seeming stoppage of their aggressions. _W 4/1_
+
+---
+
+<sup>**Page 312**</sup>
+
+[Open Page 312 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=312)
+
+# June 6
+
+_Yea, let God be found true, but every man a liar; as it is written, That thou \[O God] mightest be justified in thy words, and mightest prevail when thou comest into judgment.—Rom. 3:4, A.S.V._
+
+In the controversy between the Bible and the religions of men God's Word has always prevailed over religious doctrines. Jehovah God has always been vindicated. We should always give the truth to God's Word, and our purpose and effort should be to vindicate his name and Word. Christ Jesus told the religionists of his day: 'By thy words thou shalt be justified, and by thy words thou shalt be condemned.' In this day of judgment, when religionists are giving an account for their teachings, the religionists are condemned and God's Word of truth is justified. They are proved to be very unwise. God, whose wisdom is perfect, is justified in all his works, strange though his works may seem to religious unbelievers. _W 7/15_
+
+# June 7
+
+_Are ye so foolish? having begun in the spirit, are ye now perfected in the flesh?—Gal. 3:3, A.S.V._
+
+Those words were spoken to the church who now have 'justification of life' by faith. However, the 'other sheep' of today are now on the way to absolute justification, which comes at their attainment of human perfection in the new world. Suppose that, because of their faith and obedience now before Armageddon, they had justification by faith through the imputation of righteousness. Then that would mean they could not die before Armageddon, as some are now doing. Were it not for Christ's sacrifice, the way to absolute justification in the flesh would be for ever barred to the 'other sheep'. By their own works they could not rise to human perfection; but by the help of Christ's kingdom all the willing, obedient and faithful ones will be able to do so. That is what this earthly class of good-will persons want, and not a mere imputation of righteousness now by faith. _W 8/15_
+
+---
+
+<sup>**Page 313**</sup>
+
+[Open Page 313 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=313)
+
+# June 8
+
+_O ye that love Jehovah, hate evil: he preserveth the souls of his saints.—Ps. 97:10, A.S.V._
+
+Those who love Jehovah, who is God, cannot love what he hates. If they loved this world and the political, commercial, religious things in it, the love of Jehovah the Father could not be in them. (1 John 2:15, 16) No matter how righteous and religious the appearance that the worldly-wise postwar builders try to give to the world, it will not entice God's lovers to turn their affections away from him to it. Instead of being the political expression of God's will, they know that the postwar international organization which arrogates to itself the holy place of God's Theocracy over earth is an 'abomination of desolation'; and they cannot love the evil thing any more than God does. They call upon all persons of good-will to flee from it to Jehovah's kingdom. It would be very ungrateful if his consecrated people did not love him, seeing how he preserved their lives or souls till now and promises to do so all through Armageddon. _W 10/15_
+
+# June 9
+
+_The wicked shall be a ransom for the righteous, and the transgressor for the upright.—Prov. 21:18._
+
+Jehovah made Egypt pay for all her opposition to him. He held Egypt, her firstborn ones and her wealth as a ransom or security for as long as she held his chosen people in bondage. When Egypt refused to release them, Jehovah made her pay the expense of costly plagues, until finally the firstborn of man and animals were slain as the price demanded unless she let his people go. And when Egypt and her allies tried to drag the fugitive Israelites back to slavery, then Jehovah exacted a further national ransom of Egypt, Ethiopia and Seba, namely, the ignoble death of the flower of their armies, charioteers and horsemen in the depths of the Red sea. Those who plotted trouble, loss and destruction for God's chosen people got the like themselves, and that at God's hands. _W 6/1_
+
+---
+
+<sup>**Page 314**</sup>
+
+[Open Page 314 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=314)
+
+# June 10
+
+_He hath sent me . . . to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised.—Luke 4:18._
+
+Making some literally blind ones to see was only incidental to Jesus' giving spiritual sight to those blinded by religion's traditions and commandments of clergymen. Jesus set the bruised and downtrodden at liberty by fearlessly proclaiming the truth and exposing religion's falsehoods and practitioners. (John 8:31-36) Jesus also preached the 'acceptable year of the Lord', or 'year of Jehovah's favor'. Such year of acceptance and favor was not only due to preaching the message, 'The kingdom of heaven is at hand,' but also due to his confining his preaching activities to the typical organization of the Jews. This gave them the first opportunities respecting the Kingdom before such opportunities should be thrown open to the outside nations, the Gentiles.—Matt. 10:5. W 1/1
+
+# June 11
+
+_Israel hath not obtained that which he seeketh for; but the election hath obtained it.—Rom. 11:7._
+
+Why, then, did Israel after the flesh not get this sought-for thing? Why did those selected by God's grace get it? It was because the natural Israelites set up man's standard of works which would bring righteousness from man's viewpoint. Thus they set up a system of works of self-righteousness, and they proposed to make themselves deserving according to the flesh. On the other hand, those whom God actually selected, the small remnant, did not try to justify themselves before God. They trusted in His mercy, and were willing to humble themselves to accept everything as a matter of God's grace or undeserved kindness. Honest enough to admit that they could not measure up to the perfection of God's law, they willingly exercised faith in God's arrangement through the true Seed of Abraham. They accepted God's gift of righteousness through faith in his Seed. W 4/15
+
+---
+
+<sup>**Page 315**</sup>
+
+[Open Page 315 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=315)
+
+# June 12
+
+_Yet their voice goes forth through all the earth, and their words to the ends of the world.—Ps. 19:4, Am. Tr._
+
+This is the day for the gospel message of the Word of God and of Christ to be sounded to the limits of the habitable earth. God Almighty will not allow that, when Armageddon falls with destruction upon the world, it should be said that his Kingdom message of salvation was not proclaimed far enough nor given a sufficient hearing. Rather it will then be said, in the apostle Paul's language: 'But I say, Did they not hear? Yea, verily, their sound went out into all the earth, and their words unto the ends of the world \[the inhabited earth].' The sound of the gospel of the established kingdom is now going out with greater volume than ever before and will increase in the post-war period down to the end. That Kingdom constitutes the 'new heavens' that will rule the 'new earth' and the 'new world'.—Rom. 10:18, A.S.V., margin. W 6/15
+
+# June 13
+
+_Who is among you that feareth Jehovah, that obeyeth the voice of his servant? he that walketh in darkness, and hath no light, let him trust in the name of Jehovah, and rely upon his God.—Isa. 50:10, A.S.V._
+
+Obey the voice of Jehovah's Elect Servant, Christ Jesus, as he speaks now through his 'faithful and wise servant' class on earth. Have you walked in the darkness of the wickedness of this world and had no light from its religious systems and their allies? By now you must realize that the artificial fires built by worldly leaders who promise to build a finer world cannot remove the world darkness or keep it from thickening. Put, then, your trust in the name of Jehovah and rely on him as God Almighty. Do so now, in honor to His name. Then you will be blessed when the vindication of the name of your God and the vindication of His servants occur. Then you will walk in everlasting life in the light of His kingdom, the light of the New World of righteousness. W 9/1
+
+---
+
+<sup>**Page 316**</sup>
+
+[Open Page 316 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=316)
+
+# June 14
+
+_For all the gods of the peoples are idols; but Jehovah made the heavens.—Ps. 96:5, A.S.V._
+
+Jehovah is the Creator of things far higher than man. He has framed not only the heavenly bodies visible to our sight, but since 1914 he has framed “new heavens” by making Christ Jesus the reigning King of the New World of righteousness and by casting Satan down to the earth. Mankind must now be informed that God’s promise has begun fulfillment, namely: “We, according to his promise, look for new heavens and a new earth, wherein dwelleth righteousness.” (2 Pet. 3:13) The 144,000, including the faithful remnant of them yet on earth, are to be associated in with Christ Jesus in those “new heavens”. These “new heavens” show forth only Jehovah’s glory. The establishment of such new heavens of God’s creation is one of the wondrous works of God since 1914 which must be declared among all peoples and nations. _W 10/1_
+
+# June 15
+
+_Rejoice, O young man, in thy youth; and let thy heart cheer thee in the days of thy youth, and walk in the ways of thine heart, and in the sight of thine eyes: but know thou, that for all these things God will bring thee into judgment.—Eccl. 11:9._
+
+Whatever the course the young man takes from his youth onward to satisfy his mind, heart and eyes, it will affect the outcome of his judgment before God, the Supreme Judge. If the vigorous young man, glad to be alive, walks on in the way of a selfish heart and with his eyesight fixed on worldly goals, it is bound to bring a certain judgment upon him from God, an unfavorable judgment. On the other hand, if the young person, in gratitude for life, walks in the ways of an unselfish heart and fixes the eyes of faith upon the righteousness of the New World, it will bring a favorable judgment that will mean life without end in the righteous New World. He will not regret how he spent his youth and dawn of life. _W 11/15_
+
+---
+
+<sup>**Page 317**</sup>
+
+[Open Page 317 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=317)
+
+# June 16
+
+_Turn again unto the Lord God.—2 Chron. 30:6._
+
+King Hezekiah's desire was to recover God's professed people from the disastrous outcome of the practice of religion and turn them into the way of life by the worship of Jehovah God. The people ought to face the facts. They ought to see whither religion was leading them. Religion was no protection against the Devil's political powers. No; but it brought down God's righteous wrath upon them. The honor of Jehovah's name was at stake. The overthrow of His typical Theocracy would be to his reproach. Hence Hezekiah sent out enough couriers to bear the royal message of warning and of invitation to all the land and people. In calling for them to abandon religion and return to worshiping the true God, Hezekiah showed himself a faithful witness of Jehovah. The couriers he sent out also proved themselves Jehovah's witnesses, representing God's chief witness, His anointed King. _W 3/15_
+
+# June 17
+
+_And strangers shall stand and feed your flocks, and the sons of the alien shall be your plowmen and your vinedressers.—Isa. 61:5._
+
+The getting of these 'strangers' and 'sons of the alien' into such service is not by force or carnal weapons of warfare, but is due to their being convinced of the true worship of Jehovah God. Such ones picture the Lord's 'other sheep'. They are the men of good-will of today who devote themselves to Jehovah's worship and who thereafter follow after the Good Shepherd. They are the only ones among the nations who, on beholding the remnant's work, see and acknowledge that the remnant are practicing the worship of the only true and living God and that they are the genuine ambassadors on earth of his Theocratic Government. The remnant being few, this increasing multitude of consecrated persons of good-will, _strangers_, so to speak, volunteer to take positions of service under the Theocratic organization. _W 1/15_
+
+---
+
+<sup>**Page 318**</sup>
+
+[Open Page 318 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=318)
+
+# June 18
+
+_I beseech you therefore, brethren, through the compassions of God.—Rom. 12:1, Rotherham._
+
+If the unmerited goodness of God could not stir up a creature to due and fitting action in return, then such creature must be callous and hardened indeed. There is here no threatening, nor pressure of coercion or forcing, but only the power of drawing by means of the expressed compassions of God, compassion first to the Jews and compassion thereafter to the Gentiles. Unless these compassions enkindled love in the one toward whom expressed and he felt moved to show his appreciation to God, then he would not be a willing servant of God and be bound to him with unbreakable ties. He would be doing despite to the grace and mercy of God; and, as far as the creature is concerned, the divine mercy would have failed of its proper effect. It would be in vain, wasted. The appeal not to do this is contained in Paul's words above. _W 5/15_
+
+# June 19
+
+_Blindness in part is happened to Israel, until the fullness of the Gentiles be come in.—Rom. 11:25._
+
+Had not blindness affected a part of natural Israel, the opportunity for Gentiles to come in would not have been afforded. In that case the royal family of heaven would have been made up completely from among the natural Israelites. The dispelling of any ignorance on this point should keep Gentile believers from becoming presumptuous and conceited and looking upon things as running in an ordinary course. The matter is extraordinary. The full number of the Gentiles is grafted in upon the symbolic olive tree in order to occupy the places of all broken-off Jewish branches. At Romans 11:12 the apostle refers to the 'fullness' of the natural Israelites brought in; but their fullness is not great enough to make up the 144,000 associates of Christ Jesus. Hence the fullness of the Gentiles is needed to complete the membership of the 'body of Christ'. _W 5/1_
+
+---
+
+<sup>**Page 319**</sup>
+
+[Open Page 319 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=319)
+
+# June 20
+
+_But before faith came, we were kept under the law, shut up unto the faith which should afterwards be revealed.—Gal. 3:23._
+
+The things of faith in which the Christian must believe for “justification of life” are fuller and farther in advance of what Abraham believed. Abraham believed that there would be a Seed to bless all the nations of the earth. But he could not identify specifically who that Seed would be. Christians, on the contrary, have that Seed definitely identified for them to believe on: “And to thy seed, which is Christ.” (Gal. 3:8, 16) Furthermore, Abraham did not appreciate that such Seed would die in vindication of Jehovah’s name before the blessing to the nations would come. The Jewish descendants of Abraham who were kept under the law did not know or appreciate that fact either. (Matt. 16:21-23) But these vital facts are part of the faith or belief of the justified Christian. The faith that resulted in the “justification of life” came with Christ Jesus.—Gal. 3:24-26. W 8/1
+
+# June 21
+
+_For he must reign.—1 Cor. 15:25._
+
+The justification of the Lord’s “other sheep” must come after Armageddon, and it must be by the perfecting of them in the flesh to be children of Jehovah, the same as the perfect Adam in Eden. When Christ reigns over his obedient subjects on the earth, he will do so as a “priest upon his throne”, a “priest for ever after the order of Melchizedek”. (Ps. 110:4; Zech. 6:13) As the Greater Moses he now mediates the new covenant toward spiritual Israel, but he is not yet begetting earthly children. He is not yet giving the “other sheep” the standing of sons of “The Everlasting Father”. (Isa. 9:6) But these faithful ones will become such during his thousand-year reign after Armageddon. Now, by virtue of the prospect of becoming eventually Jehovah’s perfect sons, they address him prospectively as “Our Father”. W 8/15
+
+---
+
+<sup>**Page 320**</sup>
+
+[Open Page 320 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=320)
+
+# June 22
+
+_The fear of Jehovah is the beginning \[or, the chief part] of knowledge.—Prov. 1:7, A.S.V._
+
+_Knowledge_, as the word is used in Scripture, means information or testimony received from a truthful source. It means not merely the information itself, but also the knowing of it or having it as a part of our mental storehouse and equipment. Man cannot begin to get knowledge if he does not fear Jehovah, because Jehovah is that truthful source from which knowledge descends. Fear of man leads men into a snare, as captives of those who are against man's best interests. It causes men to become servants of such highly regarded ones of this world and to take part in carrying out all the selfish, unclean things which they think up. The fear of Jehovah safeguards us against such misguided, falsely informed world rulers. The knowledge that has the advantage over money as a protective power does not come from or through such unclean men; it comes from the Creator. _W 9/15_
+
+# June 23
+
+_Earth opened her mouth, and swallowed up the flood which the dragon cast out of his mouth.—Rev. 12:16._
+
+Like a dragon, Satan and his demon organization disgorged upon the earth a titanic flood of modern-Assyrian armies, all bent upon wrecking democratic institutions and denying their benefits to freedom-loving peoples and so making it easy for totalitarians to crush Jehovah's witnesses. By court actions, by fearlessly standing in defense of their Christian existence, and by steadfastly keeping on exercising the God-given rights and duties, it has been necessary for these announcers of Jehovah's kingdom to carry on a continual fight against aggressions by the antitypical Assyrian, Satan, and his flood of totalitarian religious-political hordes. Owing to the courage of Jehovah's witnesses, the democratic 'earth' has taken heart to likewise offer resistance and thus to swallow up and absorb the onrush of such 'flood'. _W 4/1_
+
+---
+
+<sup>**Page 321**</sup>
+
+[Open Page 321 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=321)
+
+# June 24
+
+_Thus saith Jehovah that made thee, and formed thee from the womb, who will help thee: Fear not, O Jacob my servant.—Isa. 44:2, A.S.V._
+
+This is the word of Almighty God, who created his people for a distinct purpose and whose creation the massed, all-out assault of the entire Devil's world can never destroy. Rather than destroy what God has created, the Devil's world will run into its own destruction. The new world, made up of new heavens and a new earth which Jehovah God creates, will tread under foot the ashes of the destroyed old world; for the mouth of the Lord God has spoken it. If he assures the remnant of Jacob or Israel that they have no need to fear, and therefore if they do not fear, then let the multitude of persons whose misgivings of mind have held them back thus far be sure that they have no reason to fear if they become publicly the associates of the fearless remnant. _W 6/1_
+
+# June 25
+
+_These things saith . . . he that hath the key of David, he that openeth, and no man shutteth; and shutteth, and no man openeth; I know thy works: behold, I have set before thee an open door, and no man can shut it._
+
+_—Rev. 3:7, 8._
+
+Christ Jesus the King has broken down the religious-totalitarian bars and thrown open the door of Jehovah's temple-service. He has gathered to himself at the temple a faithful remnant of consecrated ones on earth who are anointed with God's spirit as his commissioned and ordained witnesses. Before these he has set Jehovah's witness-work. Now the doors of temple worship are open to stay! By means of articles published in _The Watchtower_ attention was called to the fulfillment of divine prophecy. Thereby Christ Jesus the King called attention to the open door and bade his faithful remnant of true followers on earth to enter into Jehovah's service as his witnesses and publishers of his kingdom. They have done so. _W 3/1_
+
+---
+
+<sup>**Page 322**</sup>
+
+[Open Page 322 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=322)
+
+# June 26
+
+_If the Gentiles have shared their spiritual blessings, they owe them a debt of aid in material blessings._
+
+This is the viewpoint which the remnant of spiritual Israelites should have in their Christian activities today, regardless of the religious adversaries who call them 'book-sellers', 'peddlers engaged in a commercial racket,' 'doorbell-ringers,' etc. They are conveying priceless spiritual blessings to the people as God's agents. So if, besides doing this, Jehovah's witnesses accept small, minimum contributions of money for some books, booklets, and magazines they place, they are not carrying on a commercial transaction or racket, nor are they imposing upon the people. Since they are bringing such spiritual good things to the people who take literature, God's rule is that they have a right to accept material contributions in the interest of further carrying on His service. _W 12/1_
+
+# June 27
+
+_Yea, so have I strived to preach the gospel, not where Christ was named, lest I should build upon another man's foundation._—_Rom. 15:20._
+
+Jesus said: 'The field is the world.' This means much work. It means movement, action, to spread the Kingdom gospel. The apostle Paul counted it a great honor from God through Christ to be made 'apostle of the Gentiles'. With might and main he tried to make the most of his position of service. After twenty years of field service he wrote his letter to the Romans, and he was not then tired out and ready to quit and retire on a pension. Neither did he hunt the easy end of the service. He did not leave it to others to do the hard, dangerous, pioneer work of opening up virgin fields of operation and then himself come in afterwards to carry on the work on foundations laid by others. Instead, he laid his plans to be right out in the forefront of the work, serving as the entering wedge into virgin fields under God's spirit. _W 12/15_
+
+---
+
+<sup>**Page 323**</sup>
+
+[Open Page 323 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=323)
+
+# June 28
+
+_And after will I send for many hunters, and they shall hunt them from every mountain.—Jer. 16:16._
+
+Always, therefore, Jehovah's witnesses must be on the alert to preach, by every means of conveying information concerning the Kingdom, whether by word of mouth or by printed Bible explanations or by running off recorded Bible lectures. They are not limited to just one station to preach. If, like Jesus, any of them is assigned to a bounded territory, then anywhere within that assigned territory where he can reach others there a station or place is provided to preach, no matter what the size of the audience. Only thus can the 'lost sheep' be found; for just who such 'lost sheep' are and where their location is cannot be fixed by any directions given in advance. Jesus instructed his disciples to hunt for such, saying to them: 'Go rather to the lost sheep of the house of Israel.'—Matt. 10:6. W 1/1
+
+# June 29
+
+_And he said unto them, The sabbath was made for man, and not man for the sabbath: therefore the Son of man is Lord also of the sabbath.—Mark 2:27, 28._
+
+Christ Jesus was greater than the temple of Jerusalem, in which the Jewish priests under the old law covenant seemingly profaned the sabbath day by carrying on their sacrificial duties and yet were blameless. (Matt. 12:1-8) Christ Jesus is the Head of the spiritual temple of God made up of living stones, his disciples. Hence the Most High God has appointed Christ Jesus to be Lord of the antitypical sabbath day, the 1,000-year period of the Kingdom. That will be a glorious sabbath-day for humankind, both for 'men of good will' today living, whom God will favor with preservation through the battle of Armageddon, and also for the billions of dead ones in the graves who will hear the voice of the reigning Son of God and will come forth to a resurrection of judgment.—John 5:28, 29, A.S.V. W 2/15
+
+---
+
+<sup>**Page 324**</sup>
+
+[Open Page 324 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=324)
+
+# June 30
+
+_Thanks be unto God, who always leadeth us in triumph in Christ, and maketh manifest through us the savor of his knowledge in every place.—2 Cor. 2:14, A.S.V._
+
+Knowledge concerning the presence of Jehovah's King and the establishment of his kingdom of truth and life is likened to the fragrance of incense burned at a triumphal procession. How fragrant indeed is the knowledge of Jehovah and his Kingdom by Christ Jesus! How thankful we all should be to possess this knowledge that we might follow along after our triumphant Leader Christ Jesus in disseminating the knowledge of God to those who want life in harmony with him! Knowing that such knowledge is a defense against death by execution in the day of his wrath at Armageddon, let us cast up this defense more strongly. Let us do so in behalf of as many people as possible by repeatedly, persistently and intensively making known everywhere the knowledge of Him, at all costs. _W 9/5_
+
+# July 1
+
+_Cyrus, He is my shepherd, . . . even saying to Jerusalem, Thou shalt be built.—Isa. 44:28._
+
+The reconstruction of the organization of Jehovah's people and the revival of his worship in Judah in 537 B.C. were done back there by the faithful Jewish remnant by the decree of King Cyrus the Persian. Greater reconstruction work, on an earth-wide scale, from and after 1919, is done by the remnant of Jehovah's witnesses under a Greater than Cyrus, Christ Jesus, the Conqueror of Satan's organization Babylon. He smashed the power of the enemy's grip upon his remnant. By the truth which makes free, and by the moving power of the spirit from God, he announced good tidings to the remnant and bade them go free. And all the faithful remnant, in fulfillment of their anointing, passed the word along to one another. So, beginning in 1919, back they went to the 'land of Judah', their God-given position on this earth of fearlessly worshiping Jehovah as God. _W 1/15_
+
+---
+
+<sup>**Page 325**</sup>
+
+[Open Page 325 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=325)
+
+# July 2
+
+_Be ye transformed by the renewing of your mind._
+
+—_Rom. 12: 2._
+
+This is suitable organization-instruction for both the remnant and the “other sheep”. We cannot transform ourselves to become other creatures, but we can be transformed so that we do not conduct ourselves as this world does. To this end the mind must be renewed or renovated. The mind is that faculty of the person with which we gather information and come to an understanding. It is the faculty by which our disposition is set in a certain course, and our affections are guided, our intentions are directed, and our ambitions are fixed. Fundamentally, then, the mind of one that consecrates himself to God is renewed or renovated by fixing itself upon God’s written Word and getting information from it and then seeking to understand such information. To have mental affection for God and his kingdom we must have knowledge. _W 5/15_
+
+# July 3
+
+_Jesus himself baptized not, but his disciples._
+
+—_John 4: 2._
+
+This agrees with the fact that the one on earth doing the baptizing does not baptize into his own name. Jesus favored water baptism, and all his immediate disciples from among the Jews underwent water baptism. Jesus approved not alone of John’s baptism, but of the water baptism which followed when John’s baptism had served its purpose respecting the Jews and passed out. Just prior to ascending to heaven, the resurrected Jesus gave to his apostles and other disciples the commission: “Go, disciple all the nations, immersing them into the name of the Father.” (Matt. 28: 19, _Diaglott_) By that command he authorized water baptism to be performed toward all who became his disciples through the teaching activities of the ones he sent forth as preachers of the gospel. His faithful followers at once acted upon and in obedience to his authoritative command. _W 2/1_
+
+---
+
+<sup>**Page 326**</sup>
+
+[Open Page 326 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=326)
+
+# July 4
+
+_For whosoever shall call upon the name of the Lord shall be saved.—Rom. 10:13._
+
+Paul's use of the expression 'whosoever' does not differentiate between natural Jew and natural Gentile and likewise does not differentiate between spiritual Israelite or inward Jew and those not such. Paul was quoting from Joel 2:32. The expression 'whosoever' shows that it is not only the remnant of spiritual Israel that will be delivered and saved in the 'day of Jehovah'. By calling on Jehovah's name in faith and open confession, the 'stranger' class or 'other sheep' out of all nations also have an opportunity of being delivered from execution in the time of his wrath upon the worldly nations. The words Paul quoted from Joel 2:32 both applied to his day when he quoted them and also apply now. And so the prophecy, 'Whosoever shall call on the name of Jehovah shall be delivered,' includes now the great flock of 'other sheep'. _W 6/15_
+
+# July 5
+
+_Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names.—Ps. 16:4._
+
+By this stated resolve David uncovers the real intent behind the devilish persecution leveled at the worshipers of Jehovah, namely, to drive them away from him in bitterness and lack of faith and to turn them to the religious worship of the Devil's organization and its gods or mighty ones. (1 Sam. 26:19) Jesus, in the mount of temptation and also during the years of persecution that followed, refused to fall down and worship Satan and thereby hasten after another god besides Jehovah, to give such false god the gift of his devotion and service. Likewise, great persecutions were foretold by Jesus to come upon his followers at the end of the world. But these have foiled Satan's malicious purpose to move them away from the right worship and to make them hasten after another god, to wit, Satan, 'the prince of the demons.' _W 7/1_
+
+---
+
+<sup>**Page 327**</sup>
+
+[Open Page 327 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=327)
+
+# July 6
+
+_It is of the Lord's mercies that we are not consumed, because his compassions fail not.—Lam. 3: 22._
+
+Since Adam and Eve sinned before begetting children we cannot lay the blame to God. He remained justified. We inherited sin and imperfection from Adam. It was a mercy of God that he permitted such creatures to be born on earth, which earth he had created for the purpose of being inhabited by perfect men and women faithfully worshiping him. God owes us nothing. Absolute justice does not require of him to justify _any_ of us or _all_ of us to everlasting life as an offset for the undone condition in which we were born. He has shown us imperfect creatures mercy; and this mercy he has shown for his own name's sake, in order that his name might be vindicated from the reproach that Satan heaped upon it by causing mankind's fall. Absolute justice demands, not _our_ justification, but the justification of God's name. _W 7/15_
+
+# July 7
+
+_They shall build the old wastes.—Isa. 61: 4._
+
+Very plainly the sending of Jehovah's anointed or commissioned ones is because His worship has been broken down in the earth. The time is at hand to restore that worship and to cause it to flourish in the earth, where religion has long held dominance. Now the Government has been set up in the heavens which will permit only the worship of the Lord God Jehovah to hold sway in earth as well as in heaven. Those who forsake religion and who take up the pure worship in spirit and in truth the Government will let live. Never again will religion's confederated forces, Catholic, Protestant, Jewish, and pagan, be permitted to make Jehovah's worship seem to all but disappear from the earth. Their coming all-out attempt in that direction will be their final one. The good produced by the performance of the divine commission by God's anointed ones will not be produced in vain and perish from the earth. _W 1/1_
+
+---
+
+<sup>**Page 328**</sup>
+
+[Open Page 328 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=328)
+
+# July 8
+
+_Much more then, being now justified by his blood, we shall be saved from wrath through him.—Rom. 5: 9._
+
+God's wrath continues on those who do not accept the atonement sacrifice of Christ. But those who through faith are 'now justified by his blood' are saved from God's wrath, and this salvation is through Christ. The members of the church, by believing on Jesus' sacrifice for them and accepting it, were reconciled to God or brought into peaceful relations with him as his children. They were justified, but not for the mere purpose of enjoying life on earth. Since Christ Jesus entered through the veil into the heavenly presence of God as the forerunner of his church, he opened up for them the way of salvation to life with him in heaven. Hence the church, after having been reconciled to God through faith in Christ's death, are to be saved to heavenly life, because there is where their Head and Savior lives, interceding for them. _W 8/15_
+
+# July 9
+
+_The posts went with the letters from the king and his princes throughout all Israel and Judah, and according to the commandment of the king.—2 Chron. 30: 6._
+
+Christ Jesus in the Kingdom now fulfills his anointing with God's spirit to preach good tidings and declare God's vengeance, by seeing to it that the message now due is delivered to all nations. As Hezekiah sent out posts or runners, so Christ the King arranges to do. He invites and takes into this privilege of bearing testimony the remnant of his followers, beginning with those of them available in 1919. Being commissioned or commanded by Jehovah through his King Jesus Christ, the remnant of the anointed witnesses went forth as ordained ministers preaching the gospel. When Christ Jesus was a man on earth many centuries ago he showed how things were mainly to be done. He set the example for the remnant by himself going out among the people and preaching publicly and from house to house. _W 3/15_
+
+---
+
+<sup>**Page 329**</sup>
+
+[Open Page 329 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=329)
+
+# July 10
+
+_Ascribe unto Jehovah the glory due unto his name: . . . worship Jehovah in holy array.—Ps. 96:8, 9, A.S.V._
+
+In the highest interests of the people the psalmist calls on the kindreds and families of the peoples to give to Jehovah God the glory. Give him the glory due him for taking hold of his universal sovereignty and setting up his Theocratic Government toward the earth in preparation for an entirely new world of righteousness. Jehovah's witnesses, who come out from all nations, kindreds, people and tongues, will obey and ascribe glory to Him and glorify his name. Regardless of what 'Christendom' and all the United Nations do, they will bring their wholehearted offerings of service to Jehovah and his kingdom. They will not worship any international creation of men, but will worship Jehovah, identifying themselves as being consecrated and holy to him. They say always: 'We ought to obey God rather than men.' _W 10/1_
+
+# July 11
+
+_The Lord Jehovah hath given me the tongue of them that are taught, that I may know how to sustain with words him that is weary.—Isa. 50:4, A.S.V._
+
+With the heart God's faithful servants believe His Word, and thereafter with the mouth and tongue they make confession of his name and kingdom unto salvation. They must use their tongue or power of expression in the same wise, wholesome, truthful manner as their Head Christ Jesus did when on earth. Now is the opportune time for the servant class to use their instructed tongues to succor the sin-weary and religion-weary ones, to sustain them, and to speak a word in season to them. The 'word' with which to do so is the revealed Word of God, the Bible. Being themselves instructed by Jehovah through his Word, they know how to do this work. They must therefore be outspoken as His witnesses. They must be His preachers of the Kingdom gospel, for by his kingdom only will the people find rest and an everlasting peace. _W 9/1_
+
+---
+
+<sup>**Page 330**</sup>
+
+[Open Page 330 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=330)
+
+# July 12
+
+Jehovah hath become king— . . . let the multitude of coastlands rejoice.—Ps. 97:1, Roth. Pss.
+
+Since the remnant of the Theocratic “earth” are not selfishly keeping their joy and exultation to themselves, but are preaching God’s kingdom by Christ to all the nations for a witness, therefore the “coastlands” are helped to rejoice. How could they rejoice unless the earthly organization of the remnant of spiritual Israelites let the reason for their own joy be known along all the coasts of the continents and isles of the sea? The “multitude of coastlands” that are bidden to be glad with the remnant must represent the numberless throng of persons having good-will to God and his Theocracy. These come out from all nations, kindreds, people, and tongues. Not being spiritual Israelites, they are pictured by the Gentile strangers within the gates of Israel worshiping the same God as the Israelites did.—Ex. 20:10. W 10/15
+
+# July 13
+
+Walk in the spirit, and ye shall not fulfil the lust of the flesh. . . . if ye be led of the spirit, ye are not under the law.—Gal. 5:16, 18.
+
+Being free from the yoke of the Mosaic law covenant and being made free in Christ, his followers are acting under the “law of liberty” and are manifesting in a positive way their love of Jehovah with all the heart, mind, soul and strength. This they manifest by following the course of righteousness and rendering to Him the service that he requires of them as his witnesses. That the law of liberty does not mean license for unrighteousness Paul shows. (Gal. 5:13-21) “But the fruit of the spirit is love, joy, peace, long-suffering, gentleness, goodness, faith, meekness, temperance: against such there is no law.” (Gal. 5:22, 23) There are no Ten Commandments against producing such fruitage of God’s spirit. His spirit in his consecrated people is powerful enough to produce this legal fruitage without the Ten Commandments. W 11/1
+
+---
+
+<sup>**Page 331**</sup>
+
+[Open Page 331 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=331)
+
+# July 14
+
+_They shall build the old wastes, they shall raise up the former desolations, and they shall repair the waste cities, the desolations.—Isa. 61: 4._
+
+As God by his King at the temple revealed the Kingdom truths to the anointed remnant, the work of clearing out everything pertaining to religion and which had wrought havoc among them went zealously forward. The organizations, like “cities”, for actively conducting the Kingdom witness work were rebuilt according to Jehovah’s Theocratic rule, and the preaching of the Kingdom gospel in all the inhabited earth for a witness was renewed and broadened out. This reconstruction work for the restoration of His free worship and service was Jehovah’s doings by his King, Christ Jesus. It served notice that he has a faithful people on the earth. Never again shall his worship fall before Zion’s enemies and be almost extirpated by them from this earth. The reconstruction work is for the permanence of His worship. _W 1/15_
+
+# July 15
+
+_Of his own will begat he . . . creatures.—Jas. 1: 18._
+
+Jehovah acts only upon the believers’ denial of themselves to follow Christ. After causing the sacrifice of their future possibilities of perfect human life in the new world which justification brought to the believers, Jehovah begets them to be his spiritual children. This begetting is “not of blood, nor of the will of the flesh, nor of the will of man, but of God”. And by his Word of truth he sets the hope of heavenly glory before them, and assures them that the promises of such glory apply to them, if they stay faithful. Instead of being accounted as human sons of God by reason of their justification by faith, they are thenceforth spiritual sons. As such they are his heirs and Christ’s joint-heirs. They will inherit with Christ the heavenly glory, provided they suffer with him for righteousness’ sake and keep their integrity to God despite tribulation, in vindication of his name. _W 8/15_
+
+---
+
+<sup>**Page 332**</sup>
+
+[Open Page 332 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=332)
+
+# July 16
+
+_Because of the favor God has shown me in making me a minister \[leitourgós, or a public servant] of Christ Jesus among the heathen, to act as a priest \[hierourgein] of God's good news, to see that the heathen are an acceptable sacrifice.—Rom. 15: 15, 16, Goodspeed._
+
+In preaching as an apostle to the Gentiles in many nations Paul was fulfilling his commission as a public servant of Jesus Christ. In preaching to them the good news about the Kingdom and showing them the open door into it, he was serving as a priest (_hierourgein_) or performing a sacred office or doing a holy work, in order that there might be an offering of a living sacrifice to God from among the Gentiles. Thus such believing, consecrated Gentiles, partakers of the holy spirit, came in line with the apostle Paul to be of the 'holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ'. (1 Pet. 2: 5, 9) This aid to the brethren is a privilege. _W 5/15_
+
+# July 17
+
+_There is a river, the streams whereof shall make glad the city of God.—Ps. 46: 4._
+
+Christ Jesus entrusted to the remnant of the children of Zion, the 'faithful and wise servant' class on earth, all his Kingdom interests, and he makes sure that they shall always be supplied with the truth and the privilege of spreading it to other thirsty ones. At the same time he withholds the Kingdom truth and service from the enemies, particularly the religious clergy, and they are unable to stop up the waters from flowing to those who seek Jehovah and his capital organization Zion and refreshing them. His anointed King reigns in Zion, inviting all thirsty ones to come and be made glad with his people. Hence Christ Jesus the King caused factories to be built, owned and operated by Jehovah's witnesses to provide the Kingdom truth in printed and recorded form, that the refreshing Kingdom message might be spread in many languages to all earth's thirsty peoples. _W 4/1_
+
+---
+
+<sup>**Page 333**</sup>
+
+[Open Page 333 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=333)
+
+# July 18
+
+_Such were some of you: . . . but ye are justified in the name of the Lord Jesus.—1 Cor. 6: 11._
+
+“In the name of the Lord Jesus” means by the power and office of Redeemer which the Lord Jesus occupies. In that name the Christians believing in him had the sinful estate canceled out from the sight of God; and then their justification by faith put them on the same footing as Adam, the perfect son of God in Eden. Because of this, they had died to sin; and therefore they should no longer willingly indulge in any sin, nor do so for the perverted pleasure that the imperfect flesh has in sinning. They should no longer be the servants of sin. “How shall we, that are dead to sin, live any longer therein? For he that is dead is freed \[justified] from sin.” (Rom. 6: 2, 7; _margin_) “For he who died has been justified from sin.” (_Diaglott_) If he tries to live consistently with his justification, he will try not to yield himself to sin. _W 8/1_
+
+# July 19
+
+_Be called, The repairer of the breach.—Isa. 58: 12._
+
+The congregation of spiritual Israel is the “body of Christ”, and they must be subject to him the Head, as he takes the lead in doing the Theocratic will of Jehovah. (Eph. 5: 23, 24) In this way the structure of the people for Jehovah’s name does not conform to anything in this world of Satan “the prince of the demons”. Satan’s organization is a demonocracy, opposed to Jehovah’s Theocracy. Today a mere remnant of this spiritual Israel of God is to be found yet on earth. These of the remnant must now serve as Jehovah’s people for the issue. But with them he is now associating a multitude of consecrated persons of good-will. They are, as it were, throwing themselves into the breach due to the small number of the remnant, most noticeably so since 1931. They are rendering valiant service on many fronts throughout the earth amid this controversy that rages over Jehovah’s name. _W 6/1_
+
+---
+
+<sup>**Page 334**</sup>
+
+[Open Page 334 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=334)
+
+## July 20
+
+_The righteous taketh knowledge of the cause of the poor; the wicked hath not understanding to know it._
+—Prov. 29:7, A.S.V.
+
+Without proper instruction man's feet are hasty to run into sin. Therefore it is not good for souls to be without knowledge. Only with knowledge can we perceive the general ignorance in which many righteously disposed men in the world find themselves, and we appreciate that it is not good for them in view of what is coming. The wicked do not do anything about it, but rather scheme to keep them in mental darkness. Though the wicked recognize it not, such poor people have a right to come to a knowledge of the truth. If we want to do what is righteous, we will recognize the people's absolute lack of defense against what is impending over the world at Armageddon. We will be diligent to give them what is due them, by warning them and pointing out the way of escape. W 9/15
+
+## July 21
+
+_But if their false step has so enriched the world, and their defeat has so enriched the heathen, how much more good the addition of their full number will do!_
+—Rom. 11:12, Goodspeed.
+
+Down till 1931, at least, Israel's failure resulted in enriching many of the Gentiles with the opportunity of the "heavenly calling", in order to fill up the vacant places in the throne with Jesus. Likewise, the completing of the membership of the royal family of heaven results in enriching the nations. It means that the invitation to "men of good will" of all nations is then sent forth to come to the river of the water of life that flows from beneath the throne of the Kingdom. That invitation is to endless life on earth. Therefore, what if more natural Jews are brought into the Kingdom membership down to the last believing Jew? It simply works toward the completing of the Kingdom body, to be followed immediately by the blessing of all the families of the earth. W 4/15
+
+---
+
+<sup>**Page 335**</sup>
+
+[Open Page 335 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=335)
+
+## July 22
+
+_How shall they hear without a preacher? And how shall they preach, except they be sent?—Rom. 10:14, 15._
+
+In other words, Who has the authority to preach and represent himself as a minister of the gospel, except one sent by God, being ordained by Him and equipped with his true message? It is to Jehovah God to whom we must apply in order to be ordained or appointed to preach his Word. Prophecy indicated that Jehovah would be the One responsible to send the preachers. He would ordain them to make the proclamation and would give them genuine authorization and backing. To them alone he would entrust his message or word. The greatest preacher whom he sent, and who was the first to be sent by Him with the wondrous message of the Kingdom, was and is his Chief Servant, Christ Jesus. In turn, Christ Jesus, as Jehovah's fully empowered Servant, sent forth other preachers to proclaim the kingdom of God. W 6/15
+
+## July 23
+
+_For as by one man's disobedience many were made sinners, so by the obedience of one shall many be made righteous.—Rom. 5:19._
+
+Paul's previous expression, at Romans 5:18, namely, "upon all men unto justification of life," means all such of Adam's offspring, whether Jew or Gentile, as accept God's terms and act upon them for life-giving acquittal. That such ones will be many, although not every human creature, the apostle declares in verse 19 above. Concerning that one by whose obedience many are to gain righteousness with justification of life it is written: "Though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him." (Heb. 5:8, 9) This further disproves any such thing as "universal justification" applied arbitrarily and regardless of the sinner's attitude and desire. There must be faith with obedience. W 8/15
+
+---
+
+<sup>**Page 336**</sup>
+
+[Open Page 336 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=336)
+
+# July 24
+
+_Rejoice, O ye nations, with his people._—Deut. 32:43.
+
+Other verses of Moses' song prove it is Jehovah's people with whom the Gentiles or nations should rejoice. (Deut. 32:36, _A.S.V._) The prophetic word _nations_ can not mean the political organizations and their allies, but must mean the individual persons of all nationalities. Such ones must be unselfish, leaning away from this world and looking up above politics and religion to something higher. Then they can discern the reason why Jehovah's witnesses are rejoicing, and then they can join with them in rejoicing. Jehovah God himself invites them to share in the joy of His people. Christ Jesus is the Prophet like Moses whom Jehovah promised to raise up. By this Greater Moses as his mouthpiece Jehovah sings out that the Gentile nations should rejoice with the remnant of his people, the spiritual Israelites.—Deut. 18:15-18. _W 12/15_
+
+# July 25
+
+_Amid a severe ordeal of trouble, their overflowing joy and their deep poverty together have poured out a flood of rich generosity; . . . of contributing to the support of the saints._—2 Cor. 8:2-4, _Moffatt._
+
+The Lord's cause has never depended on the contributions of the materially rich for its maintenance. The all-rich Lord God has ever provided unfailingly for the needs of his servants in his work. The vital force behind this work for its continuance and its increase has been His spirit or active force, working within his consecrated people. Jehovah God has never called many rich. (Jas. 2:5) As concerns financial support of his work, the materially poor consecrated ones have been the greatest mainstay, because of being filled with his spirit and with an understanding and appreciation of the precious truth. Their gifts from amidst their meager circumstances, and while under a merciless opposition from the world, have been the expression of love greater than that of the wealthy who out of their plenty give large gifts. _W 12/1_
+
+---
+
+<sup>**Page 337**</sup>
+
+[Open Page 337 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=337)
+
+## July 26
+
+_Arise, shine; for thy light is come.—Isa. 60: 1._
+
+From and after 1919 Jehovah God commanded the faithful remnant of Zion to arise from their downtrodden condition and to catch up the light of God's favor and of revelation upon his Word, the Bible, and to get active in reflecting such light upon those yet in darkness. The Lord Jehovah assures the remnant of his universal organization Zion that sure results will follow upon such activity by them. He comforts Zion and her remnant with the promise that he will build up her visible earthly organization and beautify it, and that God's continuing favor upon it will never let it be overturned again. The organization will become populous with lovers of light and truth: 'The little one shall become a thousand, and the small one a strong nation: I, Jehovah, will hasten it in its time.' That time has been since A.D. 1919. _W 1/1_
+
+## July 27
+
+_Hezekiah . . . clave to the Lord \[Jehovah], and departed not from following him.—2 Ki. 18: 1, 6._
+
+The young king saw that the basis of all true reconstruction work of an enduring kind for the people is the restoration and cultivation of the worship of Jehovah God. Hezekiah was well familiar with the saying of the psalmist: 'Blessed is the nation whose God is Jehovah, the people whom he hath chosen for his own inheritance. There is no king saved by the multitude of a host: . . . Our soul hath waited for Jehovah: he is our help and our shield.' (Ps. 33: 12, 16, 20, _A.S.V._) Hezekiah appreciated that 'putting the kingdom's interests first' meant the faithful carrying on of the worship of Jehovah by keeping covenant with Him. So, too, when Christ Jesus the King came to the temple in 1918, he saw the immediate need of a great reconstructive work. He saw it must be done before the battle of Armageddon if any flesh on earth, primarily his devoted followers, were to be saved. _W 3/1_
+
+---
+
+<sup>**Page 338**</sup>
+
+[Open Page 338 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=338)
+
+# July 28
+
+_When the Lord \[Jehovah] shall build up Zion, he shall appear in his glory.—Ps. 102:16._
+
+The Zion about which Jehovah's prophecy concerns itself is of the universal organization of Jehovah, throughout which organization He exercises universal sovereignty as the Most High and Almighty God. Zion is therefore the organization of the true worship of Jehovah God in spirit and in truth. What, then, is the great reconstructive work which the above prophecy foretells? It is the restoration and upbuilding of the things which religion and her demonized servants have wasted and tried to destroy utterly from this earth, namely, the truth and the worship of the only true and living God and also the active organization of His people on earth. Such work results in the vindication of Jehovah's name and the eternal good of humankind. Jehovah undoes the work of the enemy by such reconstructive work. _W 1/15_
+
+# July 29
+
+_Hezekiah prayed for them, saying, The good Lord pardon every one that prepareth his heart to seek God, . . . And the Lord hearkened to Hezekiah, and healed the people.—2 Chron. 30:18-20._
+
+Thus, while Jehovah God did not excuse religion or any slackening toward his Theocratic law, he was merciful to those who sought to worship him in sincere consecration from the heart. Jehovah's witnesses know he has been forbearing toward them until such time as they have had opportunity and the instruction to be made clean from all religion by his truth and the purifying power of his holy spirit. Also, the King Christ Jesus has advocated before God for all those who were indeed at fault through traces of religion but whose hearts were right and seeking to worship Jehovah in purity. He prayed for such and applied the merit of his sacrifice for such, and Jehovah God has hearkened and healed his remnant from the unclean effects of former contact with religion. _W 3/15_
+
+---
+
+<sup>**Page 339**</sup>
+
+[Open Page 339 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=339)
+
+# July 30
+
+_Each morning he wakens, he wakens my ear to hear as disciples do.—Isa. 50: 4, Am. Tr._
+
+To carry on in the witness work, and to be able to meet the changing conditions, and to deal with the challenging situations that arise, God's servant class need instructions daily from him. Fully aware of such need, he faithfully gives instruction to them. He has given to them the 'hearing of faith', and they hear and heed his Word in faith. (Gal. 3:2) They rejoice to have his Word fall upon their ear. It awakens them to action, spurring them on daily in His service. Their ordination from God they hear from his Word. By keeping their ear tuned to His Word to hear regularly, they increase in learning. The hearing of His Word is their delight, even though it brings a responsibility. It calls for their obedience. It calls for them to proclaim the Word heard to others. It commands: 'Be ye doers of the word, and not hearers only.' _W 9/1_
+
+# July 31
+
+_Remember ye not the former things, neither consider the things of old. Behold, I will do a new thing; now it shall spring forth.—Isa. 43:18, 19._
+
+In themselves the faithful remnant and their fellow witnesses, their good-will companions, have present evidence that Jehovah is the Savior and Deliverer. No 'stranger' or foreign god is among them to whom to attribute salvation and deliverance. They do not need to point to the distant past long before their day to produce an example of deliverance by Jehovah God. The proof of His power to deliver as God does not lie wholly in the ancient days when he smote Egypt and brought the Israelites through the Red sea and lured the Egyptians to their destruction in the sea. The proof of Jehovah's Godship is not limited to the time when he caused the mighty world-power, Babylon, to fall, to deliver his people from Babylonish captivity and bring them back to his holy city. That deliverance from Babylon was a _new thing_ in their history. _W 6/1_
+
+---
+
+<sup>**Page 340**</sup>
+
+[Open Page 340 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=340)
+
+# August 1
+
+_Remember now thy Creator in the days of thy youth \[in the days of thy vigour].—Eccl. 12: 1; Rotherham._
+
+What is so vital and important to remember in the golden time of youth is vital and important to remember at all times. With the passing of our youth we dare not stop remembering; but remembering in youth should put us in the habit of remembrance in all later life. Youth wants to live, in happiness. Why, then, not remember the Creator and Life-giver when one is young? Then life is ahead, not just the brief life of this present evil world, but, possibly, the eternal life in the New World of righteousness, provided the young creature makes the right preparation. Jehovah is the Creator of the New World. The appreciative man should therefore want to remember the Creator from the days of his youth and vigor, because the Creator is deserving of the service of all our lifetime _now_. He is worthy of our present service when we can serve him with vigor, instead of holding back till our human body is exhausted of strength. _W 11/15_
+
+# August 2
+
+_By one spirit are we all baptized into one body, . . ._
+
+_Now ye are the body of Christ, and members in particular.—1 Cor. 12: 13, 27._
+
+In view of the meaning of being immersed “into the name of the Father, and of the Son, and of the holy spirit” (Matt. 28: 19, _Rotherham_), one must be wholly consecrated to God before one is immersed in water. Otherwise, water immersion does not mean a thing in the sight of God except ignorance or hypocrisy. Unless one was baptized in water in symbol of an honest and intelligent consecration to God through Christ Jesus one could never receive the baptism with the holy spirit, which baptism Jesus began on the day of Pentecost ten days after ascending to God’s right hand. Such baptism with the spirit has been reserved for only those followers of Christ Jesus who become members of his body under him their Head. _W 2/1_
+
+---
+
+<sup>**Page 341**</sup>
+
+[Open Page 341 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=341)
+
+# August 3
+
+_Present your bodies a sacrifice—living, sanctified, acceptable to God.—Rom. 12: 1, Young._
+
+Simply making a consecration to God is not all there is to it. After one consecrates such one must set himself to do God's will and must busy himself about doing it. The living sacrifice must be holy and acceptable to God, who has shown mercy for this very purpose. That means that the body which is presented for God's use must be set apart or consecrated, and all its members, faculties and powers must accordingly be put to work doing the good pleasure of God. It must do the things that are acceptable to God, and all this must be done through the High Priest Christ. The purpose of our living sacrifice is to show forth God's praise in our mortal bodies by telling others of his name and by proclaiming his Kingdom and by helping the brethren and others of good-will to do what is pleasing to the Lord God. The doing of these things is spiritual activity or sacrifice. _W 5/15_
+
+# August 4
+
+_Consider the Apostle and High Priest of our profession, Christ Jesus; who was faithful to him that appointed him.—Heb. 3: 1, 2._
+
+Christ Jesus on earth was faithful to his anointing from God by carrying out his divine commission clear to the time of his death on the tree. For that very reason he was nailed to the tree, proving that all the religious persecution which led up to this crime had failed to break his integrity or make him prove disobedient to the terms of his commission. His proving faithful and true as Jehovah's Servant and witness vindicated Jehovah God as rightfully holding the universal domination and as being worthy of the submission of all creatures high and low throughout the universe. It proved Satan the Devil a liar in his charging of selfishness to all members of Jehovah's universal organization. It demonstrated that the kingdom of heaven will ever be loyal to Jehovah. _W 1/1_
+
+---
+
+<sup>**Page 342**</sup>
+
+[Open Page 342 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=342)
+
+## August 5
+
+Be ye transformed by the renewing of your mind, that ye may prove what is that good, and acceptable, and perfect, will of God.—Rom. 12:2.
+
+The results to us of doing such divine will certify or prove to us all the more that it is the right will of God. He has made his will plain to our minds by his Word, which shines daily with increasing brilliancy upon our understanding. His good will is for us to be no part of this old world in which we are, but to be undividedly for God's kingdom. His perfect will is that his consecrated ones should bear witness to his name and preach "publicly and from house to house" the good news of his Theocratic Government, the Kingdom, to the end of this world. His acceptable will is that we keep our consecration vows, and hold fast our integrity toward him under the increasing opposition and persecution from Satan's world and thus be for a vindication of God's name. W 5/15
+
+## August 6
+
+As for me, I will walk in mine integrity.—Ps. 26:11.
+
+The vindication of Jehovah's name and universal sovereignty does not require the supposed "universal justification", arbitrarily, unilaterally, on His part. As in Job's case, the question of integrity is linked up with the issue of Jehovah's universal domination. Integrity is not a matter of God's forcing men to show devotion to His universal sovereignty, but means rather the Devil's attempting to force men to forsake God's side under stress of persecution or temptation. Jehovah, instead of forcing submission and obedience, permits his men of integrity to be subjected to the Devil's assaults. He thus lets them voluntarily choose to stay with God's side, even at the cost of great suffering. Their refusal to give in to the Devil's pressure and their willingly holding fast their integrity toward God, this is what proves the Devil a liar and vindicates God's name. Arbitrary compelling of creatures would not justify him. W 7/15
+
+---
+
+<sup>**Page 343**</sup>
+
+[Open Page 343 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=343)
+
+# August 7
+
+_Yea, I have a goodly heritage. I will bless Jehovah, who hath given me counsel; yea, my heart instructeth me in the night seasons.—Ps. 16: 6, 7, A.S.V._
+
+Likewise with Jehovah's remnant and their companions during 'this present evil world'. They claim no permanent dwelling-place in this world, but look forward to the 'world to come', the new world of righteousness with its 'new heavens and a new earth'. They bless Jehovah's name publicly and from house to house, what though the hostile world curses that holy name. They take counsel from Jehovah God through his Theocratic organization under Christ Jesus. Thus, in seasons benighted by persecution upon them, or amid the darkness of wickedness and ignorance that covers the peoples, they have the divine instructions in their inward parts, in their hearts and minds; and can meditate upon such instructions and know the way to go for His blessing and protection. _W 7/1_
+
+# August 8
+
+_Then shall he kill the goat of the sin offering, that is for the people, and bring his blood within the veil, and do with that blood as he did with the blood of the bullock.—Lev. 16: 15._
+
+The presenting of the bullock's blood for the sins of the Levites pictured that Christ Jesus first brings about atonement for the sins of the antitypical Levites, the 'church of God'. Next, the Jewish high priest presented the blood of the 'Lord's goat' before God's mercy seat in the Most Holy. This he did in behalf of the other tribes of Israel, which tribes had an inheritance of landed property in the God-given Promised Land. This pictured that after Christ Jesus brings about atonement for the church by justification through the imputation of his righteousness, then he brings about atonement for the willing and obedient ones of the remainder of mankind. This he does during the thousand years of his reign. Thus the justification of these must come after Armageddon. _W 8/15_
+
+---
+
+<sup>**Page 344**</sup>
+
+[Open Page 344 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=344)
+
+# August 9
+
+_He hath made us accepted in the Beloved.—Eph. 1: 6._
+
+Before ever Christ's followers could be presented in acceptable sacrifice to God, they must necessarily be first justified by God's mercy through Christ. Otherwise, their natural condition would bar them from his accepting them as a pleasing sacrifice. From this standpoint the all-essential need of justification becomes clear, if they are to inherit the heavenly kingdom. This justification comes to them by faith. This faith or belief in God and in his provision by Christ they must show or prove by making a full consecration of themselves to God through Christ. They must trust that they will be receivable through him, or 'accepted in the Beloved'. Thus they 'deny themselves'. (Matt. 16: 24) In order for his High Priest, Christ Jesus, to present these believers as an acceptable sacrifice, Jehovah justifies the consecrated believers and imputes righteousness to them. _W 8/1_
+
+# August 10
+
+_Poverty and shame shall be to him that refuseth instruction: but he that regardeth reproof shall be honoured.—Prov. 13: 18._
+
+Receiving God's reproof in the right way, the 'faithful and wise servant' class do not become spiritually poor, but are honored of God with further privileges of serving him. Because those who scoff at Jehovah and at his organization do not enjoy taking instruction by way of reproof, they shy away from his Word and from his faithful witnesses, and thus turn aside to the unwise world. But whoso desires to learn is not afraid to face reproof and to take it with benefit to himself. 'A scorner loveth not one that reproveth him: neither will he go unto the wise. The heart of him that hath understanding seeketh knowledge.' (Prov. 15: 12, 14) Jehovah does not hesitate to correct his people, because he is faithful to them and he knows it will benefit them. 'Reprove one that hath understanding, and he will understand knowledge.' _W 9/15_
+
+---
+
+<sup>**Page 345**</sup>
+
+[Open Page 345 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=345)
+
+# August 11
+
+_God loveth a cheerful giver.—2 Cor. 9:7._
+
+The one who contributes with faith in God's cause as carried on by His consecrated servants never invests in a losing enterprise. The one who voluntarily gives generously is certain to benefit spiritually by this exercise of generosity and devotion to the interests of God's people and His work. He who takes advantage of present opportunities to contribute and to scatter his charitable gifts to the Lord's poor will reap to himself further joyful privileges of so doing, as long as we have the poor with us. The contributor keeps his spirit of generosity alive and active, and God will not fail to use such unselfish one in his blessed service. This is because God loves the one who, ungrudgingly and without compulsion, gives cheerfully and gladly of what he has to the support of God's organization and its witness work. How could God let such generous one come to real want? _W 12/1_
+
+# August 12
+
+_And the cities shall be inhabited, and the wastes shall be builded: . . . and ye shall know that I am the Lord \[Jehovah].—Ezek. 36:10, 11._
+
+The reconstruction work is not simply for the benefit of the remnant unto their gaining life eternal in the heavens. Jehovah's worship is to be carried on also by human creatures counted worthy to live forever on earth after the remnant will have been glorified in the Kingdom. Thus Jehovah's worship will continue on unbroken on this earth. Therefore by His favor the reconstruction work regarding his worship and service is being done before Armageddon for a witness to all nations and for the benefit of all persons of good-will among them. According to their commission it is the remnant's duty to preach the Kingdom news to the oppressed, to comfort their hearts, to convey to them the freedom-giving truth, and to aid them into the loving, fearless service of Jehovah God and build them up therein. _W 1/15_
+
+---
+
+<sup>**Page 346**</sup>
+
+[Open Page 346 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=346)
+
+# August 13
+
+_Remember the sabbath day, to keep it holy.—Ex. 20:8._
+
+Bear in mind that God's law covenant with the Jews set forth a 'shadow of good things to come, and not the very image \[or reality] of the things'. (Heb. 10:1) Of what good things to come was the Jewish weekly sabbath a shadow? Being the seventh day of a week, the weekly sabbath foreshadowed the seventh period in man's history during God's rest day of 7,000 years; that is, it foreshadowed the last 1,000 years thereof. That thousand years Jehovah God has assigned to the Lord Jesus Christ, to reign then without disturbance or interference from the Devil's organization in either heaven or earth. Such 1,000-year reign of Christ Jesus, as foretold at Revelation 20:1-6, begins after the binding of Satan the Devil; in other words, after the battle of Armageddon, which battle, everything indicates, will begin inside this generation.—Rev. 16:14-16. W 2/15
+
+# August 14
+
+_And the people rested themselves upon the words of Hezekiah king of Judah.—2 Chron. 32:8._
+
+Christ has trained his followers for the warfare against religion and encroachments by religion's political allies. He comforts and strengthens them with the promises of God's Word. The remnant and companions are relatively few in number, but they are not fearful of the modern Assyrian, Satan the Devil, nor of his totalitarian religious-political hordes. Continually they rest themselves or lean on their King's words: 'There be more with us than with him: with him is an arm of flesh; but with us is the LORD \[Jehovah] our God to help us, and to fight our battles.' Already, down to this year 1946, Jehovah God has fought many battles for us and maintained for us the 'freedom wherewith Christ has made us free'. They look forward calmly and confidently to Armageddon, knowing that Jehovah will fight that battle for them too, because the battle is His, not theirs. W 4/1
+
+---
+
+<sup>**Page 347**</sup>
+
+[Open Page 347 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=347)
+
+# August 15
+
+_In blessing I will bless thee, . . . and thy seed shall possess the gate of his enemies.—Gen. 22:17._
+
+That sacred promise is generally known as “the Abrahamic covenant”. Under examination its terms will be seen to mean both war and blessing, the widespread blessing following upon the war. The blessing foretold in the covenant applies both to God and to man. The blessing comes first to God, in that his name must first be vindicated. In this covenant Abraham, the man whose faith won him justification with God, was a type or prophetic picture of God himself. His name “Abraham” means “father of a multitude”. God’s covenant said that Abraham’s seed should possess the gates of his enemies. This means that war would be waged against the organization of the enemies of Christ Jesus, which enemies are therefore the enemies of his Father, Jehovah God, the Greater Abraham. W 5/1
+
+# August 16
+
+_Ye are my witnesses, saith Jehovah.—Isa. 43:10, A.S.V._
+
+The responsibility which Jehovah lays upon them the remnant accept. They are ably seconded by their good-will companions in meeting this responsibility. Before the mentally blind and deaf people, and before all the gathered nations and assembled peoples, the remnant act as God’s servant under Christ Jesus and bear witness to Jehovah as God, Savior and Deliverer. They do not fail Jehovah’s purpose in making them a “people for his name” and hence his witnesses. They point steadfastly to the record in the Scriptures where Jehovah has again and again made a name for himself by delivering his faithful servants in past times. Using all the means for preaching the Kingdom gospel, they show He is the only true and eternal God and that by his now established Kingdom he will work in vindication of his name and universal domination. They show also that Satan and all his world will not be able to hinder Jehovah or to deliver the wicked from destruction at his hands at Armageddon. W 6/1
+
+---
+
+<sup>**Page 348**</sup>
+
+[Open Page 348 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=348)
+
+# August 17
+
+_The world also is established that it cannot be moved. He judges the peoples in equity.—Ps. 96: 10, Am. Tr._
+
+The gospel-preachers are ordained to make known these facts among all nations. The world that is immovably established is the new world composed of new heavens and a new earth. The “new heavens”, or Zion, which is Jehovah’s capital organization under Christ, is the foundation of the new world. Hence it is the foundation for the “new earth”. Bible prophecy makes the evidence positive that in 1918 Jehovah laid his King Christ Jesus as the Foundation Stone in heavenly Zion. This King is a “sure foundation”, and whatever is founded upon him will never be moved or cause disappointment and shame and confusion. (Isa. 28: 16) What contributes to the stability of the new world is the righteousness of its Ruler. (Prov. 20: 8; 29: 4, 11) He now judges the peoples righteously, and with equity, according to their reception of the “new song” or “this gospel of the kingdom”.—Ps. 96: 1. W 10/1
+
+# August 18
+
+_I am ordained a preacher.—1 Tim. 2: 7._
+
+When Christ Jesus quoted and applied the words of Isaiah 61: 1, 2 concerning the anointing, it astounded the religionists at Nazareth and quickly led to their attempt to throw him over the precipice and stone him. Like his, the ordination of the members of the body of Christ is not of men or by men, but is of God and by Jesus Christ. The King Christ Jesus in the heavens still says, “The spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me to preach good tidings unto the meek.” Christ Jesus, therefore, in these last days is seeing to it that the duties and obligations which are imposed by the anointing are carried out through the remnant of his body members yet on the earth. Hence, under him their Head, the remnant of Jehovah’s witnesses say: “The spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me to preach.” W 1/1
+
+---
+
+<sup>**Page 349**</sup>
+
+[Open Page 349 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=349)
+
+# August 19
+
+_The children of Israel that were present at Jerusalem kept the feast of unleavened bread seven days with great gladness.—2 Chron. 30: 21._
+
+The seven-day feast of unleavened bread pictured the continual spiritual feast that God's faithful worshipers enjoy after being made free through his 'Lamb of God', sacrificed for believers. (1 Cor. 5: 7, 8) As Jehovah's remnant keep this continual feast, and with a special appreciation of it since 1929, they beware of the leaven (doctrine) of the modern-day Pharisees of 'Christendom'. (Matt. 16: 6, 12) In that noteworthy year, 1929, Jehovah disclosed that the 'higher powers', to whom all Christian souls are by Him commanded to be subject, are Jehovah God and his King Christ Jesus, and not religious-political powers. At the same time he awakened them to the fact that Christianity is not a religion, but is the truth in doctrine and in practice.—Rom. 13: 1-5. W 3/15
+
+# August 20
+
+_Both young men and virgins; old men and children: let them praise . . . Jehovah.—Ps. 148: 12, 13, A.S.V._
+
+All are bidden to remember their Creator, who is also the Creator of the Kingdom and of the New World, and to praise his name by having a part in vindicating it. By being vindicated against all who reproach it, his name will alone remain exalted. The feeling of the vanity of life is not the portion today of those witnesses of Jehovah who have gotten old in His service from their youth or from their more vigorous years of life onward. They find these the most glorious days in which they have ever lived, because they see from God's prophecies which they studied in youth that this is the promised 'day of Jehovah'. It is the time of the 'joy of Jehovah', because he has taken his invincible power toward this earth and set up his Theocratic Government by installing his King Christ Jesus. The sharing in this joy of Jehovah is the strength of his people, whether young or old. W 11/15
+
+---
+
+<sup>**Page 350**</sup>
+
+[Open Page 350 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=350)
+
+# August 21
+
+_Be not conformed to this world.—Rom. 12: 2._
+
+To be “conformed to this world” means to serve it and to copy its ways, its ambitions, its pride and self-righteousness, its objectives, its ease or pursuit of excitement and pleasure, and its religion. The world, of which Rome was a part, continues till this day. It is still the same, even if more modernized in certain outward respects. Since the Lord’s Word sounds the warning that in the last days perilous times would come, the organization instructions of the apostle Paul, not to be conformed to this world, are as applicable today as when Paul first wrote them. The attractions of this world, and inducements to worldliness, have been multiplied. And the Devil and his demons are on the alert to use them to the fullest extent, to turn the servant of God aside from his reasonable service or to lessen or interfere with our time for the spiritual service and worship. _W 5/15_
+
+# August 22
+
+_How shall they preach, except they be sent? . . . How beautiful are the feet of them that bring glad tidings of good things!—Rom. 10: 15, A.S.V._
+
+The prophecy of Isaiah 52:7 from which Paul quoted reads in full: “How beautiful upon the mountains are the feet of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth salvation; that saith unto Zion, Thy God reigneth!” Paul made a partial application of the prophecy back there. But manifestly the prophecy applies in completeness at the time that Jehovah God has taken his great power and reigns, by conferring authority to rule upon Christ Jesus, whom he lays as the “precious corner stone of sure foundation” in Zion. That time began A.D. 1914; and so the prophecy applies now, but particularly since 1918. Why? Because then Christ Jesus came to the temple to do a great reconstructive work with respect to Jehovah’s pure worship by creatures on earth. _W 6/15_
+
+---
+
+<sup>**Page 351**</sup>
+
+[Open Page 351 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=351)
+
+# August 23
+
+_God will help me; therefore shall I not be confounded: therefore have I set my face like a flint, and I know that I shall not be ashamed.—Isa. 50: 7._
+
+That Jehovah's witnesses have a ways to go before they are vindicated at the battle of Armageddon by Jehovah's victory there, does not make them faint or slack their hand in his service. They have not been confounded by what suffering and world-wide disrepute have come upon them. They know that more such things, or worse things, wait them in the postwar period. But they know that the Almighty God helped them in the past and has helped them hitherto, and will not fail them in the climax of sufferings ahead. Their sole desire and purpose is to hold fast their integrity to Him and fulfill their ordination from him to be His witnesses. In that way they will share in vindicating His name. They are determined to go on. They are going on, to the ends of the earth. _W 9/1_
+
+# August 24
+
+_Jehovah hath become king— . . . Clouds and darkness are round about him.—Ps. 97: 1, 2, Roth. Pss._
+
+This shows that Jehovah's witnesses would not see with natural vision His enthronement in The Theocracy in 1914. But faith in God's Word and in his fulfilled prophecies can pierce those clouds and darkness to see the great enthroned Theocrat with his anointed King at his side. The clouds and darkness about Him are meant to hide God's purposes from the unbelievers and opposers. Instead of meaning that he loves the darkness of iniquity and does the works of darkness, the clouds and darkness about him are a manifestation of Jehovah's power and glory, creating a due fear in the hearts of men. To the contrary of denoting that God does not know men's deeds, the clouds and darkness denote he is inscrutable to man and that his wisdom is beyond being penetrated by man. He lifts the darkness as to his secret purposes only to those who draw nigh to him in faith and fear. _W 10/15_
+
+---
+
+<sup>**Page 352**</sup>
+
+[Open Page 352 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=352)
+
+# August 25
+
+_Remember your Creator in the days of your vigor, before the evil days come.—Eccl. 12: 1, Am. Tr._
+
+Jehovah being our Creator, everything that we are we owe to him. Everything we enjoy we owe to him, the Builder of heaven and earth. The right-minded worshiper of the adorable Creator fears to let him out of mind. He desires to get into the service of his great Creditor just as soon as he can and with all the vigor, intelligence and means that he has, and to serve him the rest of his days. It matters not how few years or many years the battle of Armageddon may be off, now is the time to remember and serve the Creator of the New World. If we now serve him, during this world when mankind in general do not choose to give thought to Jehovah God but do instead reproach his name, we have the privilege of sharing under Christ in the vindication of the Creator's glorious name. _W 11/15_
+
+# August 26
+
+_And I, if I be lifted up from the earth, will draw all men unto me.—John 12: 32._
+
+The facts are against arguing that 'all men' here means that every human creature will eventually be drawn to Christ Jesus. After his death only a remnant of the Jews were drawn to him. The religious leaders of the remainder showed themselves irreformable in opposing him. However, besides the Jewish remnant, men from all other races, nations, kindreds and tongues have been drawn to him, and willingly so. Just so, too, the expression 'all flesh' in Jesus' prayer does not mean each and every human has eternal life forced upon him: 'Thou hast given him power over ALL FLESH, that he should give eternal life \[to how many? All flesh? Listen] to as many as thou hast given him.' (John 17: 1, 2) Regardless of what nationality, race or color, human creatures are 'all flesh' and of one blood. Any of such who come to know God and Christ and to believe on them and to obey them receive the 'justification of life', life-giving acquittal. _W 8/15_
+
+---
+
+<sup>**Page 353**</sup>
+
+[Open Page 353 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=353)
+
+## August 27
+
+Go, disciple all the nations, immersing them into the name . . . of the holy spirit.—Matt. 28:19, Diaglott.
+
+Consecration to God cannot be carried out in our own strength. We must have the help of the spirit or active force of God. Hence we are baptized “into the name of the holy spirit”. That means we are baptized unto a recognition of the fact that the holy spirit proceeds from Jehovah and by or through his Son Jesus Christ. And that holy spirit is thus exercised for the accomplishment of Jehovah’s will. It means we recognize the power of God and hence consecrate ourselves to do, to act, and to speak in harmony with the holy spirit of God and we will not go contrary to it nor blaspheme against it. No; but we will order our lives, as far as possible, to serve, work and co-operate with God’s holy spirit. We pray to be filled with more and more of his holy spirit and to be led by it rather than by our own selfish will. W 2/1
+
+## August 28
+
+I will make an everlasting covenant with them. And their seed shall be known among the Gentiles, and their offspring among the people: all that see them shall acknowledge them, that they are the seed which the Lord hath blessed.—Isa. 61:8, 9.
+
+The remnant appreciate that Jehovah has inaugurated the new covenant toward them by his King at the temple, the purpose of which covenant is to take out of the nations a “people for his name”. Due to keeping covenant and seeking to fulfill their anointing to publish His name, they become known among all the Gentile nations. Their endeavor is to walk worthy of the gospel and to show themselves faithful ministers of God. Hence the persons of good-will who see them in their true position acknowledge the anointed remnant to be the lone people on earth whom the Lord God is blessing through his King Christ Jesus. They desire to be “one flock” with the faithful remnant under the “one shepherd”.—John 10:16, A.S.V. W 1/15
+
+---
+
+<sup>**Page 354**</sup>
+
+[Open Page 354 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=354)
+
+# August 29
+
+_Because of unbelief they were broken off, and thou standest by faith. Be not highminded.—Rom. 11: 20._
+
+Clinging to religion and hence stumbling over the Rock Christ Jesus and not believing God's Word as to him, this was why the rejected Jews were pruned from the symbolic olive tree. Hence the only reason why any ingrafted branch from the wild olive tree stands in the Theocratic tree is because of exercising faith and obedience and integrity, and not because of any personal merit over the Jews. It was because of becoming high-minded as to their exclusive national relationship to God that the majority of the nation fell. Instead of becoming conceited, those from the Gentiles should see the danger of self-admiration and should fear, yes, fear lest they fall into the snare of religion and lose out on faith and obedience. None should trust in that religious deception, namely, 'Once saved, always saved.' _W 5/1_
+
+# August 30
+
+_Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine.—Isa. 43: 1._
+
+What Jehovah's witnesses went through during the global war is like what they tasted during the World War of 1914-1918. Then they were greatly harassed, but they were not permitted to be destroyed. Foiling the enemy's murderous designs, Jehovah brought his remnant forth to greater activity and accomplishment in his service. He formed them into a unified organization more thoroughly in harmony with Theocratic rule. Hence Jehovah bids them not fear as respects the future. He has delivered them from the bondage of fear and doubt, and from abject subservience to the religious and political organization of this world. Since 1918 Jehovah has revealed that the remnant are a people for His name. He has called them by a name, and all the names that the enemy call them to vilify them before the world do not count. Created, formed, redeemed by Him, they are His. _W 6/1_
+
+---
+
+<sup>**Page 355**</sup>
+
+[Open Page 355 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=355)
+
+# August 31
+
+_By the knowledge of himself shall my righteous servant justify many.—Isa. 53: 11, A.S.V._
+
+Jehovah's prophecy long ago thus spoke concerning his Servant Christ Jesus, to emphasize the necessity of knowing Christ in order for condemned human creatures to be justified to eternal life. By knowing Jehovah's righteous servant Christ Jesus and how he suffered affliction in order to prove worthy to bear away our iniquities; and then by exercising faith in such knowledge of Christ Jesus, he becomes God's means of justifying the believers to eternal life. Not all will accept and gain such knowledge of him and have faith in it, but as many as do so will receive 'justification'. (Rom. 5: 18) When a man turns down the knowledge in the Bible concerning God and his Servant, he acts against his life interests. His willful ignorance opens him up to the wily approaches of those who seek his hurt. It dooms him to destruction. _W 9/15_
+
+# September 1
+
+_Now when all this was finished, all Israel that were present went out to the cities of Judah, and brake the images in pieces, and cut down the groves, and threw down the high places.—2 Chron. 31: 1._
+
+In Hezekiah's time the right effect was produced upon the worshipers at Jerusalem by the celebration at the temple. A great anti-religion campaign was conducted throughout the land before ever the worshipers returned and settled down in their homes. This united uprising against religion or demonism in the God-given land was according to the divine will, and his anointed king approved it. Thus, too, in this favored day of Jehovah's restored worship the joyful celebration of the feast of freedom does not end with simply feeding upon the unfolding truths. The zeal for God's house of worship which has been fed by the feast must be translated into action against the powers of demonism. It is now being so translated. _W 3/15_
+
+---
+
+<sup>**Page 356**</sup>
+
+[Open Page 356 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=356)
+
+# September 2
+
+_The spirit of My Lord \[Jehovah] is upon me, because \[Jehovah] hath anointed me to tell good tidings to the oppressed, hath sent me.—Isa. 61:1, Rotherham._
+
+In taking up these inspired words, Jesus acknowledged that Jehovah God was his Lord and Master and that, as such, Jehovah God sent him forth and gave him instructions on what to say and do. Hence Jesus owned up to the universal domination of his God and Father Jehovah. He confessed that he is subject to God's will. Jesus made no pretense to being equal to Jehovah God in power and glory and co-eternity. By the above words he also declared his ordination came not from any man or group of men, but from the only One who can ordain or appoint gospel-preachers, viz., Jehovah. Having the Highest Authority behind his mission, and thus having the only valid ordination, he went ahead with carrying out his commission regardless of whether religionists liked it or not. _W 1/1_
+
+# September 3
+
+_Let their eyes be darkened.—Rom. 11:10._
+
+The Israelites who trusted in their flesh followed up a religion of self-righteousness through works and were so affected by it that they were not awake to the fulfillments of God's Word in Christ. Religion blinded them so that they could not see the Seed of Abraham in Christ Jesus the Son of God. Their ears were so waxed up that they could not listen to him with the hearing of faith. They heard no accents of God's message in what he said. The like is true of 'Christendom' now, when the message, 'The kingdom of heaven is at hand,' is going forth. The religionists try to alter God's Word by adding to it, taking away from it, or interweaving into it the doctrines of demons. But God does not alter the fulfillments of his Word and prophecy just to suit the altered views of the religionists. By being true to his Word, he dazes the religionists. He opens the eyes and ears only of those who break off from religion. _W 4/15_
+
+---
+
+<sup>**Page 357**</sup>
+
+[Open Page 357 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=357)
+
+# September 4
+
+_O my soul, thou hast said unto Jehovah, Thou art my Lord: I have no good beyond thee.—Ps. 16:2, A.S.V._
+
+Jehovah God is our Sovereign Lord, the One owning us, and is our Master, whom we must and will obey. Even amid persecution we say, out of our own personal choice: 'Thou art my Lord.' Christ Jesus and his followers are not ashamed to have Jehovah's name called upon them. Jesus always confessed: 'I am come in my Father's name.' He refused to be entitled 'good', saying: 'There is none good but one, that is, God.' He and his disciples acknowledge that they have no good, no goodness, no well-being, except in Jehovah alone. There is nothing that we can contribute to God; but it is a great privilege for us to be given the opportunity to share in the vindication of his name. To whom else, then, can we fly for refuge and well-being save to Jehovah God, the inexhaustible Source of every good and perfect thing? _W 7/1_
+
+# September 5
+
+_By your new attitude of mind be transformed so that you can find out what God's will is.—Rom. 12:2, Am. Tr._
+
+By the renewing of the mind we come to a discernment and appreciation of what the reasonable service is that God requires of his devoted servants. Solely by letting go the traditions and philosophies of religion's leaders and by searching into God's Word and then following its instructions and enlightenment do we ascertain and prove the divine will. Jehovah God, by Christ Jesus at the temple, interprets to his consecrated servants the sacred Scriptures and discloses to their mind and understanding the good, acceptable and perfect things which God has willed for them to do, and especially now at the end of the world. Those who neglect study and instruction as to God's Word leave their minds open to be filled with the propaganda, religious ideas, and things of this world. What follows is a warping of their mind and its disposition, intents and affections. Such is not God's will. _W 5/15_
+
+---
+
+<sup>**Page 358**</sup>
+
+[Open Page 358 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=358)
+
+## September 6
+
+Hezekiah . . . removed the high places, and brake the images, and cut down the groves, and brake in pieces the brasen serpent that Moses had made.—2 Ki. 18: 1, 4.
+
+"Jehovah has strengthened" is the meaning of the name "Hezekiah" or "Hizkijahu". The one king who bore that name was a whole-hearted worshiper of the true and living God, whose name is "Jehovah". The only true God is against all religion; and the king's name Hezekiah proved to be prophetic of him in his kingly deeds, for Jehovah strengthened Hezekiah to clear out religion from the kingdom of Judah. In all the kingdom there was not a more courageous and aggressive foe against religion, which religion is the curse of any kingdom or government. Let all religionists object now to this declaration, just as their forefathers did twenty-six centuries ago; but the facts of the reign of Hezekiah, king of Judah, prove the truth of this. A people or nation benefits by getting rid of the accursed thing, religion. W 3/1
+
+## September 7
+
+Then they cried with a loud voice in the Jews' speech unto the people of Jerusalem that were on the wall, to affright them, and to trouble them; that they might take the city.—2 Chron. 32: 18.
+
+Jehovah's witnesses turn to His prophetic Word, including Isaiah's prophecy, just as Hezekiah turned to the prophet Isaiah with this request: "It may be Jehovah thy God will hear all the words of Rabshakeh, whom the king of Assyria his master hath sent to defy the living God, and will rebuke the words which Jehovah thy God hath heard: wherefore lift up thy prayer for the remnant that is left." (2 Ki. 19: 1-6, A.S.V.) In reply they get from Jehovah's Greater Prophet, Christ Jesus, the strengthening message of God's Word. It tells them not to fear the threats and propaganda of Satan's hosts blaspheming Jehovah God, because in due time Almighty God will beat off Satan's hosts and destroy even Satan himself. W 4/1
+
+---
+
+<sup>**Page 359**</sup>
+
+[Open Page 359 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=359)
+
+# September 8
+
+_For Christ is the end of the law for righteousness to every one that believeth.—Rom. 10:4._
+
+The end purposed by Jehovah, or the objective aimed at, in giving the Jews the law covenant was not to fix attention upon themselves as able to justify themselves by works of law, but was to point them to the Christ and lead them to him. The law was to safeguard them against the religious sins of the heathen round about them. It was also meant to show that they were sinners and in need of the sacrifice of a Righteous One who could really remove sin and give them a righteous rating with Jehovah. The animal sacrifices of the law covenant merely foreshadowed and pointed forward to the coming sacrifice of the Redeemer Christ Jesus. Hence the end to which the law covenant was guiding those who were bound by that covenant was their identifying and accepting of Christ Jesus. Paul so states, at Galatians 3:23-26. W 6/15
+
+# September 9
+
+_Yet who among them could foretell this, could announce it to us beforehand? Let them bring their witnesses to prove them in the right, to hear their plea, and say, 'It is true.'—Isa. 43:9, Am. Tr._
+
+Now Jehovah shows the honorable purpose for which he made or commissioned the people whom he created and formed. He has made them to fit in this present conspicuous place in the great controversy over the issue, Who is God and hence the Universal Sovereign? It stands to reason that the one who is God is he who can deliver, delivering his people contrary to all human predictions and expectations, and in the face of opposition. Is there such a God? As this question is repeated, the witnesses for this world stutter, and stammer, and fail to produce any convincing proof to cause others to shout out, 'It is truth!' Then Jehovah God turns to the remnant who worship and serve him, and he cries out to them by his Word: 'Ye are my witnesses.'—Isa. 43:10. W 6/1
+
+---
+
+<sup>**Page 360**</sup>
+
+[Open Page 360 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=360)
+
+# September 10
+
+_I am crucified with Christ.—Gal. 2:20._
+
+Paul no longer claimed to be alive to the old Mosaic law. Christ Jesus having abolished that law covenant by his cursed death on the tree, Paul died to that law in Christ or by reason of Christ's death. He did not choose to die as a covenant-breaker, like those Jews who refused Christ and tried to stay living under the law. Hence he said: 'I am crucified with Christ.' Henceforth Paul was living, but not as a Jew under the old law. He was now living as a Christian, as a follower of Christ, as one who recognized that Christ is 'the way, and the truth, and the life'. Accordingly Paul said: 'I live; yet not I \[as a Jew, trying to justify myself to life by works of the law], but Christ liveth in me: and the life which I now live in the flesh \[as a Christian] I live by the faith of the Son of God, who loved me, and gave himself for me.' _W 7/15_
+
+# September 11
+
+_As sin reigned in death, even so might grace reign through righteousness unto eternal life through Jesus Christ our Lord.—Rom. 5:21, A.S.V._
+
+For a long time sin has reigned by stinging all of Adam's descendants to death. (1 Cor. 15:56) At the right time God stepped in and showed his grace through Christ, to provide justification through him. Justification is by righteousness through Christ. Righteousness is the opposite of sin and is the antidote for it. Christ's righteousness cancels and does away with sin inherited from Adam. Such righteousness is unto eternal life. Since Christ's death and resurrection God's grace and mercy have reigned over those who receive justification by the righteousness which is through Christ Jesus. And such reign of divine grace and mercy by the righteousness which he bestows through Christ Jesus our Lord is unto eternal life of the justified ones who continue faithful in their integrity to God the Justifier. _W 8/15_
+
+---
+
+<sup>**Page 361**</sup>
+
+[Open Page 361 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=361)
+
+## September 12
+
+It shall be imputed, if we believe on him that raised up Jesus our Lord from the dead; who was delivered for our offences, and was raised again for our justification.—Rom. 4:24, 25.
+
+Why, if it now has “justification of life”, does not the church of God on earth have actual perfection in the flesh, as Adam had it? The matter of imputation or crediting explains it. Actual righteousness or perfection in the flesh is not literally given to them. But it is imputed, reckoned, accounted or credited to them. By reason of this righteousness which is credited to their account they have justification with God. Prior thereto, due to their birth in sin, they were under condemnation before God. Sin and imperfection were charged to their account. But now his mercy made a righteous way whereby this bad account, this debit, could be canceled, and they could have a clean bill and something to their credit. W 8/1
+
+## September 13
+
+Ye that kindle a fire, that compass yourselves about with sparks: walk in the light of your fire, and in the sparks that ye have kindled. This shall ye have of mine hand; ye shall lie down in sorrow.—Isa. 50:11.
+
+The “goats” turn for light to others than Jehovah. They build the fires of hatred and persecution against Jehovah’s witnesses and shoot out fiery darts against them, darts which only a shield of faith in Him can stop cold. They build the great beaconfire of a world organization for peace and security to act as the guiding light of this world. Forth from this burning leap many firebrands and sparks, namely, leaders, who sparkle and brighten up the eyes of the bedarkened people and capture their imagination. The people walk on in the blaze of man-made fires and follow worldly-wise lights that leap forth. But let all such know that this spells their doom from God’s hand. They shall lie down in a sorrowful death at the battle of Armageddon; for then this world shall end. W 9/1
+
+---
+
+<sup>**Page 362**</sup>
+
+[Open Page 362 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=362)
+
+## September 14
+
+For the generosity of your contributions to themselves and to all; they are drawn to you and pray for you.
+—2 Cor. 9:13, 14, Moffatt.
+
+When one section of God's consecrated people contribute to the needs of another group of them, think of the unifying effect it has! How much kindlier and with how much less prejudice the Jewish brethren long ago at Jerusalem could feel toward the contributing Gentiles! They sensed more deeply that God had indeed welded the Jewish and the Gentile members into one body in Christ, despite nationalities. The Jewish receivers discerned more clearly that the Gentile contributors were truly living up to their professions of being subject to the teachings of Christ's gospel. The prayers the receivers offered to God bound them more closely to the contributors. (Rom. 15:30, 31) Such is the good effect when loving Christians exercise charity in the emergency of fellow Christians. W 12/1
+
+## September 15
+
+So the service of the house of the Lord was set in order. And Hezekiah rejoiced, and all the people, that God had prepared the people.—2 Chron. 29:35, 36.
+
+Owing to the Kingdom proclamation by Jehovah's obedient remnant of witnesses from and after 1919, many persons outside the remnant saw the reconstruction work of Jehovah's worship in progress. They showed good-will toward Him and His organized people by abandoning religion and coming over onto the side of his Theocratic organization, his Kingdom. Christ Jesus, the Good Shepherd, brought these as his "other sheep" to the temple, where there are many opportunities for service as companions and helpers to the temple remnant. They joyfully join in. How gratifying all this has been is visible today among Jehovah's anointed remnant at the temple, yes, and among their multitudinous companions of good-will. They have overwhelming gratitude and joy at the revival of the faithful worship of Jehovah. W 3/1
+
+---
+
+<sup>**Page 363**</sup>
+
+[Open Page 363 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=363)
+
+# September 16
+
+_Become dead to the law by the body of Christ; that ye should be married to another.—Rom. 7:4._
+
+The Mosaic law covenant condemned the Jews and hence was against us by exposing all men to be sinners. But those who acted on God's provision through Christ for canceling sins died to such law covenant. Thus dying to it, such believers were justified from the things which the law covenant condemned and were free to be married or joined to Christ as members of his congregation; not to a dead Christ, of course, but to a resurrected, living Christ. So they live by union with him and bring forth the fruits of righteousness. The law by its _Thou shalt not's_ against committing sin had excited the body's passions for sin, which sin works death. But now that the law covenant was dead and abolished, all believers in Christ are delivered from it and serve God, not according to that covenant but according to the new spirit God gives them. _W 11/1_
+
+# September 17
+
+_The anointing which ye have received.—1 John 2:27._
+
+Each and all of Christ's body members together can say, 'The spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me to preach.' For such reason they all together make up a ministerial association. Theirs is a society of ministers; for which cause every one of Jehovah's witnesses is a minister of the gospel of the Kingdom. He has anointed each one of them with his spirit and has thus commissioned each one to preach as a witness to Jehovah and his Theocratic Government. This fact, therefore, does not allow for them to be divided or distinguished from one another, some few as being a 'clergy' and the rest, the majority, as being the 'laity' to whom the 'clergy' ones are ordained to preach. To the contrary, there is no so-called 'clergy' among them, nor is any of them authorized to act as 'lording it over the clergy'; but all of them are God's heritage (Greek: _kléros_).—1 Pet. 5:3, _Douay Version. W 1/1_
+
+---
+
+<sup>**Page 364**</sup>
+
+[Open Page 364 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=364)
+
+## September 18
+
+Whoso loveth instruction loveth knowledge: but he that hateth reproof is brutish \[stupid].—Prov. 12:1.
+
+Not all the instruction that Jehovah God gives is at first pleasant to take. If, however, it is meekly received and acted upon, it brings grateful results. This is because some of God's instruction comes in the form of reproofs and corrections, and wisely so. Such reproofs and corrections are very timely and necessary to keep His servants at doing the right thing and walking in the safe way amid this misguided world. In modern days Jehovah's witnesses have made mistakes in view of their own imperfections and their being surrounded by a religious world. By the reproofs of his Word God has mercifully enlightened them and brought them to their senses. The "evil servant" class has taken offense at such reproofs and corrective measures; but the meek and prudent servants of God have submitted to them gratefully and have learned thereby. W 9/15
+
+## September 19
+
+For your shame ye shall have double; and for confusion they shall rejoice in their portion: therefore in their land they shall possess the double: everlasting joy shall be unto them.—Isa. 61:7.
+
+The restored faithful remnant can testify that the present privileges make up more than double for all the shame, contempt and confusion which they were obliged to suffer down till 1919. They endeavor to show full appreciation of the glorious treasure of divine service which has been conferred upon them. Their joy, now begun, is beyond the enemy's power to beat down. It is because their joy is in the vindication of Jehovah's name and of his universal sovereignty, and they know the Kingdom will bring this vindication at Armageddon. They may have a personal part in that vindication by being faithful witnesses and holding fast their integrity toward him. It comforts them to know their organization is Theocratic and Jehovah, not man, directs their work. W 1/15
+
+---
+
+<sup>**Page 365**</sup>
+
+[Open Page 365 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=365)
+
+# September 20
+
+_A fire goeth before him, and burneth up his enemies round about.—Ps. 97:3._
+
+This proves that Jehovah begins reigning while his enemies in heaven and earth are still alive and disputing actively His universal domination. Conscious of his own inalienable right, he set up his Theocratic Government and put his capital organization Zion in power under Christ while Satan and all his demons are still active up in the heavens. He turned the fire of his wrath against them and forced them down from their heavenly position to our earth. He is jealous for his universal sovereignty. At the battle of Armageddon he will settle the issue and vindicate his right to universal sovereignty by wiping out all his united organized enemies, visible and invisible, as completely as if by destruction in fire. Over their ashes his righteous new world will enter. _W 10/15_
+
+# September 21
+
+_Let us wait . . . he that exhorteth, on exhortation: he that giveth, let him do it with simplicity; he that ruleth, with diligence; he that sheweth mercy, with cheerfulness.—Rom. 12:7,8._
+
+As God grants them the needed opportunity they exhort one another and exhort the newly interested ones as to the day in which we live and its wonderful Christian opportunities and responsibilities, and also its dangers. With the simplicity of unselfishness and of genuineness they give out the Lord's gracious invitation to the waters of life, using both their vocal powers and also distributing the message on printed page or recordings. Those appointed to preside or to take the lead at meetings or in field activity do so with devotion and zeal, seeking earnestly to measure up to their God-given responsibilities. All these, realizing they have received and continue to receive of God's tender mercies, extend mercy cheerfully to others by making known to all alike the way of escape from the Armageddon of God's wrath. _W 5/15_
+
+---
+
+<sup>**Page 366**</sup>
+
+[Open Page 366 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=366)
+
+# September 22
+
+_They arose and took away the altars that were in Jerusalem, and all the altars for incense took they away, and cast them into the brook Kidron. Then they killed the passover.—2 Chron. 30: 14, 15._
+
+As in Hezekiah's day, so after Christ's coming to the temple in 1918. Those who answered his invitation and who undertook the worship of Jehovah as members of his remnant needed to purify themselves from the uncleanness of religion. Pure worship before God and the Father, and pure faith in the Lamb of God, Christ Jesus, required that they be cleansed from religion's soils and its unscriptural forms of worship. This was not the work of a day; nor has it been the work of a few years. Religion has been a snare and a close-besetting sin; and, as in Hezekiah's day, some have been more prompt to cleanse themselves than others, and to be washed with the purifying waters of truth. But a remnant has endured the purification process and come through clean for God's service. _W 3/15_
+
+# September 23
+
+_For if God spared not the natural branches, take heed lest he also spare not thee.—Rom. 11: 21._
+
+It was because of no worthiness on the creature's part, but entirely because of God's goodness and loving-kindness that the high calling to the Kingdom was opened to the Gentiles at all. This, too, was at the expense of the Jews who fell through unbelief and disobedience toward the Kingdom gospel preached by Christ Jesus. It behooves those in the Theocratic 'olive tree' to examine why God's severity came upon such Jews as to lop them off. Let them strive earnestly to measure up to Theocratic requirements in order that the same divine severity be not called for against them. Only so doing will they continue in this unspeakable goodness of God. They must endure in integrity unto the end. God will not deal differently with Gentiles who do not keep integrity and fruitfulness in the tree from the way he did with unbelieving Jews. _W 5/1_
+
+---
+
+<sup>**Page 367**</sup>
+
+[Open Page 367 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=367)
+
+# September 24
+
+_Whosoever shall call on the name of Jehovah shall be delivered.—Joel 2:32, A.S.V._
+
+Calling on Jehovah's name is not done merely in prayer. Calling on his name manifestly means bearing testimony to his name and to the universal domination for which his name stands. It means being a witness for Jehovah and faithfully fulfilling that position of service until He vindicates his name at the battle of Armageddon and thus brings the great period of witnessing to a close. Let those 'other sheep' that are already gathered in follow the lead of their Good Shepherd and fulfill their commission from him to preach, in order for other meek ones to hear, that such may believe on Jehovah God and call on his name, openly confessing him before Armageddon. What if the majority of 'Christendom', and particularly the official ruling element thereof, do not hear and obey? That is nothing unforeseen or unpredicted. _W 6/15_
+
+# September 25
+
+_Now therefore, O Lord our God, I beseech thee, save thou us out of \[Sennacherib's] hand, that all the kingdoms of the earth may know that thou art the Lord God, even thou only.—2 Ki. 19:19._
+
+Jehovah's witnesses need none of Satan's messengers to remind them that they should not expect deliverance from 'the king of the south' by any revival of democratic principles. God's witnesses know that the hope of all the peoples lies not in human political systems, but in Jehovah God. Under the terrific threatening pressure to which the modern Sennacherib and his visible hosts will yet subject them they will follow Hezekiah's course. They will spread the matter before Jehovah at his temple and appeal to Him to save them. Why? 'That all the kingdoms of the earth may know that thou Jehovah art God alone.' (_Am. Stan. Ver._) That means, in order that Jehovah's universal sovereignty may be vindicated before all creation. _W 4/1_
+
+---
+
+<sup>**Page 368**</sup>
+
+[Open Page 368 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=368)
+
+## September 26
+
+_I am one that bear witness.—John 8:18._
+
+Although dying apparently forsaken of God, Jesus' witness concerning Jehovah his Father was true, for on the third day after his death Jehovah raised the King of spiritual Israel from the dead, delivering him from hell or the grave. It was thus proved that Jehovah is God and that Satan is a mimic god. Resurrecting Jesus was Jehovah's mightiest act of deliverance; and for Jesus' courageous and unswerving testimony in behalf of Jehovah the Scriptures call Jesus 'the Amen, the faithful and true witness'. (Rev. 3:14) He is the One whom Jehovah has made the Head and Chief over his remnant of witnesses today at the height of the controversy over the paramount issue. Jesus gives command to the remnant in this day, saying: 'This gospel of the kingdom shall be preached in all the world for a witness unto all nations.' The remnant accept the responsibility. _W 6/1_
+
+## September 27
+
+_The conclusion of the matter, all having been heard: Fear God and keep his commands; for this concerns all mankind, that God brings every work into judgment with regard to everything concealed, whether it be good or evil.—Eccl. 12:13, 14, Am. Tr.; Roth._
+
+The judgment test is now most searching. It reveals what is in men's hearts by drawing it forth into actions by them. Youths as well as old men should fear God, who has promised the New World and who is about to create it. If now they fear him, they will remember him and will remember to do what he now commands in his Word. Keeping his commandments means loving Him with all the heart, mind, soul and strength. The God-fearing ones will fear lest they displease him by harboring in secret anything contrary to his will, knowing that he will bring into judgment everything secret. In the secret place of our heart and mind let us remember that He who creates the New World destroys the present old world. _W 11/15_
+
+---
+
+<sup>**Page 369**</sup>
+
+[Open Page 369 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=369)
+
+# September 28
+
+_They had only been immersed into the name of the Lord Jesus.—Acts 8:16, Diaglott._
+
+The one to be baptized cannot come to Jehovah on the basis of his own worthiness or righteousness. We must be baptized, therefore, into the name of the Son of God, namely, Jesus Christ. Baptism “into the name of the Son” means that we have to recognize the fact that the Lord Jesus Christ is Jehovah’s Great Servant; that he is the One associated with Jehovah in The Theocracy; and that he is the Commander and Leader whom Jehovah has given for his consecrated people to follow. (Isa. 55:4) He is likewise our Redeemer, and no man can come to the Father except through him. He is Jehovah’s Anointed King, clothed with royal authority in the kingdom of heaven. To be baptized into his name means we are baptized in recognition of these facts and hence when we consecrated to God we did it through the worthiness of his Son Jesus and also in his name and good offices. _W 2/1_
+
+# September 29
+
+_His name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father.—Isa. 9:6._
+
+True, at the time of Adam’s offense his offspring were unborn and had no say about becoming children of an imperfect, sinful father under God’s condemnation. However, those who get justification of life through Christ’s “righteous act” or “justice” (Rom. 5:18) are not unborn, but have had or do have conscious existence upon this earth. There is no scripture to show that all of Adam’s condemned offspring will willingly become the children of Christ Jesus, accepting life through him, “the Everlasting Father.” He will not, by an indiscriminate justification of life, make all human creatures, be they dead or alive, wicked or righteously disposed, his children. Those who get and benefit by God’s free gift of “justification of life” he will let and does let have a say. Nobody will be forced into it by any one-sided act by God. _W 8/15_
+
+---
+
+<sup>**Page 370**</sup>
+
+[Open Page 370 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=370)
+
+# September 30
+
+_If the ministration of death, written, and engraven on stones, came with glory, so that the children of Israel could not look stedfastly upon the face of Moses . . . : how shall not rather the ministration of the spirit be with glory?—2 Cor. 3:7, 8, A.S.V._
+
+Mind you, it was the Ten Commandments that were written in letters engraved on two stone tablets; and the glory in Moses' face when delivering those commandments was temporary and duly passed away. The new covenant has the eternal glory of the immortal Christ Jesus and it does not include the Ten Commandments in letters cut in stone. Instead of having ten such commandments and other laws to command and to forbid Christians what to do, the new covenant is the ministration of the spirit of God. This active force of God rests upon his consecrated, Christlike ones and moves them in the doing of the will of Jehovah God. _W 2/15_
+
+# October 1
+
+_O sing unto the Lord a new song.—Ps. 96:1._
+
+To selfish men the winning of the global war and setting up of a global organization for international co-operation may seem of outstanding importance. But the fact that the Creator has taken his sovereign power and now reigns with respect to our earth is of far surpassing importance. He has set up his Kingdom, and the earth has come under it. This fact is greater in interest than a new experiment by men in the art of international collaboration for self-preservation. God-rule is more important than man-rule. Man-rule occasions only sorrow, disappointment and oppression to mankind. God-rule will bring joy, freedom from all bondage, and the desires of the righteous human heart, and will wipe away tears from every eye. It is the establishment of the everlasting kingdom of Jehovah God toward our earth that calls for the singing of the new song. Therefore it is since A.D. 1914 that the new song can be sung and must be sung. _W 10/1_
+
+---
+
+<sup>**Page 371**</sup>
+
+[Open Page 371 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=371)
+
+# October 2
+
+_Thou sayest that I am a king. To this end was I born, and for this cause came I into the world, that I should bear witness unto the truth.—John 18:37._
+
+Confessing that he came to be a witness of Jehovah, Jesus thus spoke to Pontius Pilate. At his coming, then, he came not to reign as a king in the flesh on earth, either at Jerusalem or at Rome or Vatican City, but came to preach and bear witness to the truth of the kingdom of God. He came to prove that he could not be swerved from the truth and over to religion, and that all that Satan the Devil and his demons might do to Jesus in the flesh could not make him break his whole-souled allegiance and obedience to the universal sovereignty of Jehovah. He came to vindicate God's word and name and to prove Satan a liar and false god, by holding fast his integrity faultless toward God's kingdom. This meant that Christ Jesus must be true to God's anointing upon him. _W 1/1_
+
+# October 3
+
+_The saints that are in the earth, they are the excellent in whom is all my delight.—Ps. 16:3, A.S.V._
+
+Today, the King Christ Jesus at the temple judges the professed people of God and finds pleasure only in the faithful remnant of his 'body' members and their companions of good-will. All these seek to render holiness to Jehovah God by fulfilling their consecrations to him. Now, in expression of his delight in them, Jesus bestows upon them the privilege of possessing the gospel of the Kingdom and proclaiming it to the ends of the earth. And he surrounds them with the protection of his holy angels. He withholds no good thing from them, but the glorious light of the glory of God which he receives from on high he reflects upon them that they may arise and shine for the enlightenment of the bedarkened people. The real worshiper of God finds no pleasure in the religionists of this world, but in those consecrated to God and who are excellent in praising Him. _W 7/1_
+
+---
+
+<sup>**Page 372**</sup>
+
+[Open Page 372 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=372)
+
+# October 4
+
+_He hath sent me to bind up the brokenhearted, to proclaim liberty to the captives.—Isa. 61:1._
+
+The remnant of Jehovah's witnesses has been comforted and delivered and helped back into God's service of praise. They must perform a like ministry in behalf of others. They must reach other mourners in Zion, held captive, bound, and imprisoned within the power of Satan's organization Babylon. The terms of their commission from God lays this service upon them. So the remnant, being members of the body of Christ, took up the words of Isaiah 61:1-3, which Jesus had used, and they repeated them as applying to themselves too. They published to men this ordination from Jehovah God by his spirit to be his ministers and preachers of the Kingdom gospel. Hence they set themselves in motion to fulfill the terms of their high commission from God, determined to brook no interference from human rulers. _W 1/15_
+
+# October 5
+
+_He is near that justifieth me; who will contend with me? let us stand together: who is mine adversary? let him come near to me. Behold, the Lord God will help me; who is he that shall condemn me?—Isa. 50:8,9._
+
+The religious frauds and their worldly friends condemn Jehovah's servants with all the means at their disposal. But the servants are concerned only with what Jehovah thinks of them. Conscious that He is at their side as their heavenly Vindicator, they challenge the combined opposition. Having their Vindicator with them to back them up, they are willing for the controversy over universal sovereignty to go on, with themselves on Jehovah's side, regardless of whether the whole world is on the opposite side contending as mighty, violent adversaries against them. Jehovah, who is with us, is mightier than all that can be against us. Not gorgeous, religious toggery, but serving and witnessing for the God of truth and right determines our being on the right side. _W 9/1_
+
+---
+
+<sup>**Page 373**</sup>
+
+[Open Page 373 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=373)
+
+# October 6
+
+_Sing unto the Lord; for he hath done excellent things: this \[make] known in all the earth.—Isa. 12:5._
+
+It is clear from this prophecy that those rendering God's reasonable service must be witnesses of Jehovah in all the earth. And now, at this time of restoration of them to his favor and of the reconstruction of his worship in the earth, the privilege of being one of Jehovah's witnesses is especially enriched. Why? Because Jehovah took to himself his great power in 1914 and began to reign, despite the anger of the nations who became embroiled in World War I. That meant that he began to reign as Universal Sovereign. The time had come for him to vindicate his own universal domination by bringing the Gentile times of domination on earth to a close and beginning to exercise his power toward this earth. In expression of his universal domination he put his Son upon the throne alongside Him. He conferred authority as co-regent on him. _W 5/15_
+
+# October 7
+
+_They were baptized in the name of the Lord Jesus._
+
+Christ Jesus left us an example that we should follow his steps. (1 Pet. 2:21) And as to following in his footsteps, Jesus said: 'If any man will come after me, let him deny himself, and take up his stake daily, and follow me.' (Luke 9:23) That denial of self to follow Christ Jesus and bear the burden of his reproaches even to the death must certainly mean consecration to God according to the likeness of Jesus' consecration. He began his consecrated course at thirty years of age by being immersed in water, and true believers and followers of Him follow him also in respect of his example as to the matter of water baptism. His baptism was not for the remission of sins but was to symbolize his devotion to God and his absolute consecration to do God's will. Likewise the water baptism of all who tread in his footsteps represents their consecration to do God's will. _W 2/1_
+
+---
+
+<sup>**Page 374**</sup>
+
+[Open Page 374 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=374)
+
+# October 8
+
+_I will bless them that bless thee, and curse him that curseth thee: and in thee shall all families of the earth be blessed.—Gen. 12:3._
+
+After the fullness of the 144,000 members of Christ's body are brought into the royal family, further blessings must go to those of good-will who will become the earthly subjects of the Kingdom of Abraham's Seed. A warning should be sounded to human creatures who want to enjoy such blessings under the Kingdom. God's covenant with Abraham puts all on notice that those who bless the Greater Abraham, Jehovah, will be blessed; and those who curse Jehovah will be cursed, that is to say, be destroyed. This is because in Jehovah lies the original Source of all blessings for earth's families. The treatment which persons of all families of the earth give to Jehovah's witnesses, therefore, determines whether they bless or curse Jehovah and whether their destiny shall be a blessing or a curse. _W 5/1_
+
+# October 9
+
+_The beasts of the field shall honor me, the jackals and the ostriches; because I give waters in the wilderness, and rivers in the desert, to give drink to my people, my chosen.—Isa. 43:20, A.S.V._
+
+Deliverance by God's spirit, truth and worship has made Jehovah's witnesses the only free people on the earth. They must yet travel in the wilderness of this world before reaching the righteous new world, and they would faint and die of thirst were it not for Jehovah's demonstrating to them that he is God. For their refreshment and reviving he has caused a river of pure water of Kingdom truth to flow forth from the throne of God. Happily, the way in which Jehovah leads them runs along with this continually deepening river of life-sustaining waters. Whosoever will, be they like the dragons and owls, or the jackals and ostriches, of the wilderness, may come and drink thereat and then give honor to the great Fountain of life-giving waters, Jehovah God.—Rev. 22:17. _W 6/1_
+
+---
+
+<sup>**Page 375**</sup>
+
+[Open Page 375 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=375)
+
+# October 10
+
+_Christ is not entered into the holy places made with hands, . . . but into heaven itself, now to appear in the presence of God for us.—Heb. 9:24._
+
+Hence Jehovah God credits to the members of the church of God what Adam had, or the equivalent of what he had, in the garden of Eden before his sin, to wit, righteousness and human perfection, with human life-rights in Paradise, including human sonship of God. Of the perfect Adam it is written: 'Adam, which was the son of God.' (Luke 3:38) Do you ask, How can God justly extend such credit to the church, and why does he? It is because he raised Jesus from the dead; and Jesus ascended to heaven and appeared in God's presence. Having laid down his perfect human life and its privileges in death and then being resurrected as a spirit person, he could present the value of his human sacrifice in God's holy presence to be used there to the account of God's debtors. _W 8/1_
+
+# October 11
+
+_How beautiful upon the mountains are the feet of him that bringeth good tidings, . . . sing together, ye waste places of Jerusalem.—Isa. 52:7, 9._
+
+At Christ's coming to the temple A.D. 1918 his first reconstructive activities were toward the faithful remnant of his body members on earth. These he raised up to activity in Jehovah's practical worship and service, pouring out upon them the reviving, invigorating spirit or active force from God to energize them in God's service. However, the reconstructive work as regards Jehovah's worship on earth must be widened out beyond the remnant. It must be extended to whosoever will choose to call on Jehovah's name in pure worship and service, that is to say, to others besides the remnant of spiritual Israel, namely, to the 'stranger' class of good-will. But how were these to hear, and believe, and call, unless preachers were sent to them? Wherefore the prophecy foretold the sending of preachers of good things to them. _W 6/15_
+
+---
+
+<sup>**Page 376**</sup>
+
+[Open Page 376 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=376)
+
+# October 12
+
+_From a child thou hast known the holy scriptures, which are able to make thee wise.—2 Tim. 3:15._
+
+None of the sixty-six books of the Bible was written in children's language, like milk for babes. None of the books of the Bible was written according to the intelligence level of those who are babes or children in knowledge. It was written for those who are of mature age, both physically and mentally. The 'man of God' cannot be made 'perfect, thoroughly furnished unto all good works', out of a child's book. The wisdom of God in this regard lies in this fact: It puts upon those who are advanced and mature in knowledge to take the direct Word of God and explain its difficult things to those younger in intelligence and understanding, whether children and youths or those newly coming to the knowledge of the truth. This proves to be the finest mental and spiritual practice for all consecrated servants of God. _W 11/15_
+
+# October 13
+
+_Hear the words of Sennacherib, which hath sent \[messengers] to reproach the living God.—2 Ki. 19:16._
+
+The final challenge of Satan the Devil is against the universal sovereignty of Jehovah, and especially Jehovah's rule by Christ Jesus in his capital organization pictured by Jerusalem. Satan the Devil is sure to deliver this challenge by the message, decrees and arrangements of the after-war 'abomination of desolation'. (Matt. 24:15) This desolating abomination is the Devil's scheme for making unnecessary Jehovah's rule of the earth. It is set up to provide a man-made substitute for Jehovah's kingdom in the form of a revived League of Nations, the postwar association of nations for peace, security and global rule. Such an organization for international collaboration, blessed by the religious clergy, will be at war with Zion, Jehovah's capital organization, because it presumes to take the 'holy place' that God's kingdom must occupy over earth.—Mark 13:14. _W 4/1_
+
+---
+
+<sup>**Page 377**</sup>
+
+[Open Page 377 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=377)
+
+# October 14
+
+_They themselves also, with supplication on your behalf, long after you by reason of the exceeding grace of God in you. Thanks be to God for his unspeakable gift.—2 Cor. 9:14, 15, A.S.V._
+
+Paul was so moved by their generosity to the needy Jewish Christians at Jerusalem that he thus unselfishly cried out. Therefore, the “inexpressible free gift” (_Diaglott_) for which Paul warmheartedly gave thanks to God is not Christ Jesus. The free gift is that “exceeding grace” which God showed to those devoted Christians. This extraordinary and surpassing grace of God toward his consecrated people overflowed in their generosity toward the needy brethren at Jerusalem. Such grace or favor of God is so marvelous that it surpasses human power of description or expression. Necessarily such exceeding favor includes God’s Son by whom such favor comes to us. Such gift of his means the sum total of all his loving-kindness through Christ to his people. It abounds to their eternal salvation and to his vindication. _W 12/1_
+
+# October 15
+
+_Hezekiah spake comfortably unto all the Levites that taught the good knowledge of the Lord: and they did eat throughout the feast seven days.—2 Chron. 30:22._
+
+Our progress in the knowledge of Theocratic truth has been due to the King Christ Jesus. At the temple he has reflected the light from Jehovah upon the unfolding Bible. Thus he has interpreted it and made it understandable. And as his remnant have engaged in the world-wide Bible-education campaign, teaching the people of good-will the “good knowledge of the Lord”, the Greater Hezekiah or Christ Jesus has spoken comfortably or encouragingly to them. He has backed them up by pouring the spirit upon them. Hence this modern world has seen carried forward the greatest and most irresistible campaign of education concerning Jehovah’s name and kingdom that has ever marked this “Christian era”. And the end is not yet! _W 3/15_
+
+---
+
+<sup>**Page 378**</sup>
+
+[Open Page 378 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=378)
+
+# October 16
+
+_There is gold, and a multitude of rubies: but the lips of knowledge are a precious jewel.—Prov. 20:15._
+
+Those possessed of such lips of knowledge are as rare as a precious, much-sought-after jewel. Their lips are pure lips, graced with the pure message of God's glorious purpose by his kingdom. Those having such lips, which show forth God's praises, have Him as their Friend. They are rich, more so than if they gained all this world, because they have His friendship and the friendship of his King Christ Jesus. They have the knowledge of both the Father and the Son which gives life, and they are commissioned by the Father through his Son to impart such life-giving knowledge to the meek ones of the earth. For being enriched with this service they can give thanks, as Paul did, saying: 'I thank my God always on your behalf, . . . that in every thing ye are enriched by him, in all utterance, and in all knowledge.' W 9/15
+
+# October 17
+
+_Therefore will I give praise unto thee among the nations, and sing unto thy name.—Rom. 15:9, A.S.V., mar._
+
+From and after 1918 Jehovah God by his King Christ Jesus began to release his faithful servants from the fears of this religious-political world and give them greater freedom and boldness for his witness work in all the nations. On that account Christ Jesus could offer praise to God among the nations and sing to His name. Christ Jesus did this, not personally in flesh, but by the faithful remnant on earth. He sent forth this remnant to declare the Kingdom message with thanksgiving and honor to God's name. In this way Jesus' own prophecy of Matthew 24:14 underwent fulfillment after the Kingdom's establishment in 1914. The witnesses to the Kingdom are very grateful to God for its establishment in their day, and they sing for joy because that Kingdom will vindicate Jehovah's name at Armageddon. More and more nations are hearing their witness to this effect. W 12/15
+
+---
+
+<sup>**Page 379**</sup>
+
+[Open Page 379 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=379)
+
+# October 18
+
+_Jesus answered and said unto them, . . . The poor have the gospel preached to them.—Matt. 11:4, 5._
+
+Jesus went preaching, because he was sent. Jehovah, whose anointing was upon Jesus, was the One that sent him. (Isa. 61:1) Jehovah God did not assign Jesus to any local congregation, but anointed and commissioned him to preach to all the nation of Israel. The entire nation was his congregation, and particularly the meek ones or those feeling the oppressions of religion and desiring freedom to serve God aright. Everywhere throughout the land, and to all he met, he preached the Kingdom tidings. Besides in the temple and all available synagogues, Jesus preached in the private homes of the people. The meek, anywhere in all the nations, were his congregation, to whom he was anointed to preach. He went to the people as he was sent, and did not advertise and wait for them to come to him at any fixed location. He was no resident preacher, but was always on the move. _W 1/1_
+
+# October 19
+
+_Thou hast taken thy great power, and hast become king. And the nations were angered.—Rev. 11:17, 18, Roth._
+
+It is therefore no time to be silent about these facts. As regards Jehovah's witnesses, that is, the remnant of the heirs of the kingdom of heaven and all their earthly companions of good-will, for them to be silent about such all-important facts in fear of the angry nations of this world would mean to have lips unclean before God, his Kingdom-message being the only clean message. It would be obeying man rather than God, and would spell rebellion against the reigning Sovereign of the universe, Jehovah God. The course of obedience as concerns Jehovah's witnesses lies in no way but to sing out the 'new song' about Jehovah. This they are faithfully doing since 1919. How different the 'new song' in the mouths of Jehovah's witnesses is from the religious-political song of the clergy of 'Christendom'! _W 10/15_
+
+---
+
+<sup>**Page 380**</sup>
+
+[Open Page 380 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=380)
+
+# October 20
+
+_Oh sing unto Jehovah a new song: sing unto Jehovah, all the earth. Sing unto Jehovah, bless his name; show forth his salvation.—Ps. 96:1, 2, A.S.V._
+
+_Sing! Sing! Sing!_ cries the psalmist, making the command most emphatic by this threefold expression. Jehovah's anointed king, David, composed the psalm, and hence in this day the threefold command is issued by the great Son of David, Christ Jesus the King. The time that the command goes forth is the year 1914. Just as did David, so Christ Jesus on beginning his reign called for a song to his God Jehovah, but did not call for a song to his own praise. It was because Jehovah is responsible for the Kingdom, he is the Universal Ruler, and he has in fact become King, and Christ Jesus is his beloved consort in the Kingdom. Christ Jesus is his Anointed One whom he puts on the throne on Mount Zion, that is to say, on his capital organization of all the universe. _W 10/1_
+
+# October 21
+
+_So we, being many, are one body in Christ, and every one members one of another.—Rom. 12:5._
+
+We must unitedly do God's will, for it is the same for all his people, namely, to bear testimony to his name and universal domination. In this united work each consecrated one must do his part, each rendering the special assignment of service given to him. The inspired apostle uses the most perfect organization known to man, namely, the human body, to illustrate the working of the Theocratic organization under Christ the Head. The Theocratic organization is made up of the Head Christ Jesus and his body, the congregation. The earthly companions thereof, namely, his 'other sheep', are under that Theocratic organization. The human body with a sane, God-instructed mind, does not work against itself. Neither do its members work at cross-purposes, frustrating the action of one another. But all members, guided by the one mind of the head, work together to do the will of God. _W 5/15_
+
+---
+
+<sup>**Page 381**</sup>
+
+[Open Page 381 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=381)
+
+# October 22
+
+_His mercy endureth for ever.—Ps. 136:1._
+
+When Adam, under the temptation by Satan through Eve, sinned by breaking God's law, Satan introduced sin into the world by Adam. Thereby Adam lost his justification before God and was condemned and sentenced to death. Adam was no longer justified to life and hence none of his offspring could of themselves be justified. Was an injustice done to Adam's descendants because of that result to them? Certainly not on God's part, but on Adam's part. Adam was the one that wronged his own offspring. But as for God, it was a mercy that any of Adam's offspring were born at all. Even their imperfect existence on earth is a mercy from God, and not a right. God could have executed Adam and Eve at once after driving them out of the garden of Eden, and thus none of Adam's offspring would have come into existence. He has shown us imperfect creatures mercy, for his name's sake. _W 7/15_
+
+# October 23
+
+_I will greatly rejoice in the Lord, . . . he hath covered me with the robe of righteousness, as a bridegroom decketh himself with ornaments, and as a bride adorneth herself with her jewels.—Isa. 61:10._
+
+Jehovah God has openly come out in vindication of the remnant under Christ Jesus as his 'faithful servant' class. By building them up in the Theocratic organization; by committing to them the Kingdom truth; and by bestowing upon them the royal privilege of serving as his witnesses doing the right work, he has covered them with the 'robe of righteousness'. This identifies them as his righteous and approved servant-organization under Christ Jesus. Why should they not be joyful and rejoice, with the joy of a bridegroom and his bride on the wedding day? By continuing faithful under the 'robe of righteousness', the remnant, which is espoused as a chaste virgin to Christ, will prove worthy at death of being glorified with him as a part of his 'bride'. _W 1/15_
+
+---
+
+<sup>**Page 382**</sup>
+
+[Open Page 382 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=382)
+
+# October 24
+
+_When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee.—Isa. 43:2._
+
+For years since 1918, Jehovah's witnesses have been passing through the vast waters of hundreds of millions of people. Instead of being dissolved into a conformity with the peoples of this world, Jehovah's faithful servants have kept their Theocratic form and unity and have left a stupendous testimony to God's name and kingdom as they have been passing through. No onrush of waters can sweep away the world-wide witness they have given. Thereby many sincere persons have been halted from drifting down to destruction with the worldly peoples. They have been turned aside to safety and deliverance with the Theocratic organization. God has not forsaken his devoted people, but he will continue to be with them and will not let the waters of the world overwhelm them in destruction. _W 6/1_
+
+# October 25
+
+_They might obtain a better resurrection.—Heb. 11:35._
+
+The faithful ones of old are not able to get this resurrection before the church of God has been rewarded with 'some better thing', the heavenly resurrection to be with Christ Jesus in the temple. (Heb. 11:39,40) They underwent great provings of their faith at much privation and suffering in order that they might obtain a resurrection better than that to be obtained by the rest of mankind. When they awake from death's sleep to life on earth under the Kingdom, they will still have the faith and integrity with which they died. On seeing then the realization of the things to which they once looked forward according to God's promises and prophecies, they will at once vow and render allegiance to the reigning King Christ Jesus and will accept life at his hands. This will qualify them, so that the King will make them 'princes in all the earth'.—Ps. 45:16. _W 8/15_
+
+---
+
+<sup>**Page 383**</sup>
+
+[Open Page 383 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=383)
+
+## October 26
+
+_The heavens declare the glory of God; and the firmament showeth his handiwork.—Ps. 19:1, A.S.V._
+
+Now, as the Kingdom message goes forth by day and by night, how fitting the prophetic words of Psalm 19! The invisible “new heavens” are not heard, but the remnant on earth who are called to the “kingdom of heaven” are acting as its representatives. Happy is their portion to be declaring the glory of Jehovah God and letting the sound of his Kingdom gospel be heard to the ends of the habitable earth. Happy, too, is the lot of the remnant’s companions, the “other sheep”, in joining with the remnant in preaching the Theocratic gospel to all the nations and thus calling on the name of Jehovah for salvation. How beautiful are the feet of all these preachers who bear glad tidings of God’s good things through his Theocratic Government! To the meek ones of earth who seek salvation the coming of these faithful bringers of good tidings is most welcome. _W 6/15_
+
+## October 27
+
+_Jehovah hath become king—let the earth exult._
+
+_—Ps. 97:1, Roth. Pss._
+
+In the day of the royal psalmist who composed this song under inspiration the earth that exulted at having Jehovah reign over it by his anointed king at Jerusalem was the little land of Israel, the land of Jehovah’s typical Theocracy. All lands outside were Gentile lands under Satan, “the god of this world.” Accordingly in this day of Jehovah, which begins with his taking power as King, the earth that is called upon to rejoice and exult is the visible earthly organization of his consecrated people, particularly the remnant of those who are Israelites after the spirit, “the Israel of God.” These, who have chosen to be known as “Jehovah’s witnesses”, are rejoicing at Jehovah’s reign begun and are not ashamed to let their exultation be known by singing the new song to Him in the hearing of all the nations. _W 10/15_
+
+---
+
+<sup>**Page 384**</sup>
+
+[Open Page 384 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=384)
+
+# October 28
+
+_The great day of Jehovah is near.—Zeph. 1:14, A.S.V._
+
+Jehovah has stood for a lot of abuse, for about six thousand years. But he will not forever take it! The long-predicted day for vindicating himself and for vindicating his abused servant has broken over the world. His power and right to rule over all creatures that live in all the universe must no longer be left in dispute. His name and all the glory that it stands for must be cleared of every false charge and reproach that wagging tongues have plastered upon it. That means, too, that soon his servants on earth will no longer appear to this world to be foolishly and fanatically serving a deity who cannot help, protect and deliver them. For their unbroken integrity toward Jehovah under abuse he will exhibit them as the chosen ministers of the only true and living God. Shame shall then cover all those who follow false gods and bright-shining religious leaders. _W 9/1_
+
+# October 29
+
+_There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob: for this is my covenant unto them.—Rom. 11:26, 27._
+
+By the new covenant the believing Gentiles were grafted into the Theocratic 'olive tree' alongside the believing Jewish remnant. They are anointed with God's spirit as his witnesses and preachers and as joint-heirs with the King Christ Jesus. But when in 1918, which was amid World War I, Christ Jesus came to the temple for judgment, he found the Devil and his earthly agents trying to bring about the destruction of these consecrated followers spiritually and physically. By the judgments of divine truth and service, and by the spirit from God, Christ Jesus the Deliverer drove out the ungodliness of any traces of religion from among them. He freed them from the power of the religious political enemies. He cleansed them from doing the sins of religion, and turned them to the pure worship of God the Father. _W 5/1_
+
+---
+
+<sup>**Page 385**</sup>
+
+[Open Page 385 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=385)
+
+# October 30
+
+_Out of Jerusalem shall go forth a remnant, and they that escape out of mount Zion.—2 Ki. 19:31._
+
+Yes, at the battle of Armageddon Jehovah God will preserve his heavenly King and kingdom. In token of that fact he will carry his faithful remnant and the companions of good-will through the final universal war. In assurance of that, Isaiah was caused to say to Satan's hosts these words: 'Thus saith Jehovah concerning the king of Assyria, He shall not come unto this city, nor shoot an arrow there, neither shall he come before it with shield, nor cast up a mound against it. By the way that he came, by the same shall he return, and he shall not come unto this city, saith Jehovah. For I will defend this city to save it, for mine own sake, and for my servant David's \[my King's] sake.' (2 Ki. 19:32-34, _A.S.V._) This again reminds Jehovah's witnesses that the battle is not theirs, but is Jehovah's, at Armageddon. _W 4/1_
+
+# October 31
+
+_Anoint the most Holy.—Dan. 9:24._
+
+Only upon the faithful ones whom Jehovah God has anointed or commissioned to preach does his spirit rest. Hence only to such does Jehovah God by Christ Jesus commit the authentic, reliable good news or gospel of the Kingdom. The anointing with the spirit is unto the work of preaching. It is unto the ministry or service of Jehovah God. Since the anointing comes not only upon Jesus the Messiah-Prince but also upon the members of his body, the church, it anoints all the members of Christ's body to preach and to perform the ministry of God. This anointing is not merely upon certain ones of the body, such as the apostles or those who are appointed as overseers (_episkopos_) or as ministerial assistants (_diákonos_) within the church. The anointing is upon _all_ the body members; and therefore it makes the entire body and all its members together a preaching body, a ministerial body. _W 1/1_
+
+---
+
+<sup>**Page 386**</sup>
+
+[Open Page 386 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=386)
+
+# November 1
+
+_Say among the nations, Jehovah reigneth.—Ps. 96:10, A.S.V._
+
+Yes, the keynote of the new song is the paramount issue of Jehovah's universal sovereignty. It is the ringing truth that 'Jehovah hath become king!' (_Roth. Pss._) In 1914 he interrupted the rule of Satan as the 'god of this world'. He took to himself his great power as Lord God Almighty as he began reigning by means of his newly created capital organization Zion. This he did by enthroning Christ Jesus, the Chief Member of that capital organization, 'the Lord of lords and King of kings.' By this acting King Jehovah God reigns while his enemies are yet alive and are most active and highly organized. By having Satan and his demonic heavens cast down to the earth, Jehovah has made all enemies the footstool of his anointed King Christ Jesus. Therefore Jehovah's witnesses are commanded to announce to all nations Jehovah's reign begun. _W 10/1_
+
+# November 2
+
+_So the Lord God will cause righteousness and praise to spring forth before all the nations.—Isa. 61:11._
+
+As long as the remnant are in the flesh, the Kingdom witness must go on. And it will go on, by his decree, spreading to all nations. As it spreads the 'other sheep' of good-will have an increasing part in the Kingdom's announcement and the reconstruction work of Jehovah's worship. Just as surely as he makes what he sows in the earth spring forth in glorious verdure and beautiful flower, just so the same God Almighty will, before Armageddon, cause his righteousness, his vindication and his praise to spring forth before all nations. They are forced to see it, because of the reconstruction work done among them by his King and his remnant and his 'other sheep'. And his glorious victory at Armageddon will climax their righteous witness work, and will establish his righteousness and his praise for ever, universally. _W 1/15_
+
+---
+
+<sup>**Page 387**</sup>
+
+[Open Page 387 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=387)
+
+# November 3
+
+_All our fathers were under the cloud, and all passed through the sea; and were all baptized unto Moses in the cloud and in the sea.—1 Cor. 10:1,2._
+
+There is this fact to note in this connection. When those Israelites passed dryshod through the Red sea there was a “mixed multitude” of non-Israelites of good-will with them, and these attached themselves to Jehovah’s covenant people to worship and serve him with the Israelites. (Ex. 12:37,38) Their being reported thereafter as with the Israelites in the wilderness (Num. 11:4) shows that this mixed multitude of good-will also passed through the Red sea and were under the cloud and hence were baptized unto Moses as visible head of Jehovah’s typical organization on earth. There, then, in type is to be found an argument and basis for the water baptism of the present-day “men of good-will”, who were foreshadowed by that “mixed multitude”. _W 2/1_
+
+# November 4
+
+_In the seventh is the sabbath of rest.—Ex. 31:15._
+
+The typical Jewish sabbath was a foreshadowing of the Kingdom sabbath. Therefore Jesus performed many works of healing and of delivering believing persons from the bondage due to the Devil’s work. Thus he foreshadowed what wondrous works of deliverance and relief he will perform on the 1,000-year sabbath-day when he reigns as Lord, raising even the dead from their graves. God made or ordained that coming sabbath day for man, for man’s benefit, and not for his oppression. Hence the believing, obedient ones then on earth will enter into a rest from slaving toil and bondage of sin, the Devil, and totalitarian rule and religion. And since God commanded breakers of the sabbath day of the old law covenant to be killed, so those refusing to keep the Kingdom sabbath by faith and obedience and ceasing from their selfish works of sin and religion will surely be executed by the Lord of the sabbath and be destroyed eternally. _W 2/15_
+
+---
+
+<sup>**Page 388**</sup>
+
+[Open Page 388 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=388)
+
+# November 5
+
+_Be also in the likeness of his resurrection.—Rom. 6:5._
+
+Jehovah's remnant may be 'steadfast, immovable, always abounding in the work of the Lord', forasmuch as they know that by being resurrected from the grave the labor they rendered on earth in the Lord's name will not have been in vain. It will have reaped its reward to the vindication of his name, and will have been merely the beginning of an eternity of worship and service to God in conjunction with Christ Jesus. They will thenceforth enjoy an eternal life of ministry in God's very presence or face, and will enjoy heavenly delightfulness forevermore. As to the 'other sheep', these also may know that, when any of them die faithful before Armageddon clears out all the Lord's foes, their immovableness for Jehovah's worship will win his favor for them. It will be rewarded with a resurrection to life forevermore on earth in the delightful New World of righteousness. _W 7/1_
+
+# November 6
+
+_Hezekiah also stopped the upper watercourse of Gihon, and brought it \[by tunnel] straight down to the west side of the city of David \[Zion].—2 Chron. 32:30._
+
+Thus Hezekiah provided steadfast water supplies for his subjects during any length of siege by enemies. At the same time he barred the enemies from any access to it, to contaminate it or to seize it for their own advantage. Today the enemy's real objective is to wipe out Jehovah's witnesses and cut them off from the waters of truth flowing from the throne of the kingdom of God. This would prevent Jehovah's King and the bride from saying, 'Come!' It would also forestall the 'strangers' of good-will who heard the invitation from likewise saying, 'Come: and let him that is athirst say, Come; and whosoever will, let him take of the water of life freely.' Hence Christ Jesus the King made sure the supply of the water of Kingdom truth for his faithful remnant of spiritual Judeans and their companions of good-will. _W 4/1_
+
+---
+
+<sup>**Page 389**</sup>
+
+[Open Page 389 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=389)
+
+# November 7
+
+_Not to think of himself more highly than he ought to think; but to think soberly, according as God hath dealt to every man the measure of faith.—Rom. 12:3._
+
+No one who is of Christ's body, and no one who is a good-will associate of that body, will think unreasonably and above what he ought to think of himself. His estimate of himself will be sober, according to the facts, and according to the Word of God, which tells us honestly what we are. It takes faith to keep humble and not think we ought to get a promotion, or that we ought to be in this or that other job or position. God's Word is the basis for our faith; and it takes faith to do our part of the work within the body of Christ or in association with it. But having this faith, it will help us to view ourselves soberly in harmony with the facts, and to abide in the proper reasonable service where God has put us. A sober view will show us that, whatever be the place of service, it is a blessed favor from God. _W 5/15_
+
+# November 8
+
+_The righteousness which is of faith speaketh . . . But what saith it? The word is nigh thee, even in thy mouth, and in thy heart: that is, the word of faith, which we preach.—Rom. 10:6,8; Deut. 30:14._
+
+Yea, the word or message which calls for the exercise of faith now is being preached. This 'word of faith' is a gospel of glorious facts already accomplished, and it is at hand for our acceptance with the heart and for our confession by the mouth. It is a gospel word and command to be believed and obeyed by us now. In days of old the Jews stood before the prophet Moses to hear the word and command of God; but we today are before the antitypical Moses, Christ Jesus, the great Commander whom Jehovah has exalted in Zion. Back there the Jews were on the plains of Moab and could see across the Jordan river to the Promised Land, but we today are at the entry into the New World under God's Kingdom by Christ Jesus. _W 6/15_
+
+---
+
+<sup>**Page 390**</sup>
+
+[Open Page 390 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=390)
+
+# November 9
+
+_Ye are My witnesses, an affirmation of Jehovah, and My servant whom I have chosen, so that ye know and give credence to Me.—Isa. 43:10, Young._
+
+In that affirmation is found the name of the office to which Jehovah God has commissioned his servant people, namely, “My witnesses,” that is to say, ‘Jehovah’s witnesses.’ And this is the name, divinely indicated, which the remnant adopted in 1931 by an expressed and published Resolution, thereby to declare their God-appointed position before all this world plainly and unmistakably. And notably since that action the Lord’s “other sheep” have flocked to the side of God’s remnant and have caught up the testimony which these deliver world-wide to the glory of Jehovah as the God of deliverance according to his promise. The remnant, together with their earthly companions, are the followers of Christ Jesus, who set the example as Jehovah’s Chief Servant, who never lagged about witnessing that Jehovah is God. _W 6/1_
+
+# November 10
+
+_They that were scattered abroad went every where preaching the word.—Acts 8:4._
+
+The genuineness of persons’ being God’s ministers and preachers is not dependent upon nor determined by preaching behind a pulpit or in front of an altar in a building or before a regular group of people who pay them thus to serve weekly at such pulpit or altar. It is the anointing of God’s spirit that determines the actuality of their being ministers. And in the case of such ones as are truly ordained or commissioned to preach, every threshold or doorway becomes their preaching post (no “pulpit” is necessary); and all those of hearing ears within the house become a congregation for them. Such was the case when the apostle Paul “taught . . . publickly, and from house to house, testifying both to the Jews, and also to the Greeks, repentance toward God, and faith toward our Lord Jesus Christ.”—Acts 20:20, 21. _W 1/1_
+
+---
+
+<sup>**Page 391**</sup>
+
+[Open Page 391 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=391)
+
+# November 11
+
+_Blindness in part is happened to Israel, until the fulness of the Gentiles be come in. And so all Israel shall be saved.—Rom. 11:25, 26._
+
+What, then, is the consequence of bringing in the fullness of the Gentiles? This: All of spiritual Israel or the Kingdom class will be saved; and thus Jehovah's name will be vindicated and Satan will be proved a liar in boasting that he could prevent such an accomplishment. Note that the apostle, after speaking of the fullness of the Gentiles' coming in, does not say, 'And after that all Israel,' but, 'And so,' that is, in such a manner, 'all Israel shall be saved.' Jehovah God will save the full predetermined number of spiritual Israel, though Satan the Devil fight to the contrary. Since 1931 the earthly 'other sheep' of the Lord have been specially manifest, which would indicate that the fullness of the Gentiles has come into the spiritual 'olive tree', the Theocratic organization. _W 5/1_
+
+# November 12
+
+_Why, then, was there no man, when I came, to greet me, none, when I called, to answer?—Isa. 50:2, Am. Tr._
+
+When Jehovah God said he 'came', it means no coming personally, visibly, but a coming by his accredited servants and witnesses. A.D. 1914 his Son Jesus Christ came into the Kingdom, with authority to rule in the midst of his enemies and to dash the nations to pieces like a potter's vessel. In 1918 Jehovah God sent this reigning King to the temple to judge the 'house of God' and to bring all the nations of earth into judgment before him to seal their fate at the battle of Armageddon. Since 1918 in particular God has sent forth with the Kingdom message his remnant of witnesses. In such manner, by His approved servants, Jehovah has come to 'Christendom' and Jewry. But not a man of their official element, political, commercial or religious, has come forward to greet His representatives, to receive Him as God. _W 9/1_
+
+---
+
+<sup>**Page 392**</sup>
+
+[Open Page 392 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=392)
+
+# November 13
+
+_But of him are ye in Christ Jesus, who of God is made unto us wisdom, and righteousness.—1 Cor. 1:30._
+
+By our consideration of Adam's ease and how he lost justification and brought condemnation upon all his offspring, we can appreciate that 'justification of life' must involve _human_ creatures. It must involve the bringing of those who gain justification of life to the standing that Adam had before he sinned, which was a righteous human standing on earth before God. It must mean, therefore, the condition of human perfection, free of any condemnation from God, and with eternal life on earth before one. That is what Adam lost in Eden when he transgressed God's law and lost his justification before God and became an imperfect sinner under sentence of God's broken law. That is what Adam lost for all his offspring, so that all were born unjust in the sight of God, and without any right to life. Justification is now through Christ. _W 7/15_
+
+# November 14
+
+_A man is justified by faith.—Rom. 3:28._
+
+It is men in debt to God through birth in sin that need to draw on the account of the value of Jesus' human sacrifice. How do those who become members of the church of God draw on this merciful provision made for them? On what grounds will Jehovah God absolve them from the sin and imperfection to which they are subject by inheritance at birth? How will God credit to them the value of the perfect man and his sonly privileges in Eden? It is because of their faith. If they did not believe in God and his provision through Christ, they would not apply to him for this benefit. They must have faith in order to do so; and that is God's requirement of them. Hence their justification is one by faith. It results from having righteousness in its perfection imputed, accounted or credited to them with God. _W 8/1_
+
+---
+
+<sup>**Page 393**</sup>
+
+[Open Page 393 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=393)
+
+# November 15
+
+_A soft answer turneth away wrath: but grievous words stir up anger. The tongue of the wise useth knowledge aright: but the mouth of fools poureth out foolishness._
+
+—Prov. 15:1,2.
+
+God favors us with information and testimony as to himself and his Theocratic Government in order that we may make practical use of it, for the benefit of others as well as of ourselves. Knowledge is not for our own defense merely, but is given us that we may also impart it to others who have as much right to receive it as we had. The knowledge we have we must use aright, not just to show off with it and to engage in controversies and to provoke wrath in others, but to speak tactfully in love, seeking the welfare of others thereby. It is the truth spoken in love that edifies and constructs. This is the loving method the Bible recommends for those who endeavor to be educators of others in God's Word of truth. W 9/15
+
+# November 16
+
+_Behold the Lamb of God, which taketh away the sin of the world._—John 1:29.
+
+This present world Christ Jesus will not justify, but will destroy it for its wickedness. The world for which he gave his life is the new world. The sins he takes away are of those who gain life in the new world; and upon such ones he bestows 'justification of life'. At Romans 4:13 we read: 'The promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith.' Abraham was, of course, not made the heir of this wicked old world. (Acts 7:2-5) He was a type of Jehovah; the true Seed of Abraham is the Son of God, Christ Jesus. The 'world' of which Abraham was promised to be the heir is the new world of righteousness. For the sins of those who will compose that new world Jesus died as the Lamb of God. That world is blessed in him, the Seed. W 8/15
+
+---
+
+<sup>**Page 394**</sup>
+
+[Open Page 394 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=394)
+
+# November 17
+
+_And strangers shall stand and feed your flocks, and the sons of the alien shall be your ploughmen and your vintners.—Isa. 61:5, Leeser._
+
+The “strangers” action is in harmony with the Spirit’s invitation that all thirsty ones who heard the call to come to the water of life and who came should themselves say to others, “Come.” (Rev. 22:17) Thus these “strangers” too have a commission from Jehovah’s Chief Anointed One, Christ Jesus the Spirit, to take part in preaching the Kingdom gospel to all the nations as an invitation to the waters of life. This educational work is reconstructive work concerning Jehovah’s worship in all the earth, and thus they too are reconstructors alongside the anointed remnant of the “bride” class. All their service is pictured by the strangers’ standing and feeding the flocks of the remnant and serving as their plowmen and vinedressers, all of which means hard work but is beneficial and is constructive. _W 1/15_
+
+# November 18
+
+_Be still, and know that I am God.—Ps. 46:10._
+
+Doubtless by that same Son of God who served as the angel to slay 185,000 of Sennacherib’s hosts and send him reeling back to his own violent death, namely, by his reigning King-Son, Christ Jesus, will Jehovah go forth to battle and will wreak destruction upon the wicked challenger’s world-organization. Like Sennacherib, Satan will see his visible organization laid low utterly in death. Next he will see his invisible organization of demons dissolved in destruction and will finally himself be wiped out violently. No demon power will be able to save him. Then, glorious thought! God’s kingdom by Christ Jesus will stand intact, shining brilliantly in the victorious role of Vindicator of Jehovah’s name and universal sovereignty. Jehovah, before destroying all the enemy organization, will have made all challengers and opposers to know He is Jehovah; that is His name. _W 4/1_
+
+---
+
+<sup>**Page 395**</sup>
+
+[Open Page 395 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=395)
+
+# November 19
+
+_Having then gifts differing according to the grace \[of God] that is given to us, whether prophecy, let us prophesy according to the proportion of faith; or ministry, let us wait on our ministering: or he that teacheth, on teaching.—Rom. 12:6, 7._
+
+There, then, is Theocratic instruction on just how the “reasonable service” of God should be carried out by all who want to do His will. In this day all these forms of serving God are being carried on. It was foretold that “your sons and your daughters shall prophesy”. (Joel 2:28) And in this day the public declaration of God’s prophetic Word is being made from house to house by consecrated men and women, young and old. In the ministry of the gospel or the practical field service all the faithful witnesses of Jehovah are engaging, spreading the glad tidings of his kingdom by Christ. In the homes of friendly, teachable persons they are carrying on private Bible studies, making plain to them what God’s Word teaches. _W 5/15_
+
+# November 20
+
+_Through their false step salvation has gone to the heathen.—Rom. 11:11, Goodspeed._
+
+Was the stumbling of Israel after the flesh to the ruin of absolutely the entire nation? No; because God’s mercy selected out a small remnant from the nation on account of their faith in the Seed of Abraham. These Jehovah graciously selected to be associated with Abraham’s Seed, “which is Christ,” in the kingdom of heaven. But more than that: Because the majority of the nation stumbled and misstepped, salvation was extended to the non-Jews, the heathen or Gentiles. It was a salvation to the heavenly kingdom. God’s kingdom-class under Christ must be made up in full. Israel after the flesh stumbled over the Stone in Zion, the King Christ Jesus; and only a remnant availed themselves of the privilege of being associates with him in the Kingdom. That made God free to extend the salvation to the Gentiles. _W 4/15_
+
+---
+
+<sup>**Page 396**</sup>
+
+[Open Page 396 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=396)
+
+# November 21
+
+_Nor pay heed to things long past. Behold, I am doing a new thing.—Isa. 43: 18, 19, Am. Tr._
+
+No, Jehovah's remnant and their companions today are not obliged to remember and cite merely former things of old. Jehovah has wrought a 'new thing' in their case, since 1918, in proof that he is the only true and living God. He has thereby made them his witnesses. Babylon is the Devil's organization which rides upon all peoples of the earth and holds them in bondage to Satan. From this Babylonish organization of oppression Jehovah by his King Christ Jesus has made the remnant and their companions free. The 'new thing' that proves Jehovah's Godship and universal sovereignty will take on its most convincing testimonial form in the near future, at Armageddon's universal battle. That is when He will perform his 'strange act', an act far mightier than that at the Red sea, destroying all the wicked hosts of Satan and for ever delivering his remnant and their companions. W 6/1
+
+# November 22
+
+_Isaiah says, 'Lord, who believed our report?' So then faith comes from a report, and the report through the word of Christ.—Rom. 10: 16, 17, Diaglott, margin._
+
+Isaiah's using the word 'believed' in connection with 'report' shows that faith or believing in Jehovah God comes from and depends upon the report that is made. The report is made in order to create and build up faith or belief and obedience. Paul declares that the preachers who make the report could not do so without the 'word of Christ'; the report is 'through the word of Christ'. Now we know that Christ Jesus also used, quoted and explained God's Word as written in the Hebrew Scriptures, and he fulfilled them. It is absolutely necessary, therefore, for the true preachers whom God sends to study, use and declare the written Word of God, just as Christ Jesus and his apostles did. Otherwise, no real, saving faith can be produced in others by what is preached. W 6/15
+
+---
+
+<sup>**Page 397**</sup>
+
+[Open Page 397 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=397)
+
+# November 23
+
+_Of making many books there is no end; and much study is a weariness of the flesh.—Eccl. 12:12._
+
+Due to ambition and the urge of so many to be writing books, the world has been loaded down with books not pertaining to remembrance of the Creator; and the end thereof is not yet. All this study put into many books, which do not issue forth through Jehovah's Theocratic organization, has merely wearied mankind and has not at all relieved them of the weary, heavy-laden state of mind and heart. Through these books they weary themselves just vainly in searching for peace, happiness and life. The Bible's Creator limited the canon of his inspired Word to just sixty-six little books. The study of his Word, by itself or with the aid of books helping to understand it, is not wearisome, but is refreshing, peace-giving and stirring to action in His service. Let us not weary ourselves with books of worldly wisdom. _W 11/15_
+
+# November 24
+
+_On my servants and on my handmaidens I will pour out in those days of my spirit; and they shall prophesy.—Acts 2:18._
+
+Hence the servants must bear testimony upon every proper occasion to those to whom they are sent as Jehovah's witnesses. Therefore, let everyone of the body of Christ realize that now his calling in life is to be a gospel-preacher or minister. All else is secondary. Likewise with all those who are now led into a goodwill association with the anointed body of Christ. They are led into such relationship, not to form a permanent congregation to hear preaching and be ministered to by the anointed ones, but to join with them in the ministry of the Word and in the delivery of the testimony to others. They do not form a laity class toward the anointed, nor do the anointed class form a clergy body toward these 'other sheep'; but all together are 'one flock' under 'one shepherd', Christ Jesus.—John 10:16, _A.S.V. W 1/1_
+
+---
+
+<sup>**Page 398**</sup>
+
+[Open Page 398 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=398)
+
+## November 25
+
+_Preserve me, O God; for in thee do I take refuge._
+
+Like Jesus, his true followers undergo the experiences of David under religious persecution. They are in line for the Kingdom as joint-heirs with Jesus. On earth their mission is to represent the Kingdom faithfully. Hence they must uphold Jehovah's side of the issue of universal domination by holding true to His sovereignty and obeying Him rather than men. But the religionists, who wrongfully claim the promises of God and the inheritance of His kingdom, yield themselves as instruments of the demons to persecute such faithful witnesses of Jehovah and followers of Christ Jesus. They threaten these continually with destruction, and subject them to opposition, injustices and oppression. The only refuge of these and their companions is in Jehovah, the God of Jesus Christ; and to God they cry for preservation. _W 7/1_
+
+## November 26
+
+_Against Job was his wrath kindled, because he justified himself rather than God._—_Job 32:2._
+
+Job's efforts at justification all centered upon himself, and left God in the background. Fixing his attention upon the creature, Job left out of consideration the supremacy of Jehovah and his right to do with his creatures what he wills, even to permitting them to suffer unjustly at enemy hands for a vindication of God's name. Hence God was not altogether pleased with Job. First, therefore, as of all importance comes the justification of God, that is to say, His justification. He does not need us to vindicate him. He will vindicate his name completely at the battle of Armageddon, beyond denial by anyone in all creation. While he does not depend upon us for vindication, he is pleased to let us do something toward vindication of his name. What? Standing up for his universal domination and faithfully living in accord with it, although such brings suffering. _W 7/15_
+
+---
+
+<sup>**Page 399**</sup>
+
+[Open Page 399 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=399)
+
+# November 27
+
+_Under his wings shalt thou trust: his truth shall be thy shield and buckler.—Ps. 91:4._
+
+To enjoy this defense we must judge everything according to the standard of God's Word, having faith that his Word is true and right. In order to have faith we must be familiar with that Word; and if we have faith we will use the Bible to protect ourselves. This is what the apostle means when saying: 'Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.' (Eph. 6:16) Faith is no wooden shield which the wicked one's darts can stick in and set on fire and burn up, leaving one defenseless; but with faith we can ward off the Devil's poisoned arrows which are meant to poison the mind and heart against God by an inward-burning doubt, suspicion and faultfinding. Do not therefore neglect or ignore the testimony of the Bible. Its testimony is sure and reliable. _W 9/15_
+
+# November 28
+
+_I magnify mine office.—Rom. 11:13._
+
+Why did Paul honor, glorify or make the most of his office as 'apostle of the Gentiles'? It was not because he was against the interests of the Jews. While sincerely interested in the salvation of the Gentiles, he never forgot his fleshly relatives. Hence, wherever his missionary work carried him, he taught 'publicly, and from house to house, testifying both to the Jews, and also to the Greeks'. (Acts 20:20, 21) By such zealous activity Paul glorified or honored his ministry (_diakonia_) as an apostle to the nations, not exaggerating it above what it was, but showing full appreciation of this office of service by making the most of it. While the using of this service to the full benefited the Gentiles directly, yet Paul's hope was that those of his own flesh and blood might be provoked to imitate the Gentiles and might accept salvation through Jesus the Messiah. Let us magnify our office. _W 5/1_
+
+---
+
+<sup>**Page 400**</sup>
+
+[Open Page 400 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=400)
+
+# November 29
+
+_These six cities shall be a refuge, both for the children of Israel, and for the stranger.—Num. 35:15._
+
+The “stranger” class today must flee to the anti-typical city of refuge, God’s Theocratic organization under the High Priest Christ Jesus. There these must abide continually by faithfully keeping integrity toward God. Nevertheless, that does not bring about any justification before the battle of Armageddon. It does not effect in them such a justification as the spiritual Levites, the remnant, have now. No more than the stranger’s fleeing to the city of refuge justified him from his manslaughter guilt, but merely kept him out of reach of the “avenger of blood”. However, inside the refuge city the stranger had the privilege of engaging in the city’s activities and to associate with the Levites and to receive instruction from them. Israel’s high priest, who offered sacrifice, acted as a propitiatory shield to such stranger. _W 8/15_
+
+# November 30
+
+_With the mouth confession is made unto salvation. For the scripture \[Isaiah 28:16] saith, Whosoever believeth on him shall not be ashamed.—Rom. 10:10, 11._
+
+The scripture which Paul quotes is Isaiah 28:16, which tells of Jehovah’s purpose to lay the Tried Stone, the Precious Corner Stone of sure foundation, in His capital organization Zion. This scripture proves that the confession that is made with the mouth unto salvation must be that Jehovah God sent his Son to earth as a man to be tried and tested as to his integrity, obedience and faithfulness even to death; and that Jehovah God raised him up from the dead and exalted him to the capital position as the worthy corner stone, the sure foundation upon which to build his Theocratic Government of the righteous New World. One who truly believes will not refrain from confessing because of fear or shame. In proof of that Paul quoted the Scripture support at Isaiah 28:16. _W 6/15_
+
+---
+
+<sup>**Page 401**</sup>
+
+[Open Page 401 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=401)
+
+# December 1
+
+_Be glad, ye nations, with his people.—Rom. 15: 10, Roth._
+
+The rejoicing of Jehovah's people over his vindicating and delivering of them is not selfish. The vindication of Jehovah's name and sovereignty and people means deliverance and blessings for all who devote themselves to Him out of all the nations, as well as the deliverance and blessings for his remnant of spiritual Israelites. Why, then, should not the nations or right-hearted people of all nationalities rejoice over this together with Jehovah's anointed servants? But, in order for them to join in the rejoicing they must hear about Jehovah and his Theocratic Government and its purpose. Then they can believe therein and joyfully consecrate themselves to him. Aware of their need to hear, Christ Jesus as the Greater Moses sings forth the Kingdom message to the nations. He does so by sending abroad the remnant to proclaim the all-excelling news of The Kingdom. _W 12/15_
+
+# December 2
+
+_Behold, I come quickly: hold that fast which thou hast, that no man take thy crown.—Rev. 3: 11._
+
+From and after 1918 many spirit-begotten children of God turned unfaithful and forsook the side of his kingdom. The King-Judge at the temple cast them off as unworthy of the Kingdom and of its present service. They proved to be an 'evil servant' class, refusing to respond to the reconstruction work of Christ Jesus at the temple. This therefore left the ranks of the remnant cut down, and hence left many places in the heavenly kingdom open for others to be called thereto. The full membership in the Kingdom must be made up as foreordained. So now, by the activity of the faithful ones in discharging their commission or anointing, Jehovah God has brought into the ranks of his remnant others to take the places of the unfaithful that have let go their worthiness of the royal crown. The above text warned of this. _W 1/15_
+
+---
+
+<sup>**Page 402**</sup>
+
+[Open Page 402 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=402)
+
+# December 3
+
+_God pronounces them upright.—Rom. 8:33, Goodspeed._
+
+At the end of Christ's millennial reign all then living on earth will be perfect, by the uplifting power of the Kingdom. But will they all be justified? That all depends upon God, who is the One that justifies. Hence, by God's permission, they will be tested by Satan the Devil, who will be loosed for just a short time before his everlasting, uninterrupted destruction takes place. Those who yield to Satan will be destroyed. Those of perfect mankind who keep their integrity toward God and his King and universal sovereignty will be the ones that Jehovah God will then justify to everlasting life as human sons of God, by his wondrous grace through Jesus Christ their King. Then the right to eternal life on the Paradise earth will be theirs, on a permanent basis. Justification will be complete. _W 8/15_
+
+# December 4
+
+_The congregation that came out of Israel, and the strangers that came out of the land of Israel, and that dwelt in Judah, rejoiced.—2 Chron. 30:25._
+
+Long ago the strangers came along with the Israelites to the temple at Jerusalem. So the 'stranger' class of today have heard the King's invitation to the worship of Jehovah God and to the Theocratic feast of liberation at his temple and holy organization. They have therefore come along with the remnant of spiritual Israelites. The King Christ Jesus has lovingly welcomed such 'strangers'. Particularly since 1938 he has continued to provide a further abundance of spiritual food and has kept open the door of free worship of the Lord God. Both the remnant and these 'strangers' rejoice at this extension of the 'feast of fat things' at Jehovah's holy mountain. Their joy knows no bounds, and they generously pass along the King's invitation to others of the 'stranger' class who have not yet put in appearance. _W 3/15_
+
+---
+
+<sup>**Page 403**</sup>
+
+[Open Page 403 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=403)
+
+# December 5
+
+_Out of his mouth cometh knowledge.—Prov. 2:6._
+
+Jehovah supplies the only practical defense for the crucial days ahead. With his foreknowledge, he sees ahead what the nations cannot see or refuse to see by not heeding his warning. Having prescience of just how the nations would act under the present turbulent circumstances and on what course of action they are embarking for the future, Jehovah for a certainty knows the outcome. We are not mistaken on that fact, for he has foretold this outcome, for our warning. Who, then, understands better than he what is the best safeguard against the grim certainties of the future? Being so provident a God, and so considerate of all humankind, he could be expected to furnish the effective defense for us against permanent harm from things he knows are due to come upon the earth and its nations. He has done so, by making knowledge available. Knowledge from him is a sure defense. _W 9/15_
+
+# December 6
+
+_Offer your bodies in a living sacrifice that will be holy and acceptable to God.—Rom. 12:1, Goodspeed._
+
+Hardships, persecutions and sufferings are merely incidental to our presenting our bodies as a living sacrifice. These things merely put a test on our integrity toward God and prove our faithfulness to him in carrying out our consecration to do his will. Death, whether by violence at the enemies' hands or peacefully in God's service, brings, of course, the living sacrifice to a close. But in no case is the enemy the sacrificing priest to offer the sacrifice, either living or dead, up to God. Christ Jesus, God's great High Priest, is the divinely appointed One that supervises the living sacrifice, directing how it shall spend and be spent in God's service. And Jesus' exhortation to those who are 'branches' in the symbolic olive tree is: 'Be thou faithful unto death, and I will give thee a crown of life.'—Rev. 2:10. _W 5/15_
+
+---
+
+<sup>**Page 404**</sup>
+
+[Open Page 404 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=404)
+
+# December 7
+
+_Let him that heareth say, Come.—Rev. 22:17._
+
+The meek “other sheep” are hearing the invitation of Christ Jesus, and which invitation the remnant of his “bride” yet on earth join in announcing. Therefore the meek ones hearing are under obligation and command to say likewise, “Come!” This obligation is laid upon them by the Bridegroom, Jehovah’s great Anointed Preacher. And rightly so: because the rule is that, to be saved, one must not only hear and believe with the heart unto righteousness but also confess with the mouth in the presence of others. Hence the “other sheep”, as they are gathered to the “one fold”, must make a confession, the same as the anointed remnant are obliged to do. There is no difference in this regard between spiritual Israelites and the “stranger” class out of all nations. For this reason Joel 2:32 emphasizes that “whosoever shall _call_ on the name of Jehovah” shall be delivered and saved. _W 6/15_
+
+# December 8
+
+_Light is sown for the righteous, and gladness for the upright in heart. Rejoice in the Lord.—Ps. 97:11,12._
+
+The outlook for Jehovah’s lovers is a bright and glad one. As surely as they try with upright hearts to conform to the righteous standards of his Theocratic kingdom, he will strew light and gladness all along their pathway. They will walk in the path of light and gladness. Such things he has sown for them, and such must spring forth to fruitage all along their course of faithfulness. That signifies not merely that light will flash forth upon the pages of His Word, together with the gladness that such brings. It means also that he will give the light of deliverance from the enemy’s power, together with the gladness that such deliverance brings. Therefore, at Armageddon, the brilliant light of everlasting deliverance will crown all of Jehovah’s lovers. To be on the side of righteousness, we must find our gladness in Jehovah, and rejoice to serve his Theocracy. _W 10/15_
+
+---
+
+<sup>**Page 405**</sup>
+
+[Open Page 405 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=405)
+
+# December 9
+
+_Isaiah saith, There shall be the root of Jesse, and he that ariseth to rule over the nations; on him shall the nations hope.—Rom. 15:12, A.S.V., margin._
+
+The spiritual remnant must grasp the import of Isaiah's prophecy as quoted by the apostle above. They must awake to the fact that, if the prophecy says the Gentile nations are to hope in the Son of God who must arise to reign over them, then the Gentiles must learn about this God-appointed King. So it falls squarely upon Jehovah's informed people to make his kingdom and his King known to the Gentiles that these may learn of the one and only hope for all mankind. In this day when Jehovah's King reigns Isaiah's prophecy cannot fail of fulfillment, namely, that the Gentiles will rejoice and confide in the true hope. To have a share in the realization of the prophecy Jehovah's people cannot side-step their obligation to service. They must share their hope with the Gentiles. _W 12/15_
+
+# December 10
+
+_Being justified freely by his grace through the redemption that is in Christ Jesus.—Rom. 3:24._
+
+Without God's grace or favor the church's being made right with God would not have been possible. It is free of cost to them, inasmuch as their faith in God does not enrich him in any way or pay in anything to him. The words of Elihu to patient Job are very fitting to them: 'If thou be righteous, what givest thou him? or what receiveth he of thine hand?' (Job 35:7) 'Or who hath first given to him, and it shall be recompensed unto him again? For of him, and through him, and to him, are all things.' (Rom. 11:35, 36) For such reason, and also for the reason that the justification of life is accomplished through our being delivered from sinful debt by Jesus' presentation of his sacrifice to God, the members of God's church are reminded that they are 'justified by his grace'. _W 8/1_
+
+---
+
+<sup>**Page 406**</sup>
+
+[Open Page 406 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=406)
+
+# December 11
+
+_Preach the message; be at it in season and out of season.—2 Tim. 4:2, Goodspeed._
+
+Those preachers who are anointed with God's spirit are not tied down to people in any one house as a congregation, but they are instructed to go 'from house to house'. (Acts 20:20) Neither are they limited to those with hearing ears in any one community, but the example set for them by the Chief Anointed Preacher, Christ Jesus, and by his apostles, is to go 'throughout every city and village, preaching and shewing the glad tidings of the kingdom of God'. (Luke 8:1) Everywhere that they give testimony, whether to but one listener or to several or to a multitude, they are fulfilling their anointing or commission and are preaching in their ministerial capacity. On every occasion, and not according to any scheduled time on a religious organization's weekly program, they are authorized to preach. _W 1/1_
+
+# December 12
+
+_According to his mercy he saved us.—Titus 3:5._
+
+His _mercy_ is toward us in not requiring from us that which justice could rightly exact or demand, but providing, instead, justification of life for those who receive it. But by such mercy to humans, his justice is not set aside. He does not revoke his law as if it had never been broken or had never existed and applied to creatures. The one toward whom justice is exercised is Jehovah, to see to it that the demands of his law are fully met so that he can legally and righteously show mercy to sinful creatures. His justice does not require that justification be bestowed obligatorily upon all humans without respect of their wills. His justice does require that, in order for justification to come to any humans, be they many or few, the demands of his violated law must first be met. In that way he can both continue to be just or righteous and also be the Justifier of us. _W 7/15_
+
+---
+
+<sup>**Page 407**</sup>
+
+[Open Page 407 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=407)
+
+# December 13
+
+_Ye shall not go after other gods.—Deut. 6:14._
+
+The effort of Satan the Devil is to move the persecuted and pursued Christians away from faith and devotion to the true God. But the one who makes God his refuge continues to worship and serve him, and remains immovable for Jehovah's side of the paramount issue, Who is the God whom all the universe must obey? Regardless of immediate consequences, the one abiding in Jehovah will not move over into the enemies' camp and worship their gods. By God's permission, the foe may take away such one's present life. But the faithful worshiper of the true God knows that the Almighty God is his refuge and that in Him the right to future life in the New World may rest beyond the power of the enemies. In due time the great Restorer of life can bring him forth from the dead and bless him with absolute peace and security forever. _W 7/1_
+
+# December 14
+
+_O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, . . . of him, and through him, and to him, are all things: to whom be glory for ever.—Rom. 11:33-36._
+
+In all the outworking of God's purpose as to the Abrahamic covenant for blessing all the families of the earth, no creature directed Him or gave any counsel to Him. What wisdom and knowledge he displayed of how to deal with the situation as it developed, in order that he might vindicate his purpose with success! Who could have searched out in advance and traced out beforehand the way that the all-wise God would take or the judgments and decisions he would render? All throughout it, he owed nobody anything, so that no one has a claim on him for anything whatsoever. Everything proceeds forth from him to creatures needing mercy. Everything is executed through him and by his only begotten Son. Everything is done for his name's sake and for his glory and vindication for ever. _W 5/1_
+
+---
+
+<sup>**Page 408**</sup>
+
+[Open Page 408 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=408)
+
+## December 15
+
+Let the heavens rejoice, and let the earth be glad;
+. . . before the Lord: . . . for he cometh to judge the
+earth: he shall judge the world.—Ps. 96:11-13.
+
+The rejoicing is because Jehovah comes. That is, he
+directs his universal sovereignty once more toward
+our globe. He establishes his Theocratic Government
+to bring earth within the rule of his universal organi-
+zation. This is a blessed occasion, for at last righteous
+judgment comes to lovers of truth and right. His
+judgment begins at the house of God, with the rem-
+nant who are in line for the new heavens of the New
+World. By his King at the temple Jehovah judges
+them to be faithful and appoints them to be his serv-
+ant to preach this Kingdom gospel to all nations. By
+the truth which he sends out through this “servant”
+class he judges the peoples. He separates out the right-
+eously disposed people of good-will as those counted
+worthy to be hid in the day of executing his judgment
+against all of Satan’s wicked world organization.
+W 10/1
+
+## December 16
+
+Whom shall I send, and who will go for us?—Isa. 6:8.
+
+Since Jehovah’s foretold purpose was to send
+preachers, and since his King Christ Jesus was on the
+throne at his temple in 1918, the same question chal-
+lenged the remnant of his followers as challenged
+Isaiah the prophet above. Like Isaiah, the remnant of
+spiritual Israel have volunteered for the preaching
+mission and have answered as a body: “Here am I;
+send me!” Then Jehovah sent this remnant forth as
+his witnesses, with the command: “Go and tell this
+people.” The result has been the most marvelous pub-
+licity campaign of all human history, namely, the
+‘preaching of this gospel of the Kingdom in all the
+world for a witness unto all nations, because the end
+of this world is fast coming on’. Thereby Jesus’ own
+prophecy, at Matthew 24:14, has been undergoing ful-
+fillment under his direction from the temple. W 6/15
+
+---
+
+<sup>**Page 409**</sup>
+
+[Open Page 409 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=409)
+
+# December 17
+
+_Give instruction to a wise man, and he will be yet wiser: teach a righteous man, and he will increase in learning.—Prov. 9:9, A.S.V._
+
+When anyone is reproved through Jehovah's Theocratic organization by its representatives, we do the reproved one a mistaken kindness if we try to show him sympathy by helping him to justify himself and make him feel he has been injured by reproof. Contrariwise, we ourselves should search to see the justice of the reproof and help the one reproved to see that point. Then we ourselves should try to learn from such observation how to make straight paths for our own feet, walking in the fear of Jehovah lest we displease him. It is the course of wisdom not to rebel against correction from Jehovah through his Theocratic organization. 'When the scoffer is punished, the simple is made wise; and when the wise is instructed, he receiveth knowledge.'—Prov. 21:11, A.S.V. W 9/15
+
+# December 18
+
+_Sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous: and he is the propitiation for our sins.—1 John 2:1,2._
+
+If the Christian tries to live consistently with his justification through faith in Jesus' propitiation, he will not try to yield himself to sin. Not that he can henceforth live perfectly in the flesh, because that he cannot do, being still in the imperfect flesh; but that he has no pleasure in or sympathy with sin. When the Christian commits sin due to the inherited condition of his flesh, then he still has available for his benefit the basis for his justification with God, namely, the blood of Jesus Christ. He still may exercise faith in that sacrificed life of Jesus and its benefits. So doing, he obtains from God forgiveness of his sins, and maintains a clean, righteous standing with God. W 8/1
+
+---
+
+<sup>**Page 410**</sup>
+
+[Open Page 410 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=410)
+
+# December 19
+
+_But even if I be poured a libation on the sacrifice and public service \[leitourgia] of your faith, I am glad, and rejoice with you all.—Phil. 2:17, Diaglott._
+
+For the benefit of what it might impart to the offering up of his fellow sacrificers to God, Paul was gladly willing to expend himself, just as a drink offering of wine is poured out over the sacrifice to be burned on the altar. (2 Tim. 4:6, _Diag._) In his unselfish course of spending himself to help his brethren to present their bodies a living sacrifice in God's service, Paul is an example to the remnant of Jehovah's witnesses now. These should likewise lovingly help their brethren to carry out their consecration to God. While the Lord's 'other sheep' are not called to this same sacrificial course, nevertheless they have consecrated themselves wholly to God. Hence it is the privilege and obligation of the remnant to aid these beloved 'other sheep' to render their proper service to God according to his Word. _W 5/15_
+
+# December 20
+
+_Be called trees of righteousness, the planting of the Lord, that he might be glorified.—Isa. 61:3._
+
+By taking up the course of service which Christ Jesus the Anointed King appointed, the remnant of Zion's seed have become robust, firm, uncompromising servants of the Lord engaged in doing the only right thing, God's service, rather than worldly works of self-righteousness and so-called 'character building'. Thus they have grown up like mighty oaks of righteousness, planted by God for his righteous purpose and never to be uprooted as hypocritical, fraudulent and religious. They continue to flourish in their integrity toward Him and his universal domination, being continuously watered by the reviving streams of his truth. The persistent efforts of the enemies to cut them down must fail. Those planted by Jehovah God must continue to grow and wax strong in the earth and thus glorify him. _W 1/15_
+
+---
+
+<sup>**Page 411**</sup>
+
+[Open Page 411 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=411)
+
+# December 21
+
+_Hezekiah rejoiced, and all the people, that God had prepared the people: for the thing was done suddenly._
+
+—2 Chron. 29:36.
+
+The remnant's prompt response to the suddenly revived and renewed witness work in 1919 proved that Jehovah had prepared a people for his name on earth. And, while the amazed and chagrined enemies look on, Jehovah's revived witnesses have followed after the King Christ Jesus in the reconstruction work; and the service in connection with Jehovah's temple of worship has been set in Theocratic good order. The sacrifice of His praise burns fiercely in the fires of zeal for God's house. The trumpet announcements of His kingdom and the Scriptural songs of his glory rise from the lips of his active servants and witnesses. The King Christ Jesus rejoices at the blessed event. He bids his faithful remnant on earth to enter into his joy. He also caused his 'other sheep' at the temple to gambol with joy before him. W 3/1
+
+# December 22
+
+_Let all those that seek thee rejoice and be glad in thee._
+
+—Pss. 40:16; 70:4.
+
+Backed by and impelled by the irresistible expansive force of God's spirit, Jehovah's anointed remnant under Christ have gone forth since 1919 and continue to go forth to all nations. Their Commander's cry is on their lips, 'Be glad, ye nations, with his people.' As his people they must make known to all the nations His gladness and their rejoicing. Then the grief-stricken lovers of righteousness may be glad with them. Then, too, all the woe and wickedness that Satan is yet permitted to bring down upon mankind will have no power to keep them from sharing in the gladness of Jehovah's favored people. The desire of Jehovah's people to communicate their joy to the nations is like that of the woman who recovered one of the silver pieces of her wedding headpiece, and who called out to her neighbors: 'Rejoice with me!' W 12/15
+
+---
+
+<sup>**Page 412**</sup>
+
+[Open Page 412 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=412)
+
+# December 23
+
+_These . . . have washed their robes, and made them white in the blood of the Lamb.—Rev. 7:14._
+
+Like the bloodguilty “stranger” who fled to a city of refuge, the present-day “other sheep” class seek the Theocratic “city of refuge”. There they may take part in the activities of the Lord’s visible organization and may associate with the remnant of antitypical Levites. And they have the High Priest Christ Jesus as a covering for them from the execution of Jehovah’s righteous wrath against the world at Armageddon. They wash their “robes” in the High Priest’s blood, the “blood of the Lamb”, and thus make their robes of identification white, showing that they have no sympathy with sin and worldliness, and that they trust in Christ’s blood for the removal of their sins that they may gain everlasting life in the new world. Under the Theocratic organization they are engaged in righteous works like those of God’s remnant. _W 8/15_
+
+# December 24
+
+_For freedom did Christ set us free: stand fast therefore, and be not entangled again.—Gal. 5:1, A.S.V._
+
+All about us are religion’s institutions and hosts which are craftily seeking to take away the liberty of the servants of Jehovah. However, Jehovah’s witnesses are not asleep to that danger. Conscious that the greatest protection against the inroads by enslaving religion is to ever push the offensive against religion, they move forward unitedly under the King, Christ Jesus. They hold their standard of truth aloft everywhere, putting to flight the hosts of religion and permitting nothing of religion inside the Theocratic organization for serving God. The King’s blessed feast of liberation has led to and is followed by great activity upon the part of his faithful remnant and the beloved “strangers”, that Jehovah’s name may be glorified and vindicated. And freedom’s blessings continue to spread abroad. _W 3/15_
+
+---
+
+<sup>**Page 413**</sup>
+
+[Open Page 413 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=413)
+
+## December 25
+
+_At this time your abundance may be a supply for their want, that their abundance also may be a supply for your want: that there may be equality.—2 Cor. 8:14._
+
+In order to equalize matters among them, and in order that all may have as much opportunity as possible to concentrate on God's witness-work, the better-supplied brethren can aid those who come into a temporary state of need. No contribution that anyone makes in behalf of God's service and for the aid of his servants is to be despised, no matter how small. What a wealth of devotion, zeal, and loving consideration is shown by it! God, who is in charge of his Theocratic organization, is sure to make all things balance in the course of time, that all his people may have opportunity of tendering services and help to one another. The aid and assistance is not always to be flowing, nor does it always flow, in only the one direction. _W 12/1_
+
+## December 26
+
+_That night . . . the angel of Jehovah went forth, and smote in the camp of the Assyrians a hundred four-score and five thousand.—2 Ki. 19:35, A.S.V._
+
+When Satan's visible postwar organization will have made its loudest boasts and direst threats against God's servants on earth of his Theocratic Government, then the night of Armageddon will settle down upon this world. The issue will have been clearly stated and the two sides sharply drawn for the decision. Then Jehovah's witnesses, sheltered within his Theocratic organization, will be under siege and will seem threatened with destruction by the overwhelming hosts of the antitypical Assyrian, Satan the Devil. Yet be not anxious of such a future: Jehovah will fight the battle for his remnant and their companions. He will perform his 'strange act' at Armageddon, as he did thousands of years ago in the land of Judah, 'for his own sake and for the sake of his beloved King Christ Jesus.'—2 Ki. 19:34. _W 4/1_
+
+---
+
+<sup>**Page 414**</sup>
+
+[Open Page 414 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=414)
+
+# December 27
+
+_Who hath made man's mouth? or who maketh a man dumb, or deaf, or seeing, or blind? is it not I, Jehovah? Now therefore go, and I will be with thy mouth, and teach thee what thou shalt speak.—Ex. 4:11, 12, A.S.V._
+
+Those of Jehovah's servant class may feel backward about speaking and think they lack the gift of effective speaking because of lack of worldly training. But let these remember Jehovah's words above to Moses, whom He selected for his prophet. By his angel at the burning bush near Mount Horeb God appeared to Moses, after this man had been away from the highly educated courts of Pharaoh's palace forty years. So the remnant of Jehovah's witnesses now go forth confidently, not with the tongue of those learned in the wisdom of this world, nor taught in the religious creeds and traditions of those rejected religious organizations. They go forth with the tongue of those who are Christ's disciples and taught of God. _W 9/1_
+
+# December 28
+
+_When thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee._
+
+God has let his present-day witnesses be cast into the fiery furnace of unjust affliction, persecution and intense trial of integrity at the hands of Satan's henchmen who idolize the political-religious state and other man-made creations. In the midst of this 'furnace', whose heat and flame increase, Jehovah's witnesses are assured of having his presence with them as represented by his Son, Christ Jesus. And as the amazed world outside looks on they behold that Jehovah is making his promise true to his witnesses; for such fire of persecution does not burn them to ashes or destroy their integrity toward God. The flame does not kindle upon them and devour their identity as Jehovah's witnesses who are rendering true worship to him. _W 6/1_
+
+---
+
+<sup>**Page 415**</sup>
+
+[Open Page 415 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=415)
+
+## December 29
+
+_Rejoice, ye Gentiles, with his people.—Rom. 15:10._
+
+Since 1918 Christ Jesus sends forth the faithful remnant whom he approved at the temple. These obey joyfully Jehovah's command to make their joy known to the Gentile nations and to bid them share in it. What special cause do this persecuted remnant of spiritual Israelites have to make them so glad to do this? The particular cause for rejoicing is their possession of Jehovah as God. True, they are shunned because of being a 'people for his name', and are despised, hated and persecuted by all this world. But they rejoice because they have Jehovah as their Judge, Avenger and Vindicator. They have his unbreakable promise that he will deliver them from the unjust condemnations and death sentence pronounced upon them by this world and that he will vindicate them and avenge them upon all their persecutors and maligners. 'For he will avenge the blood of his servants, and will render vengeance to his adversaries.'—Deut. 32:43, _A.S.V. W 12/15_
+
+## December 30
+
+_And the whole assembly took counsel to keep other seven days: and they kept other seven days with gladness.—2 Chron. 30:23._
+
+The 19,000 bullocks and sheep that King Hezekiah and the princes contributed for extending the feast of liberation for another seven days needed to be killed, flayed, and prepared; and that called for much work by the Levites. They were at least as busy as workers in the cafeteria department of a major convention of Jehovah's witnesses in recent years. For these witnesses it has been no mere feast of material things for the body, but has been a wholesome, satisfying feast of fat things in a spiritual way. And the King Christ Jesus has extended this feast of Kingdom truths and Theocratic witness work longer than his remnant had at first expected. They are glad to have it thus extended, even beyond this year 1946. _W 3/15_
+
+---
+
+<sup>**Page 416**</sup>
+
+[Open Page 416 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=416)
+
+# December 31
+
+_Zion heard and was glad, and the daughters of Judah rejoiced, because of thy judgments.—Ps. 97:8, A.S.V._
+
+The remnant of the children of Zion, on hearing of Jehovah's reign begun, rejoiced like the daughters of Judah. That is to say, they rejoiced like the cities of Judah which acknowledged Zion as their capital city and as the city of the Supreme King, Jehovah. Those daughters of Judah were all of the royal tribe, from whom the 'Lion of the tribe of Juda' was taken. Hence they represented the local companies on earth of the remnant of Christ's joint-heirs. As in the case of the typical daughters of Judah, which had many a 'stranger that is within thy gates', so these companies of the anointed remnant now have many anti-typical strangers or consecrated persons of good-will within their gates. These too rejoiced with Zion and with the 'daughters of Judah' on hearing of God's reign as Universal Sovereign begun toward us. _W 10/15_
+
+![img-1.jpeg](img-1.jpeg)
+
+---
+
+<sup>**Page 417**</sup>
+
+[Open Page 417 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1946%20Yearbook%20%28yb46-E%29.pdf#page=417)
+
+# Chief Office and Official Address of
+
+# WATCH TOWER BIBLE & TRACT SOCIETY
+
+WATCHTOWER BIBLE AND TRACT SOCIETY, INC.\
+INTERNATIONAL BIBLE STUDENTS ASSOCIATION
+
+is
+
+124 Columbia Heights, Brooklyn 2, N. Y.
+
+# Address of factories and publishers:
+
+|  America, | 117 Adams St., | Brooklyn 1, N. Y.  |
+| --- | --- | --- |
+|  Argentina, | Calle Honduras 5646-48, | Buenos Aires  |
+|  Australia, | 7 Beresford Road, | Strathfield, N.S.W.  |
+|  Belgium, | 2, Place Julien Dillens, | St. Gilles - Brussels  |
+|  Brazil, | Rua Licinio Cardoso 330, | Rio de Janeiro  |
+|  British Guiana, | 5 Croal Street, | Georgetown, Demerara  |
+|  Canada, | 40 Irwin Ave., | Toronto 5, Ontario  |
+|  Chile, | Avenida Lyon 3004, | Santiago  |
+|  Colombia, | Avenida 32, No. 18-24, | Bogotá  |
+|  Costa Rica, | Apartado 2043, | San José  |
+|  Cuba, | C y 32, La Sierra, Marianao, | Habana  |
+|  Denmark, | Sondre Fasanvej 54, | Copenhagen - Valby  |
+|  Dominican Republic, | Apartado 996, | Ciudad Trujillo  |
+|  El Salvador, | Apartado 401, | San Salvador  |
+|  England, | 34 Craven Terrace, | London, W. 2  |
+|  Finland, | Vainamoisenkatu 27, | Helsinki  |
+|  France, | 27 rue des Epinettes, | Paris 17^{e}  |
+|  Greece, | Lombardou 44, | Athens  |
+|  Guatemala, | 16a Calle Poniente No. 5A, | Guatemala  |
+|  Haiti, | 1^{er} Ave. Bolosse, Ruelle Vilgrain 47, | Port-au-Prince  |
+|  Hawaii, | 1228 Pensacola St., | Honolulu 34  |
+|  Honduras, | Apartado 147, | Tegucigalpa  |
+|  India, | 167 Love Lane, | Bombay 27  |
+|  Jamaica, | 151 King St., | Kingston  |
+|  Mexico, | Calzada Melchor Ocampo 71, | Mexico, D.F.  |
+|  Netherlands, | Joh. Verhulststraat 160, | Amsterdam-Z.  |
+|  Newfoundland, | Post Box 521, | St. John's  |
+|  New Zealand, | 177 Daniell St., | Wellington, S. 1  |
+|  Norway, | Inkognitogaten 28, b., | Oslo  |
+|  Panama, | Apartado 274, | Ancon  |
+|  Philippine Islands, | 1219-B Oroquieta St., | Manila  |
+|  Puerto Rico, | 49 Lutz Ave., | Santurce  |
+|  South Africa, | 623 Boston House, | Cape Town  |
+|  Sweden, | Luntmakaregatan 94, | Stockholm  |
+|  Switzerland, | Allmendstrasse 39, | Berne  |
+|  Trinidad, | 64 Frederick St., | Port of Spain  |
+|  Uruguay, | Joaquin de Salterain 1264, | Montevideo  |
+|  West Africa, | 71 Broad St., | Lagos, Nigeria  |
