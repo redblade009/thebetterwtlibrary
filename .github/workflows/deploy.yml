@@ -26,11 +26,12 @@ jobs:
           hugo-version: 'latest'
           extended: true
 
-      # FIXED: Initializes a temporary project scope so Hugo can fetch modules securely without local file dependencies
+      # FIXED: Uses standard double quotes and custom path flags to force Hugo to ignore old environment variables
       - name: Initialize Module Environment
         run: |
-          hugo mod init ://github.com
-          hugo mod get -u
+          rm -f go.mod config.toml config.yaml
+          hugo mod init "://github.com"
+          hugo mod get "://github.com"
 
       - name: Compile 7,500 Full-Text Notes
         run: hugo --minify
