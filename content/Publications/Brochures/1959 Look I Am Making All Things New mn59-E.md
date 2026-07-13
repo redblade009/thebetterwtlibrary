@@ -1,0 +1,600 @@
+---
+title: 1959 Look I Am Making All Things New (mn59-E)
+pages: 32
+tags:
+  - Brochures
+publish: true
+---
+
+<sup>**Page 1**</sup>
+
+[Open Page 1 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=1)
+
+# "Look!
+
+I AM MAKING
+ALL THINGS
+NEW"
+
+![img-0.jpeg](img-0.jpeg)
+
+---
+
+<sup>**Page 2**</sup>
+
+[Open Page 2 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=2)
+
+How tired we all are of the old things! We and our forefathers have suffered because of them for so long! And things keep getting worse. Men are trying to change things for the better. Yet men have nothing new to offer, and they prove themselves unable to wipe out hatred, oppression, poverty, wickedness, suffering and death.
+
+However, the great Creator, who sits on high in the heavens, has observed all this human helplessness. He promises us a real change for the better, yes, for the best. We can believe him when he says to us in his written Word: 'Look! I am making all things new.' These words have inspired the writing of this beautiful booklet. Your reading it will give you a truly new outlook for the future, which you may live to enjoy. For this reason we take pleasure in publishing it, and we wish you Heaven's blessing in reading it that you may fully enter into the happy new things.
+
+—THE PUBLISHERS
+
+COPYRIGHT, 1959
+
+# WATCH TOWER BIBLE & TRACT SOCIETY
+
+OF PENNSYLVANIA
+
+PUBLISHERS
+
+Watchtower Bible and Tract Society of New York, Inc.\
+International Bible Students Association\
+Brooklyn, New York, U. S. A.
+
+Made in the United States of America
+
+---
+
+<sup>**Page 3**</sup>
+
+[Open Page 3 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=3)
+
+# “Look! I Am Making All Things New”
+
+SEE the happy people on the cover of this booklet. Would you not like to be one of them? Why, yes, you say. For here is the peace and harmony desired by all mankind. People of all races—the black, the white, the yellow—are mingling as one family. What joy! What unity! Obviously these people are not worrying about nuclear fallouts, or the threat of hydrogen bombs. Jet warplanes do not shatter the peaceful skies above this lovely park. There are no soldiers, no tanks, no guns. Not even a police baton is needed to keep order. War and crime simply do not exist. And no housing shortages, for everyone has a beautiful home to call his own.
+
+² Just look at those children! Their play is a joy to behold. What animals to play with! No iron bars are needed in this park, for all animals are at peace with mankind and with one another. Even the lion and the lamb have become friends. See those gaily colored birds as they flit hither and thither, and hear their beautiful songs join children’s laughter in filling the air. No cages? No, for all is freedom and unrestricted joy in this domain. Just smell the fragrance of those flowers, hear the rippling of the stream, feel the tingling
+
+1-4. (a) What glorious prospect now confronts all mankind? (b) Why should the facts in proof receive serious consideration?
+
+3
+
+---
+
+<sup>**Page 4**</sup>
+
+[Open Page 4 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=4)
+
+4
+
+warmth of the sun. Oh, for a taste of the fruit in that basket, for it is the best that earth can produce, the very best, like everything that is to be seen and enjoyed in this glorious parklike garden.
+
+$^{3}$ But stop, someone says, where are the old people? Should they not share, too, in enjoying this happy society? Actually the old people are right there, but they are growing young again. In this park no one dies from old age. The young now grow up to mature manhood, and grow no older. Whether twenty years old or two hundred years old, each of the millions of persons living in this park rejoices in the zest of youthful living, in perfect health. Millions, you say? Yes, millions, for this park is being extended to the ends of the earth. In it will be all the glories of nature, from Fujiyama to the Himalayas, from Hong Kong to the Mediterranean, and thousands more. For all earth is being transformed into a paradise park. It will be paradise restored earth-wide.
+
+$^{4}$ Unbelievable, did you say? First, though, consider the facts in proof. It is possible for you and your family to survive the passing of the present troubled world, and to enter the new world represented on our cover.\*
+
+### THE BOOK THAT EXPLAINS PARADISE
+
+$^{5}$ All these glorious things, and the certainty of them, are explained in a book, the most wonderful book ever written. It is called the Bible. It is the oldest book on earth, its origin stretching back nearly 6,000 years. At the same time, it is the most up-to-date book in presenting sound, prac-
+
+- Bible references in support of the above: (1) Acts 17:26; Psalm 46:9; Micah 4:3, 4, AS; Isaiah 65:21-23; (2) Isaiah 65:25; 11:6-9; Isaiah 55:12, 13; Psalm 67:6, 7; (3) Job 33:25; Isaiah 35:5, 6; Isaiah 33:24; Psalm 104:24; (4) Isaiah 55:11.
+
+5. (a) What book explains these things? (b) In what ways is this an outstanding book?
+
+---
+
+<sup>**Page 5**</sup>
+
+[Open Page 5 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=5)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 5
+
+tical counsel for modern-day living. Its prophecies arouse bright hope for the future. It is the best seller of all history, over 2,000,000,000 copies having been distributed world-wide in more than 1,100 different languages.
+
+⁶ No other holy book has had so universal a distribution, nor does any have origins even half as old. The Koran of Mohammedanism is less than 1,400 years old. Buddha and Confucius lived about 2,500 years ago, and their writings date from that time. The Scriptures of Shinto were composed in their present form no more than 1,200 years ago. The Book of Mormon is only 140 years old. None of these holy books can accurately trace human history back through 6,000 years, as does the Bible. To understand original religion, we must therefore go to the Bible. It is the only book with a universal message for all mankind.
+
+⁷ The wisdom and beauty of the Bible message have been acclaimed by thinking men from all nations and from all walks of life. The famous scientist and discoverer of the law of gravity, Sir Isaac Newton, said: "No sciences are better attested to than the Bible." Patrick Henry, the American revolutionary leader famous for the words "Give me liberty, or give me death," also declared: "The Bible is worth all other books which have ever been printed." Even the great Hindu sage Mahatma Gandhi once told the British viceroy of India: "When your country and mine shall get together on the teachings laid down by Christ in this Sermon of the Mount, we shall have solved the problems, not only of our countries but those of the whole world." Gandhi was speaking of Matthew, chapters 5 to 7, in the Bible. Read these
+
+6. What distinguishes the Bible from other holy writings?
+
+7. What do thinking men say of the Bible?
+
+---
+
+<sup>**Page 6**</sup>
+
+[Open Page 6 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=6)
+
+6
+
+chapters yourself, and see if you do not thrill to their powerful message.
+
+### THE BIBLE AN ORIENTAL BOOK
+
+$^{8}$ Contrary to popular belief, the Bible is not a product of, nor does it glorify, the civilization of the West. Almost the entire Bible was written in Oriental countries. The men who wrote it down were all Orientals. The first human writings were made in the Middle East, nearly 6,000 years ago, by the first man, Adam. Nearly 3,500 years before the birth of Buddha, Adam wrote down 'a history of the heavens and the earth in the time of their being created' (Genesis 1:1 to 2:4) and 'the book of Adam's history' (Genesis 2:5 to 5:2). The first man knew these things. He had been told them by his Creator, or he himself had experienced them, and so he could record them. However, he proved unfaithful to his Creator. Some 2,500 years later, and still 1,000 years before Buddha, Moses, the man of God, edited Adam's histories and nine other histories by men of ancient times into one continuous record. This record begins the first book of the Bible, called Genesis. From this beginning, the Bible follows one harmonious theme right through to its final book of Revelation. The last book was written about six hundred years after Buddha. Did you know that the Bible is made up of sixty-six different books? Yes, the Bible is a library in itself! Over a period of 1,600 years, from Moses' time on, some thirty-five different men shared in writing the completely harmonious record of the Bible. They testify that their writings were inspired by a Power far higher than mortal man.—2 Samuel 23:2; 2 Peter 1:21; Luke 1:70.
+
+8. (a) What were the origins of the Bible? (b) What kind of book is the Bible? (c) What did its writers say concerning its authorship?
+
+---
+
+<sup>**Page 7**</sup>
+
+[Open Page 7 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=7)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 7
+
+⁹ Most remarkable, too, is the way the Bible has come down to this day. For thousands of years, and until the invention of printing about five hundred years ago, copies of the Bible had to be made by hand. It was copied over and over again, but always with great care. Today, there are still in existence about 16,000 handwritten copies of the Bible, or parts of the Bible, some even surviving from the second century before Christ. No other literary work of ancient times was so diligently copied and recopied. By comparing many handwritten copies, it has been proved that the errors made in recopying were very few, and, further, it has been possible to establish the original text of the Bible. A leading authority on Bible manuscripts, Sir Frederic Kenyon, says: "The last foundation for any doubt that the Scriptures have come down to us substantially as they were written has now been removed." Moreover, accurate translations have been made into nearly all of earth's languages, from the Hebrew, Aramaic and Greek languages in which the Bible was originally written.
+
+¹⁰ Some have tried to discredit the Bible by saying it is inaccurate. However, in recent years, archaeologists have dug into the ruins of ancient cities in Bible lands and have found inscriptions and other evidence proving conclusively that the persons and places mentioned even in the oldest Bible records actually existed. They have unearthed much evidence proving a global deluge, which the Bible says took place more than 4,000 years ago, in Noah's day. On this point, Prince Mikasa, who is well-known as a student of and authority on archaeology, states: "Was there really a Flood? As the result of excavations by
+
+9. (a) How did the Bible come down to our day?
+   (b) What can be said as to the accuracy of modern-day Bibles?
+
+10. How have modern discoveries confirmed the Bible record?
+
+---
+
+<sup>**Page 8**</sup>
+
+[Open Page 8 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=8)
+
+8
+
+archaeologists in recent years, the fact that the flood actually took place has been convincingly proved.'\*
+
+### THE GOD OF THE BIBLE
+
+$^{11}$ Just as some people have scoffed about the Bible, others scoff about there being an Almighty God. (2 Peter 3:3-5) They say, 'How can I believe in God, since I cannot see him? How is it possible to understand an invisible Creator higher than man? Does not God dwell in everything?' Others say, 'There is no God or Buddha.' However, the Bible shows that just as all of us receive life through an earthly father, so our original ancestors received life from a heavenly Father or Creator, whose personal name is Jehovah.—Psalm 100:3.
+
+$^{12}$ Jehovah is the Author of the Bible. He is the Great Spirit, existing through all eternity. (John 4:24; Psalm 90:1, 2) His name Jehovah calls attention to his purpose toward his creatures. It is his purpose to vindicate that great name by destroying the wicked and releasing those who love him for joyous living in his new world. (Exodus 6:2-8; Isaiah 35:1, 2) Being the Almighty God, he has the power to do this. As the Creator of all the universe, he is far above ordinary national gods and idols.—Isaiah 42:5, 8; Psalm 115:1, 4-8.
+
+$^{13}$ Jehovah has made himself known to mankind through two great books. The greater of these books is the Bible, making known his purposes. (John 17:17; 1 Peter 1:24, 25) The other book is
+
+- _Monarchs and Tombs and Peoples—the Dawn of the Orient_, page 25.
+
+11. (a) Is there an Almighty God? (b) Does he have a name?
+
+12, 13. What are some outstanding facts about Jehovah God?
+
+---
+
+<sup>**Page 9**</sup>
+
+[Open Page 9 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=9)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 9
+
+the record of creation, to be seen and read in all nature.
+
+14 During recent centuries, men of science have given much time to studying the book of nature. What have they concluded? One of the discoverers of electricity, the famous British scientist Lord Kelvin, declared: "I believe the more thoroughly science is studied the further does it take us from anything compared to atheism." The equally famous European-born scientist Albert Einstein asserted: "It is enough for me to . . . reflect upon the marvelous structure of the universe, which we can dimly perceive, and to try humbly to comprehend even an infinitesimal part of the intelligence manifest in nature." The American scientist and Nobel Prize winner Arthur Holly Compton has said: "An orderly unfolding universe testifies to the truth of the most majestic statement ever uttered—'In the beginning God'." He was quoting the opening words of the Bible.
+
+15 Rulers of mighty nations may boast of their intelligence and scientific accomplishment in throwing Sputnik and its successors into outer space. But how insignificant are their space ships when compared with the moon that orbits the earth, and the planets that orbit the sun! How puny the achievements of these mortal men in comparison with Jehovah's creation of billions of heavenly galaxies, each containing billions of suns like our own, and his grouping and setting them in space for measureless time! (Psalm 19:1, 2; Job 26:7, 14) It is no wonder that Jehovah regards men as mere grasshoppers, and mighty nations as "less than nothing."—Isaiah 40:13-18, 22, AS.
+
+16 Do you live in a house? Probably you did not
+
+14. How has the book of nature testified concerning God?
+
+15, 16. (a) How does the universe magnify God's wisdom? (b) Illustrate the foolishness of saying that God does not exist.
+
+---
+
+<sup>**Page 10**</sup>
+
+[Open Page 10 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=10)
+
+10
+
+build the house yourself, nor do you know who did. However, the fact that you do not know the builder does not prevent you from accepting the truth that some intelligent person built it. To reason that the house built itself would appear very foolish! Since the great universe, and everything in it, required infinitely greater intelligence for its construction, does it not seem foolish to say there is no intelligent Creator? Truly, only the fool would say in his heart, 'There is no Jehovah.' —Psalm 14:1.
+
+$^{17}$ The glorious wonders of nature, the flowers, the birds, the animals, the marvelous creation called man, the miracles of life and of birth—these all testify to the invisible Master Intellect that produced them. (Romans 1:20) Where there is intellect, there is mind. Where there is mind, there is a person. The supreme intellect is that of the Supreme Person, the Creator of all things living, the very Fountain of life. (Psalm 36:9) The Creator is indeed worthy of all praise and adoration. —Psalm 104:24; Revelation 4:11.
+
+$^{18}$ There are some whose belief in God was shaken by the hard experiences of World War II. At that time each country called upon its 'God,' whether of the Catholic or Protestant religions, or of the Oriental religions. Could it be said that 'God' gave victory to some of these nations and allowed others to be defeated? The Bible shows that none of these nations were calling on the true God. Jehovah God, the Creator of heaven and earth, is not responsible for the confusion and wars among the nations. (1 Corinthians 14:33) His thoughts are far above those of the political and militaristic nations of this earth. (Isaiah 55:8, 9) Likewise the true religion and worship of Jehovah
+
+17. Show that God is a person, and worthy to be praised.
+
+18. Why does God have no part in the wars of the nations?
+
+---
+
+<sup>**Page 11**</sup>
+
+[Open Page 11 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=11)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 11
+
+has no part with the wars of the nations. Jehovah is far above militaristic gods, and is unique in being the God of peace-loving men and women in all nations. As the Bible says: "God is not partial, but in every nation the man that fears him and works righteousness is acceptable to him." (Acts 10:34, 35) Men of good will in all nations are now learning the Bible, and embracing the worship of the one true God, the Creator of all mankind.—Acts 17:24-27.
+
+19 Some people point to the divisions in Christendom, which claims to follow the Bible. They also say, "How can I believe the God of the Bible, when the nations that have the Bible are busy testing atom and hydrogen bombs?" The fact is that, while the Bible remains always true, the nations of Christendom have become as far removed from Bible Christianity as the North Pole is removed from the South. They are hypocritical in professing Christianity. They have the Bible, but they do not obey its teachings. The American president who ordered the first atom bomb dropped on Hiroshima once exclaimed, "Oh for an Isaiah or a St. Paul!"—to guide men in this world crisis. Had he believed Isaiah of the Bible, he would never have dropped an atom bomb, for Isaiah advocated 'beating swords into plowshares and spears into pruning shears.' Moreover, it was Paul of the Bible who declared: "We do not wage warfare according to what we are in the flesh. For the weapons of our warfare are not fleshly." (Isaiah 2:4; 2 Corinthians 10:3, 4) However, instead of following the wise counsel of the Bible, the nations of Christendom have become involved in a great armaments race. Their claims to being Bible-obeying Christians are false. They face God's judgment for failing to do his will.—Matthew 7:18-23.
+
+19. What proves that Christendom is un-Christian and anti-God?
+
+---
+
+<sup>**Page 12**</sup>
+
+[Open Page 12 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=12)
+
+12
+
+# JEHOVAH'S MIRACLES AND CREATIONS
+
+20 Jehovah creates, and he performs miracles. Have you ever wondered about the turning of water into blood, the parting of the Red Sea, the virgin birth of Jesus, and other miracles in the Bible? Since man is of limited intellectual power, probably he will never understand how some of these miracles happened, the same as he cannot fully understand the miracle of the sun in rising and setting each day. The creation of man was a miracle. Modern man did not see that miracle, but he knows it happened, for he is alive today to prove it. Indeed, all life and all the universe is one perpetual miracle. So are we to doubt when God's Word, the Bible, says that he performed specific miracles for specific times, even though there is no need for the same miracles today?
+
+21 All of Jehovah's creation is miraculous and wonderful! However, of Jehovah's marvelous creations, his very first creation was the most marvelous of all. This was the creation of a spirit Son. Concerning this Son, the Bible says: "He is the image of the invisible God, the firstborn of all creation, because by means of him all other things were created in the heavens and upon the earth, the things visible and the things invisible . . . All other things have been created through him and for him." (Colossians 1:15, 16; John 1:3) This heavenly Son was named "the Word." Countless ages after his creation, he came to this earth, and was called the "man Christ Jesus." (1 Timothy 2:5) Then it was said of him: "So the Word became flesh and resided among us, and we had a view of his glory, a glory such as belongs to an only-begotten son from a father, and he was full of undeserved kindness and truth."—John 1:14.
+
+20. Why is it reasonable to believe God's miracles?
+
+21. Describe God's most marvelous creation.
+
+---
+
+<sup>**Page 13**</sup>
+
+[Open Page 13 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=13)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 13
+
+²² The relationship of the Father and Son may be compared to a business where there is a president and under him an executive who carries out the wishes of the president. The Son is represented in Proverbs 8:22, 30 as saying: "Jehovah himself produced me as the beginning of his way, the earliest of his achievements of long ago. Then I came to be beside him as a master worker." Through this executive Son, Jehovah created many other spirit creatures, sons of God. Later, these rejoiced to see Jehovah's master worker bring forth the material heavens and the earth on which we live. Do you doubt that these things were created? Jehovah asked of ancient Job: "Where did you happen to be when I founded the earth? Tell me, if you do know understanding. When the morning stars joyfully cried out together, and all the sons of God began shouting in applause?"—Job 38:4, 7.
+
+²³ In course of time, Jehovah created living, material things on this earth, the plants, the trees, the flowers, the fish, the birds and the animals. (Genesis 1:11-13, 20-25) Then God said to his master worker: "Let us make man in our image, according to our likeness . . . And God proceeded to create the man in his image, in God's image he created him; male and female he created them." (Genesis 1:26, 27) Being created in the image and likeness of God, with God's great attributes of love, wisdom, justice and power, the original man was much superior to the animals. Man is in a class apart from the animals in that he is able to reason, to plan for the future, and he has the capacity to worship God. Animals do not have intellect to reason with, but they live by instinct.
+
+22. (a) How may the relationship between God and his Son be explained? (b) What proves that God created other spirit sons?
+
+23. What earthly creation of Jehovah is outstanding, and in what respects?
+
+---
+
+<sup>**Page 14**</sup>
+
+[Open Page 14 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=14)
+
+14
+
+How foolish to say that there is no Creator but that the richly endowed, intelligent creature man evolved upward from unintelligent lower animals! —Psalms 92:6, 7; 139:14.
+
+$^{24}$ As God and his Son are both workers, so too God gave man work to do here on earth. (John 5:17) To Adam and Eve, the first man and woman, he said: “Be fruitful and become many and fill the earth and subdue it, and have in subjection the fish of the sea and the flying creatures of the heavens and every living creature that is creeping upon the earth.” (Genesis 1:28) Did this mean that man was to multiply, fill the earth, and then keep on multiplying until the earth was full to overflowing? No. When someone tells you to fill a cup with tea, you do not keep pouring until the tea overflows all over the table. You fill the cup and then stop. In the same way, Jehovah’s command to man, “Fill the earth,” indicated his purpose to have man comfortably fill the earth, and then reproduction of humankind would stop. This would present no problem in a perfect human society. It is only in today’s world of imperfect mankind that overpopulation presents a problem.
+
+$^{25}$ God placed man in “a garden in Eden, toward the east.” It was a garden of pleasure, like the garden on our cover, though there were only the two humans, Adam and his wife. Though this original paradise no longer exists, having been destroyed in the flood of Noah’s day, its approximate location in the Middle East is known, for some of the rivers named in the Bible as flowing through it exist to this day. (Genesis 2:7-14) Man had the grand opportunity to use this garden as a center from which to spread out and cultivate the entire
+
+24, 25. (a) What grand prospect was placed before man? (b) Why would there be no problem of overpopulating the earth?
+
+---
+
+<sup>**Page 15**</sup>
+
+[Open Page 15 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=15)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 15
+
+earth, making it a global paradise.—Isaiah 45: 12, 18.
+
+### REBELLION AND DEATH
+
+26 If God's purpose is to build a paradise earth, how is it that the earth today is so filled with wickedness, suffering and sorrow? Does this prove God is not so almighty after all? Is God the source of such misery? Is there hope of an end to such conditions? What does the Bible show?
+
+27 The Bible reveals that when Jehovah created man on earth he placed one of his spirit sons, one "full of wisdom and perfect in beauty," in Eden to carry out certain privileges of service. This angel was "in Eden, the garden of God." However, 'his heart became lifted up because of his beauty' and he came to worship himself, instead of Jehovah. (Ezekiel 28:12, 14, 15, 17, AS) He formed the determination to turn the worship of the first man and woman away from their Creator, Jehovah, and to himself. Through a serpent, this angel lied to Eve, and induced first Eve and then her husband Adam to disobey Almighty God.—Genesis 2:15-17; 3:1-6.
+
+28 God had stated the penalty for disobedience—death. In now passing sentence upon the first woman, Jehovah said: "I shall greatly increase the pain of your pregnancy; in birth pangs you will bring forth children, and your longing will be for your husband, and he will dominate you." To the man Adam he said: "In the sweat of your face you will eat bread until you return to the ground, for out of it you were taken. For dust you are and to dust you will return." (Genesis 3:16-19) The disobedient couple were expelled from the paradise of happiness into the uncultivated earth. In course of time they died.—Genesis 5:5.
+
+26. What questions now arise?
+
+27. How did rebellion enter the garden of God?
+
+28. Because of disobedience, what resulted to man?
+
+---
+
+<sup>**Page 16**</sup>
+
+[Open Page 16 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=16)
+
+16
+
+$^{29}$ The angel that deceived man came to be known as the Serpent. (2 Corinthians 11:3) He is also called Satan, meaning “opposer,” and Devil, meaning “slanderer.” He, too, has been placed under sentence of death. (Genesis 3:15; Hebrews 2:14) However, Jehovah has permitted him, for a season, to continue his domination over the nations and religions of fallen mankind. Do you not agree that Satan’s attributes of selfishness, lovelessness and injustice are to be seen everywhere in the world today? Truly, the present world reflects the badness of its invisible ruler. That is why the Bible says: “The whole world is lying in the power of the wicked one.”—1 John 5:19.
+
+$^{30}$ It was only after they had fallen from the mark of perfection that Adam and Eve began to produce children. All men today are their descendants in imperfection, and hence all die. One Bible writer explains it in these words: “Through one man sin entered into the world and death through sin, and thus death spread to all men because they had all sinned.” (Romans 5:12) What is this “sin”? It is a falling short of the mark of perfection or completeness. Jehovah God does not approve of, or keep alive, anything that is imperfect. Since all men have inherited sin and imperfection from the first man, Adam, all are subject to death. Fallen man dies, just like the animals.—Ecclesiastes 3:19-21.
+
+$^{31}$ What is this “death”? Death is the opposite of life. God had held before man the prospect of endless life on earth if he obeyed. However, he disobeyed, and the penalty was death, unconsciousness, nonexistence. (Psalm 146:4) God had said nothing about transferring man’s life to a spirit
+
+29. Who remains as the invisible ruler of mankind, and how does this world reflect his personality?
+
+30. What is “sin,” and what is its result to mankind?
+
+31. What is the “death” that mankind inherited from Adam?
+
+---
+
+<sup>**Page 17**</sup>
+
+[Open Page 17 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=17)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 17
+
+realm or to a fiery "hell" if he disobeyed or died. He had warned man: "You will positively die." It was the man-slaying Devil who had lied in saying: "You positively will not die." (Genesis 2:17; 3:4; John 8:44) What all men have inherited from Adam is dustlike death.—Ecclesiastes 9:5, 10; Psalm 115:17.
+
+32 Is there, then, no future for man who dies? There is a wonderful future! The Bible shows that God's purpose of a paradise earth for all mankind, including those now dead, will never fail. Says Jehovah: "The heavens are my throne, and the earth is my footstool." "I shall glorify the very place of my feet." (Isaiah 66:1; 60:13) Out of the abundance of his love, Jehovah sent his Son, the Word, to this earth, that the world of mankind might gain life through him. (John 3:16; 1 John 4:9) There are three important things that we must now discuss, and which Jehovah accomplishes through His Son, namely, (1) Providing a release from the power of death; (2) Restoring the dead to life; (3) Establishing a perfect government over all mankind.
+
+# RELEASE FROM DEATH
+
+33 From ancient times, God's prophets have expressed their confidence, not in man's immortality, but in the hope that God would "redeem them from death." (Hosea 13:14, AS) But how could man be released from the bonds of death? Jehovah's perfect justice required 'soul for soul, eye for eye, tooth for tooth.' (Deuteronomy 19:21) Hence, since Adam brought inherited death to all mankind by willfully throwing away his own perfect life, another perfect human must substitute for
+
+32. What glorious future awaits mankind and this earth?
+
+33, 34. (a) How only could man be redeemed from death? (b) Illustrate.
+
+---
+
+<sup>**Page 18**</sup>
+
+[Open Page 18 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=18)
+
+18
+
+Adam in paying over _his_ perfect life, to buy back what Adam had lost.
+
+$^{34}$ Let us illustrate this by a pawnshop. Since most people like to keep away from pawnshops, it may be fitting to describe man's present condition in this way. If someone leaves a watch at the pawnshop, the only way to get that watch out of the pawnshop again is by paying over the money value of the watch. Thus it is possible to free the watch. Today, mankind, like that watch, is tied up to pawnshop-like slavery to imperfection, leading to death, just as a watch might in time deteriorate and become useless in the pawnshop. Like the watch, mankind cannot buy itself out of this miserable state. However, someone from the outside can pay over the price of release of mankind, just as with the watch. It was the forfeit of Adam's perfect human life that brought man into slavery to death. Hence another perfect human life must be paid over to release man from the power of death.
+
+$^{35}$ However, where could such a perfect human life be found? All men, as descendants of the imperfect Adam, have been born imperfect. 'Not one of them can by any means redeem even a brother, nor give to God a ransom for him.' (Psalm 49:7) In answering the need, Jehovah performed one of his greatest miracles. He transferred the perfect life of his spirit Son, the Word, to the womb of a Jewish virgin, Mary. The young woman conceived, and in due course brought to birth a son, who was named 'Jesus,' meaning 'Jehovah is salvation.' (Matthew 1:18-25) Do you doubt this virgin birth, simply because such an event has taken place only once in history? In God's grand purpose, it was sufficient to perform such a miracle only once.
+
+35. How did Jehovah answer the need for a perfect human life as ransom?
+
+---
+
+<sup>**Page 19**</sup>
+
+[Open Page 19 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=19)
+
+"LOOKI I AM MAKING ALL THINGS NEW" 19
+
+³⁶ Jesus grew to manhood, dedicated himself to Jehovah and was baptized. Jehovah then commissioned him to do His divine will. (Matthew 3:13, 16, 17) Jesus' earthly life having come from heaven, and being perfect, he could sacrifice that perfect human life, using it to release all mankind from death. (Romans 6:23; 5:18, 19) As he himself said: "I have come that they might have life and might have it in abundance." "No one has love greater than this, that someone should surrender his soul in behalf of his friends." (John 10:10; 15:13) In submitting to death on a torture stake, Jesus showed his great friendship for all mankind who desire to gain life in abundance through his ransom provision.—Matthew 20:28; 1 Timothy 2:5, 6.
+
+# RESTORATION TO LIFE
+
+³⁷ Even though his enemies killed him, the Son of God never lost his right to perfect human life, for he had kept integrity to God. However, being dead in the grave, how could Jesus use this valuable thing, the right to human life, on behalf of humankind? It was here that Jehovah performed another miracle, the first of its kind. On the third day of Jesus' being in the grave, Jehovah raised him up out of death, this time as a spirit creature, immortal. (Romans 6:9; 1 Peter 3:18) In order to establish belief in the resurrection, Jesus materialized human bodies and appeared on different occasions to five hundred and more of his disciples. None of these, nor the apostle Paul who was later blinded by an appearance of the glorified Jesus, had any reason to doubt the miracle of his resurrection.—1 Corinthians 15:3-8; Acts 9:1-9.
+
+36. How did Jesus show his friendship for all men who desire life?
+
+37. How was the Son of God restored to life, and what proves this?
+
+---
+
+<sup>**Page 20**</sup>
+
+[Open Page 20 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=20)
+
+20
+
+$^{38}$ After forty days the resurrected Jesus ascended into God's own presence in the heavens, there to present the value of his perfect human sacrifice as a release for all mankind. 'But this man offered one sacrifice for sins perpetually and sat down at the right hand of God, from then on awaiting until his enemies should be made a stool for his feet.' (Hebrews 10:12, 13) The first ones to be released through this ransom are a 'little flock' of faithful Christians 'who belong to the Christ.' (Luke 13:32; 1 Corinthians 15:22, 23) These are 'purchased from among mankind,' and hence in the resurrection they become spirit associates of Christ in the heavens. (Revelation 14:1-5) However, what of the great masses of mankind who now lie dead in their graves? When he was on this earth, Jesus spoke of another great miracle to be performed at the time he restores the paradise earth. He said: 'Do not marvel at this, because the hour is coming in which all those in the memorial tombs will hear his voice and come out, those who did good things to a resurrection of life, those who practiced vile things to a resurrection of judgment.'—John 5:28, 29.
+
+$^{39}$ Note Jesus' words, 'Do not marvel at this.' Even so, how can one long dead be released from death, and brought back to life? Has not his body returned to the dust? Some of the particles that made up that body may even have been assimilated into other living things, such as plants and animals. However, resurrection does not mean bringing the same chemical elements together again. It means that God re-creates the same person, with the same personality. He brings a new body forth from the earthly elements, and in that body he places the same characteristics, the same dis-
+
+38. (a) How does Jesus use the value of his sacrifice, and first on behalf of whom? (b) What other great miracle did Jesus speak of?
+
+39, 40. Explain exactly what is meant by 'resurrection.'
+
+---
+
+<sup>**Page 21**</sup>
+
+[Open Page 21 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=21)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 21
+
+tinctive qualities, the same memory, the same life-pattern that the person had built up until the time of his death.
+
+40 It may have been your experience in wartime that your house that you loved very much was burned down. However, you could easily have the same house rebuilt, for the pattern of all its beloved details is very clear in your memory. Surely, then, God who is the originator of memory can re-create men whom he has kept in his memory because he loved them. (Isaiah 64:8) This is why the Bible uses the expression "memorial tombs." When it comes God's due time to bring the dead to life again, he will perform that miracle, just as he performed a miracle in creating the first man, only this time he will perform it many times over.—Genesis 2:7; Acts 24:15.
+
+41 God will bring mankind back to life, with the prospect of never again dying off the earth. But how is everlasting life on earth possible? It is possible and certain because it is the divine will and purpose. (John 6:37-40; Matthew 6:10) The only reason that man dies off the earth today is that he inherited death from Adam. However, when we consider the infinite variety of wonderful things on earth that man was intended to enjoy, a brief life span of less than a hundred years is all too short! In giving this earth to the children of men, God purposed that man should keep on living to enjoy the splendors of His creation, not just for a hundred years, or even a thousand years, but forever!—Psalms 115:16; 133:3.
+
+# THE PERFECT GOVERNMENT OF PEACE
+
+42 From the time that man lost the first paradise till now, human government has remained under
+
+41. Why is everlasting life on earth reasonable and certain?
+
+42. Why is there need for a perfect government, and what does Jehovah purpose in this regard?
+
+---
+
+<sup>**Page 22**</sup>
+
+[Open Page 22 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=22)
+
+22
+
+the control of Satan, 'the god of this system of things.' (2 Corinthians 4:4) The wars, the cruelties, the corruption and the instability of man's governments prove this fact. The League of Nations and the United Nations have failed to bring peace out of the confusion. Mankind cries out for a government of peace. Is it not reasonable that the Creator, who purposes to restore paradise to this earth, would also provide a perfect government for that paradise? That is exactly what Jehovah has purposed to do. The king representing him in this government is his 'Prince of Peace,' Christ Jesus, and 'to the abundance of the princely rule and to peace there will be no end.' —Isaiah 9:6, 7.
+
+$^{43}$ What will be the structure of that government? Will it be a democracy or a dictatorship? Will its ruling authority be situated in Washington or Moscow or Tokyo or any of the other great capitals of the present day? The Bible shows that the perfect government will be far superior to any present form of human government. It has a capital in the heavens, called Zion, and from this vantage point, the King Jesus Christ will effectively administer all the earth in righteousness. (Psalm 48:1, 2; Zechariah 9:9, 10, _AS_) Moreover, he will have associate rulers in that invisible, heavenly government. These are chosen from among faithful humans, followers of Jesus who stuck with him through trials, and to whom he says: 'I make a covenant with you, just as my Father has made a covenant with me, for a kingdom.' (Luke 22:28, 29) It is only a few from humankind who are taken to heaven to rule with Christ Jesus. It is similar to the nations today, where only a few are chosen to rule in the diet or
+
+43. (a) What capital will this government have? (b) What will be the structure of the government in heaven and on earth?
+
+---
+
+<sup>**Page 23**</sup>
+
+[Open Page 23 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=23)
+
+"LOOK! I AM MAKING ALL THINGS NEW"
+
+23
+
+parliament. The Bible shows that Christ Jesus will have just 144,000 associate rulers in his capital, Zion. (Revelation 14:1, 3) But will there be no visible administrators on this earth? To be sure, there will be. Psalm 45:16 speaks of some of these, ancient men of faith who will be resurrected, and whom the King will "appoint as princes in all the earth." And there will be other earthly administrators, none of them power-grabbing politicians, but all of them appointed by the King because of their devotion to principles of righteousness.
+—Isaiah 32:1.
+
+44 When and how is the perfect government established? When Jesus was on earth this kingdom was the main theme of his preaching. (Matthew 4:17; Luke 8:1) However, he did not establish the kingdom at that time, nor at his resurrection. (Acts 1:6-8) Even when he ascended again into the heavens, he must still wait for Jehovah's appointed time. (Psalm 110:1, 2) Bible prophecy shows that appointed time came in 1914 (A.D.). However, someone will ask, Rather than perfect government, did not 1914 mark the start of world woes? That is exactly the point! There is a close connection between the coming of God's kingdom and the catastrophic events of recent years, as we shall now see.
+
+45 For nearly forty years prior to 1914, The Watchtower (now the most widely distributed religious magazine on earth) had been calling attention to 1914 as a year marked in Bible prophecy. These prophecies began to have a remarkable fulfillment in 1914. One of these was Jesus' own prophecy, uttered 1,900 years ago, concerning the "sign" that would appear at the end of the world, and which would prove his invisible presence with
+
+44, 45. (a) What was the main theme of Jesus' preaching on earth? (b) Why must the establishment of the perfect government wait? (c) What makes A.D. 1914 an outstanding year in prophecy and in world events?
+
+---
+
+<sup>**Page 24**</sup>
+
+[Open Page 24 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=24)
+
+24
+
+kingly power. In answer to his disciples' question about this 'sign,' he said: 'Nation will rise against nation and kingdom against kingdom, and there will be food shortages and earthquakes in one place after another. All these things are a beginning of pangs of distress.' (Matthew 24:3, 7, 8) In striking fulfillment, the first of the 'world' wars started in 1914, bringing destruction four times greater than all the 900 wars of the preceding 2,500 years! Pangs of distress have continued ever since. Have you experienced the war destruction, food shortages or any of the great earthquakes that have plagued the earth since 1914? If so, you have been an eyewitness of the 'sign' of the 'time of the end' of this world.
+
+$^{46}$ The 'pangs of distress' have heightened through World War II, which was seven times as destructive as even World War I, and on into the nuclear age, fulfilling Jesus' further prophecy: 'On the earth anguish of nations, not knowing the way out . . . , while men become faint out of fear and expectation of the things coming upon the inhabited earth.' (Luke 21:25, 26) The increase in crime and wickedness, the disobedience and delinquency of children, and the growth of godlessness and immorality—these alarming developments were also foretold as marking the 'last days' of this evil world.—Matthew 24:12; 2 Timothy 3:1-5.
+
+$^{47}$ However, if the heavenly government was established in 1914, why is there all this distress on earth? It is Satan the Devil who is responsible. When Christ received Kingdom power, his first act was to wage war on Satan in the invisible heavens. As a result, Satan, 'who is misleading the entire inhabited earth,' was hurled with his
+
+46. How have events fulfilling the 'sign' intensified in recent years?
+
+47. Who is responsible for the woes on earth, and why have they increased since 1914?
+
+---
+
+<sup>**Page 25**</sup>
+
+[Open Page 25 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=25)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 25
+
+angels down to the vicinity of the earth. Knowing that his destruction draws near, he stirs up great trouble on earth. It is "woe for the earth and for the sea, because the Devil has come down to you, having great anger, knowing he has a short period of time."—Revelation 12:7-9, 12.
+
+48 Will there be an end to these woes? Yes!—when heaven's government itself, the Kingdom of Almighty God, goes into action to "bring to ruin those ruining the earth." (Revelation 11:18; Daniel 2:44) Never will God permit Communists, false Christians or anyone else to ruin his handiwork the earth with their nuclear devices. Rather, he declares: "My determination is to gather the nations, that I may assemble the kingdoms, to pour upon them mine indignation, even all my fierce anger." (Zephaniah 3:8, AS) Jehovah, through his Christ, will use great forces that he controls in nature in bringing overwhelming destruction to Satan and all who follow him on earth. It will be on a global scale, similar in magnitude to the flood of Noah's day.—Jeremiah 25:31-34; 2 Peter 3:5-7, 10.
+
+49 In the Bible this destruction of wicked nations is called God's battle of Armageddon. (Revelation 16:14-16) Only meek persons, who seek Jehovah and righteousness, may survive Armageddon into God's peaceful new world. (Zephaniah 2:3, AS; Isaiah 26:20, 21) Concerning these the Bible says: "But the meek ones themselves will possess the earth and they will indeed find their exquisite delight in the abundance of peace." (Psalm 37:11) The grand work of restoring paradise to the earth will then commence!
+
+48. (a) Will God permit selfish men to ruin this earth? (b) How, then, will Jehovah bring an end to the woes and those responsible for them?
+
+49. (a) What is "Armageddon"? (b) Who only may survive Armageddon?
+
+---
+
+<sup>**Page 26**</sup>
+
+[Open Page 26 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=26)
+
+26
+
+# **EDUCATION FOR ENTERING PARADISE**
+
+$^{50}$ Mankind is now passing through the most critical time in all history. Speaking of today's troubled world and the 'sign' of its approaching destruction, Jesus said: 'Truly I say to you that this generation will by no means pass away until all these things occur.' (Matthew 24:34) It is the generation of people now living who have the opportunity of learning the Bible and surviving the world's end. Jesus further prophesied concerning this day: 'And this good news of the kingdom will be preached in all the inhabited earth for the purpose of a witness to all the nations, and then the accomplished end will come.' (Matthew 24:14) The Society known as Jehovah's witnesses is vigorously doing this preaching work, with an ever-increasing band of 800,000 ministers active in 175 lands.—Isaiah 43:10-12.
+
+$^{51}$ Do you hear this witness? Do you realize its urgency? Do you want to survive out of this old world of confusion and sorrow into God's new world of peace and joy? Then you must act, and act immediately! You must study to find the true religion. It is no longer safe to regard religion as a kind of furniture, something that has always been in the house but is necessary in your life only as it performs some social function. Nor can you afford to think that all religions are good and that all have the same goal. Many religions are selfish, and modern religion has failed to teach the hope of God's new world, with its paradise earth. You must learn the Bible religion! Just as a proper secular education is necessary to fit a person for a place in everyday society, so a proper Bible education is necessary to equip one for entering the society that will survive to live in the paradise
+
+50. Why is this a most critical time, and hence what grand work is now being accomplished?
+
+51. What steps should men of good will now take with regard to religion, and why?
+
+---
+
+<sup>**Page 27**</sup>
+
+[Open Page 27 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=27)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 27
+
+earth. (John 17:3; 2 Timothy 3:16, 17) Your safety and the whole future of yourself and your family depend on now studying the Bible, associating with the New World society of Jehovah's witnesses, dedicating yourself to your Creator, Jehovah God, and witnessing for him. Do not let the pursuit of material things or the cares of life rob you of this wonderful opportunity of life. Said Jesus: "Keep on, then, seeking first the kingdom and his righteousness, and all these other things \[the material necessities] will be added to you."
+—Matthew 6:33.
+
+52 As you associate with Jehovah's witnesses and God's New World society, you will find it far different from any other society on earth. All in this society take to heart the first great command of the Bible: "You must love Jehovah your God with your whole heart and with your whole soul and with your whole mind." (Matthew 22:37) What overflowing love they have for their Creator, who gave them life, and who has also opened up the way to life in His new world, which includes the paradise earth! Moreover, they have great love for one another. (Matthew 22:39) This love and the practicability of uniting all mankind in love have been clearly demonstrated in their international assemblies. For example, over the eight days, July 27 to August 3, 1958, Jehovah's witnesses met in the Divine Will International Assembly in New York city. It was then that two great stadiums, Yankee Stadium and the Polo Grounds, presented the spectacle of crowds totaling between 180,291 on the opening day and 253,922 on the final day, meeting in grand harmony to receive further education in the Bible. From 123 different lands they assembled, all brothers, united in bonds of true Christian love!
+
+52, 53. In what respect is the New World society different from other societies, and how has this been proved?
+
+---
+
+<sup>**Page 28**</sup>
+
+[Open Page 28 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=28)
+
+28
+
+So impressive was this display of harmony, that a New York _Times_ report on the assembly was even incorporated in the U.S. Congressional Record, 1958, appendix, page A6907, from which portions are here quoted:
+
+$^{53}$ “WITNESSES STYLED CITY’S BEST GUESTS—180,000 AT WORLD ASSEMBLY WIN PRAISE FOR COURTESY, QUIETUDE, AND NEATNESS . . . New Yorkers are unanimous in agreeing that the Witnesses’ conduct has been exemplary. . . . Their cleanliness is now almost legendary. . . . Courtesy has been their watchword. . . . Executive vice president of the New York Convention and Visitor’s Bureau, called the Witnesses ‘an asset to the community.’ He described their behavior as ‘out of this world.’”
+
+$^{54}$ Yes, “out of this world,” for these witnesses of Jehovah, gathered from ‘all nations, tribes, peoples and tongues,’ have separated from the world that is passing away. ((Revelation 7:9; 1 John 2:15-17) Their hopes and affections are set on the glorious new world that Jehovah purposes to create. (Isaiah 65:17, 18) They are convinced of God’s promises, and those who expect to live on this earth hope also to survive the end of this world, and to live on into the new world without ever dying. (Hebrews 11:1, 6; John 11:26) Through the application of Christ’s sacrifice, they, together with the resurrected dead, will be renewed to human perfection. (Job 33:24, 25) Oh, happy, happy prospect!
+
+$^{55}$ Continue, then, to study, and to grow in love and appreciation of Jehovah God, and his Son, and the heavenly government of righteousness. In describing the New World government and the
+
+54. (a) Why do Jehovah’s witnesses separate from this world? (b) What happy prospect is in store for them?
+
+55. (a) What intimate relationship will there be between Jehovah and his worshipers on earth? (b) What are some of the blessings in store?
+
+---
+
+<sup>**Page 29**</sup>
+
+[Open Page 29 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=29)
+
+"LOOK! I AM MAKING ALL THINGS NEW" 29
+
+blessings it will shower on mankind, the Bible prophecy says: "Look! the tent of God is with humankind, and he will reside with them, and they will be his peoples. And God himself will be with them." "God himself," who is so far from the selfish, nuclear-crazed nations of this day, will be very close as a kind Father to all those who love and worship him in that new world. Indeed, there will be only the one religion, the true worship of Jehovah God, in the intimate relationship of children to Father. What a loving Father will he show himself to be! "And he will wipe out every tear from their eyes, and death will be no more, neither will mourning nor outcry nor pain be any more. The former things have passed away."—Revelation 21:3, 4.
+
+56 Thus the great miracle of establishing a paradise earth under a perfect heavenly government will be accomplished. It is as certain as that the sun will rise and set tomorrow. For the promises of Jehovah God, Creator of heaven and earth, are ever "trustworthy and true." He it is who declares from his throne in heaven: "Look! I am making all things new."—Revelation 21:5.
+
+56. How can we be absolutely certain that Jehovah will "make all things new"?
+
+---
+
+<sup>**Page 30**</sup>
+
+[Open Page 30 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=30)
+
+# 'Let God Be True'
+
+Already 16,167,846 copies out.
+
+Available in 48 languages.
+
+This far exceeds the combined circulation of the two top books in a half century of best sellers.
+
+This book of basic Bible doctrine answers such questions as: Who is God? How and why did he make man? Why are there wickedness and suffering on earth? When will these
+
+evil conditions end? How did the Devil come to be? Why do we die? What and where is 'hell'? Who go to 'heaven'? How should we pray? What must we do to get life?
+
+You will find satisfactory answers to these questions and more. Hard bound, gold-embossed cover, over 1,000 scriptures, 320 pages. 50c.
+
+## HOLY BIBLE
+
+New World Translation of the Holy Scriptures, in forceful modern English, bound in beautiful green cloth, gold stamped, published now in five volumes, one of the Greek Scriptures and four volumes of the Hebrew Scriptures (one more to be printed). \$1 each.
+
+Authorized (King James) Version, complete Bible, cross references, concordance. \$1.
+
+American Standard Version, complete Bible, cyclopedic concordance, footnotes, map. \$1.
+
+Emphatic Diaglott, Greek text, English. \$2.
+
+All Bibles on Bible paper, 4¾ x 7¼ inches.
+
+See addresses on opposite page for ordering the above.
+
+---
+
+<sup>**Page 31**</sup>
+
+[Open Page 31 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=31)
+
+CHIEF OFFICE AND OFFICIAL ADDRESS OF
+Watch Tower Bible & Tract Society of Pennsylvania
+Watchtower Bible and Tract Society of New York, Inc.
+International Bible Students Association
+124 Columbia Heights, Brooklyn 1, New York, U.S.A.
+
+# ADDRESSES OF BRANCH OFFICES:
+
+ARGENTINA: Calle Honduras 5646-48, Buenos Aires 14. AUSTRALIA: 11 Beresford Road, Strathfield, N.S.W. AUSTRIA: Gallgasse 44, Vienna XIII. BAHAMAS: Box 1247, Nassau, N.P. BELGIUM: 28 Ave. Gen. Eisenhower, Schaerbeek-Brussels. BERLIN, WESTERN GERMANY: 49-50 Bayernallee, Charlottenburg 9. BOLIVIA: Casilla No. 1440, La Paz. BRAZIL: Rua Licínio Cardoso 330, Rio de Janeiro. BRITISH GUIANA: 50 Brickdam, Georgetown. BRITISH HONDURAS: Box 257, Belize. BURMA: P.O. Box 62, Rangoon. CANADA: 150 Bridgeland Ave., Toronto 19, Ontario. CEYLON: 35 Beach Rd., Mount Lavinia. CHILE: Moneda 1702, Santiago. COLOMBIA: Apartado Aereo 2587, Barranquilla. COSTA RICA: Apartado 2043, San José. CUBA: Avenida 15 Núm. 4608, Almendares, Marianao, Havana. CYPRUS: Box 196, Famagusta. DENMARK: Kongevejen 207, Virum Copenhagen. ECUADOR: Casilla 4512, Guayaquil. EGYPT: Post Box 387, Cairo. EIRE: 86 Lindsay Rd., Glasnevin, Dublin. EL SALVADOR: Apartado 401, San Salvador. ENGLAND: Watch Tower House, The Ridgeway, London N.W. 7. FIJI: Box 23, Suva. FINLAND: Vainamoisenkatu 27, Helsinki. FRANCE: 3 Villa Guibert, Paris 16°. GERMANY (WESTERN): Am Kohlheck, (16) Wiesbaden-Dotzheim. GHANA, WEST AFRICA: Box 760, Accra. GREECE: No. 6 Kartali St., Athens 6. GUADELOUPE: B.P. 239, Pointe-à-Pitre. GUATEMALA: 11 Avenida 5-67, Guatemala 1. HAITI: Post Box 185, Port-au-Prince. HAWAII: 1228 Pensacola St., Honolulu 14. HONDURAS: Apartado 147, Tegucigalpa. HONG KONG: 312 Prince Edward Rd., Second Floor, Kowloon. ICELAND: P.O. Box 251, Reykjavik. INDIA: 167 Love Lane, Bombay 27. INDONESIA: Postbox 2105, Djakarta. ISRAEL: 31 Uno Ave., Haifa. ITALY: Via Monte Maloia 32, Rome 742. JAMAICA, W.I.: 41 Trafalgar Rd., Kingston 10. JAPAN: 1 Toyooka-Cho, Shiba-Mita, Minato-Ku, Tokyo. KOREA: P.O. Box 7, Sodaemunku P.O., Seoul. LEBANON: P.O. Box 1122, Beirut. LEEWARD ISLANDS, W.I.: Box 119, St. Johns, Antigua. LIBERIA: P.O. Box 171, Monrovia. LUXEMBOURG: rue Antoine Meyer 14, G.D. Luxembourg. MAURITIUS: 2 Arnaud St., Beau Bassin. MEXICO: Calzada Melchor Ocampo 71, México 4, D.F. MOROCCO: Alvaro Berecochea, B.P. 1028 Principal, Tangier. NETHERLANDS: Koningslaan 1, Amsterdam-Z. NETHERLANDS ANTILLES: Breedestraat 12, Otrabanda, Curaçao. NEWFOUNDLAND, CANADA: 239 Pennywell Rd., St. John's. NEW ZEALAND: 621 New North Rd., Auckland S.W. 1. NICARAGUA: Apartado 183, Managua, D.N. NIGERIA, WEST AFRICA: P.O. Box 194, Yaba, Lagos. NORTHERN RHODESIA: 84 King George Ave., Luanshya. NORWAY: Inkognitogaten 28 B., Oslo. NYASALAND: Box 83, Blantyre. PAKISTAN: 8-E Habibullah Rd., Lahore. PANAMA: Apartado 1386, Panama. PARAGUAY: Casilla de Correo 482, Asunción. PERU: Pasaje Velarde 165, Lima. PHILIPPINE REPUBLIC: 186 Roosevelt Ave., San Francisco del Monte, Quezon City. PUERTO RICO: 704 Calle Lafayette, Pda. 21, Urb. Hip., Santurce 34. SIERRA LEONE: Box 136, Freetown. SINGAPORE 15: 33 Poole Road. SOUTH AFRICA: Private Bag, P.O. Elandsfontein, Transvaal. SOUTHERN RHODESIA: P.O. Box 1462, Salisbury. SURINAM: Box 49, Weidestraat 82 B, Paramaribo. SWEDEN: Jakobsberg. SWITZERLAND: Allmendstrasse 39, Berne 22. TAIWAN (CHINA): No. 5, Lane 99, Yung-Ho St., Taipei. THAILAND: Box 67, Bangkok. TRINIDAD, W.I.: 21 Taylor St., Woodbrook, Port of Spain. UNITED STATES OF AMERICA: 117 Adams St., Brooklyn 1, N.Y. URUGUAY: Casilla de Correo 1375, Montevideo. VENEZUELA: Avda. Honduras, Quinta Luz, Urb. Las Acacias, Caracas, D.F.
+
+---
+
+<sup>**Page 32**</sup>
+
+[Open Page 32 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1959%20Look%20I%20Am%20Making%20All%20Things%20New%20%28mn59-E%29.pdf#page=32)
+
+**'Your Will Be Done on Earth,'** based on the prophecy of Daniel, is a revealing account of the nations' fatal struggle against God's righteous kingdom now at hand. To learn what God's will is for you, obtain and read this book.
+
+Hard bound, beautiful embossed cover in green with title stamped in gold, maps, chronological table, subject and scripture indexes. 50c.
+
+**From Paradise Lost to Paradise Regained,** is more than the thrilling story of the Bible in simple understandable language. It provides a complete explanation of the divine will as indicated in its title. It will answer your own Bible questions as well as those of your children.
+
+Hard bound, embossed coral cover, gold-lettered title, large print, illustrated throughout, 7½ x 9¼ inches, 256 pages. Sent postpaid, 75c.
+
+![img-1.jpeg](img-1.jpeg)
+
+See addresses on page 31 for ordering the above.

@@ -1,0 +1,160 @@
+---
+title: 2005 Branch CSA Guidelines S-66
+pages: 6
+tags:
+  - InternalDocuments
+  - Elders
+publish: true
+---
+
+<sup>**Page 1**</sup>
+
+[Open Page 1 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=1)
+
+# GUIDELINES FOR BRANCH SERVICE DESK USE ONLY—September 1, 2005
+
+Questions have come up with regard to the January 1, 1997, _Watchtower_ article “Let Us Abhor What Is Wicked.” Set out below are suggestions and guidelines that should help you in formulating answers to some of these questions. Following the information in the answer section, factors to consider when making decisions are offered. These comments are not to be included in the letters your service desk sends out to answer questions raised by those who make inquiries but are for the guidance of the service desk only.
+
+### _**1. According to the article, a former child molester does not qualify for a responsible position in the congregation. Does that mean he would automatically be disqualified even if the molestation took place before his becoming a baptized Christian?**_
+
+**Answer:** Not necessarily, because someone who has come into the truth has been ‘made new in the force actuating his mind and has put on the new personality.’ (Eph. 4:22-24) While he has been “washed clean” from sins committed prior to baptism, his past conduct could still have an effect on his qualifying for congregation responsibilities. (1 Cor. 6:11) Therefore, all of the factors would need to be carefully weighed. In any case, he should never be recommended hastily. In view of potential difficulty, while the elders make the recommendation, the final decision is always made by the branch office, not by the local elders.
+
+The following questions should be considered when determining whether he qualifies to serve: How many years ago did he commit the sin? What was the extent of the conduct? Was it a single incident, or was it repeated? What were the circumstances? What was his age at the time? What was the age of his victim? Is there an outcry about his situation? Were the authorities ever informed of his actions? If so, what action did they take and do they have him listed as a sex offender? How do the community and the secular authorities view him? If he were extended privileges would this be disturbing to others, including the victim(s) and their relatives? Has he given clear indication by his words and actions that he is now guided by God’s spirit? (Gal. 5:16; Rom. 8:5) Has he demonstrated that he is “self-controlled?” (Gal. 5:23; Titus 1:8) Does he have a reputation of being “free from accusation,” “irreprehensible,” “having a fine testimony from those on the outside?” (1 Tim. 3:1-7, 10; 5:22; Titus 1:7.). How do his victim(s) and/or relatives view him now? Are members of the congregation aware of what took place? How do they view him?
+
+As to determining how a former child molester is viewed, when the abuse took place many years ago there is no need for elders to conduct interviews either with members of the congregation or with the one(s) wronged or his or her relatives in order to determine what the current feeling is toward him. Doing so may bring up painful memories and cause further harm. Rather, from their own observation, elders are to explain the relationship between the victim and the former abuser.
+
+On the other hand, if the elders believe it is necessary or prudent to approach the injured party or his or her relatives, they should write the branch office for approval before doing so, providing the reasons why they believe it is necessary to do so. The branch office should consider very carefully how the victim or the victim’s family would potentially be affected if they were to be interviewed.
+
+### _**2. What if a man who molested a child before getting baptized is already serving in a responsible position? Must he now step aside?**_
+
+**Answer:** Possibly not, but it depends on the circumstances. The elders should consider the matter and make a recommendation to the branch office. (See the answer to Question 1.)
+
+**Factors to consider:** As with the previous situation, we believe there may be some circumstances that would enable him to continue serving. The elders would need to carefully consider the same questions and Scriptural principles outlined above. If he has served faithfully in a position of trust for many years, there is no evidence of repeating his past wrongdoing, his previous wrongdoing is known only by the respon-
+
+---
+
+<sup>**Page 2**</sup>
+
+[Open Page 2 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=2)
+
+Page 2
+
+sible brothers, the congregation has respect for him, there is no outcry, and everything else points to his currently enjoying Jehovah’s blessing, we think the branch office could allow him to retain his congregation privilege. Such a case could be decided on an individual basis.
+
+# **3. If a man molested a child many years ago after getting baptized, could he retain his privilege of service? If so, under what circumstances could he continue to serve? Is there a time limit on how long ago the offense must have occurred?**
+
+**Answer:** Yes, it is possible. The elders should carefully consider the matter and provide full details in making a recommendation to the branch office. (See the answer to Question 1.) The following example illustrates under what circumstances a man might continue to serve: A Christian may have sexually molested a child many years ago, perhaps even several decades. The matter was handled at that time by the congregation. Since that time, he has had an exemplary record of theocratic service and has been serving faithfully. He has not repeated the sin and there is no evidence that he is a threat to children. Over many years he has performed “works that befit repentance.” (Acts 26:20) In every respect, he has demonstrated himself to be chaste in conduct. All indications point to his having Jehovah’s blessing. Given these circumstances and the fact that no present questions are being raised about his qualifications nor is there a cry for his removal, we believe that he might continue to serve. Of course, each situation would be judged individually.
+
+**Factors to consider:** In the case of an individual who has committed child abuse while baptized, if twenty or more years have passed and the brother has built up a faithful record of service, there is no outcry, and everything else points to his currently enjoying Jehovah’s blessing, the branch office may decide a valid basis exists to allow him to continue to serve in a position of trust, if he otherwise qualifies
+
+If a former child molester continues in a position of responsibility—whether the sin occurred before or after baptism—there may be some serious problems if he later molests a child. This could bring great reproach on Jehovah’s name and it could affect the faith and confidence that our brothers have in Jehovah’s organization. So, the branch office is to consider this matter very carefully, considering all the potential implications and factors, before allowing a former child molester to serve.
+
+# **4. The article on page 29 states that a 'man known to have been a child molester' does not qualify for congregation privileges. What is meant by 'known?'**
+
+**Answer:** A man “known” to be a former child molester has reference to the perception of the community and the Christian congregation. It would be one who has sexually abused a minor and is still viewed negatively by the victim’s family, the congregation, or the elders; or one who is viewed by the community or secular authorities as someone who is a sexual abuser of minors, whether the abuse has been established by the congregation or not. Such a man is not “free from accusation,” “irreprehensible,” nor does he have “a fine testimony from those on the outside.” (1 Tim. 3:1-7, 10; 5:22; Titus 1:7) In view of his notorious past, people in the community would not respect him and the brothers may even stumble if he were appointed.
+
+**Factors to consider:** The term “known” needs to be qualified. At times, information regarding a man is known only to the elders. The fact that they have knowledge of his past sin should not automatically rule out his serving. There may be unusual circumstances that would indicate this is not necessary.
+
+# **5. From a theocratic standpoint, whom do we regard as a 'child molester?'**
+
+**Answer:** The February 1, 1997, _Watchtower_ “Questions From Readers” quotes _Webster’s Ninth New Collegiate Dictionary_, which defines “pedophilia” as “sexual perversion in which children are the preferred sexual object.” In referring to the article “Let Us Abhor What Is Wicked,” the above-referred to “Questions From Readers” made the point “that what _The Watchtower_ was discussing was a _child’s_ being made the ob-
+
+---
+
+<sup>**Page 3**</sup>
+
+[Open Page 3 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=3)
+
+Page 3
+
+ject of sexual abuse, including fondling, by an _adult_.” \[Italics ours.] The January 1, 1997, _Watchtower_ also refers to a child molester in the congregation as “a baptized _adult_ Christian.” Thus, from a theocratic standpoint, we would generally regard a “child molester” as an adult.
+
+In other words, child sexual abuse occurs when an adult uses a child to gratify his or her own sexual desires. It may involve what the Bible calls fornication, or _porōnei’a_, which could include manipulation of genitalia, sexual intercourse, and oral or anal sex. Some abusive acts may amount to what the Bible condemns as “loose conduct”, such as the fondling of breasts, explicitly immoral proposals, showing pornography to a child, voyeurism, and indecent exposure. (Gal. 5:19-21; see footnote on page 10 of the October 8, 1993, issue of _Awake!_) Since the adult involves a child in such activities, all of these actions would be considered child sexual abuse.
+
+Yet, the level of seriousness is not the same in every case. (For instance, an adult who rapes or fondles the genitalia of a child, would be much more culpable than someone who showed pornography to a child, even though such unclean actions could escalate.) Thus, the elders handling the matter would have to determine what the adult actually did.
+
+# **6. At what age would we regard a child molester an adult? Does the age of the child who is the “victim” play a factor?**
+
+**Answer:** The word “adult” is broadly defined, and so we cannot specify a certain age when one becomes an adult. From a legal standpoint, the definition depends on the country in which one lives. For instance, in the United States, one is generally viewed as an adult somewhere between the ages of 18 and 21. In other countries, the legal age may be defined differently. From a theocratic standpoint, the Bible does not indicate a specific calendar age at which time one enters adulthood. Therefore, each case would need to be dealt with on an individual basis.
+
+When judging whether an individual is a child molester, you would need to consider the ages of both the “molester” and the “child.” As pointed out in the March 14, 1997, letter to all bodies of elders, in judging cases of alleged child abuse, we are not referring to a situation where an adult has sexual relations with a consenting minor who is approaching adulthood and who is only a few years younger than the adult. Rather, we are referring to a situation where it is established that an adult brother or sister has been guilty of sexually abusing a young child or a non-consenting minor who is approaching adulthood. So it is important that the ages of both the “molester” and the “child” be considered. If some doubt existed as to whether an act constituted child molestation and whether privileges should be revoked, extended or retained by a man, the elders should refer the matter to the branch office and provide complete details.
+
+# **7. Should the elders ask a man who is reaching out for congregation privileges if he ever molested a child?**
+
+**Answer:** No. It is not the duty of elders to query an individual about whether he ever molested children. It would also not be appropriate for elders to meet with brothers reaching out for privileges to make them aware of what is stated in the January 1, 1997, _Watchtower_. The point the elders should have in mind is that they should avoid recommending any man “known” as a former child molester.
+
+**Factors to consider:** When the branch office approves a recommendation for one to be a ministerial servant or elder, we ask two elders to speak with a man before announcing his appointment. They will ask if there is anything in his past or in his personal or family life that would prevent him from being qualified to accept the appointment, or if there is any other reason why his appointment should not be announced. If he has never _previously served_ as an elder or a ministerial servant, the elders should specifically ask him if he has ever been involved in the past with child sexual molestation. If he confesses to sexually molesting a
+
+---
+
+<sup>**Page 4**</sup>
+
+[Open Page 4 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=4)
+
+Page 4
+
+child in the past, then the S-2 form is returned to the branch and the matter can be reconsidered. If the branch office is keeping track of such ones, as has been suggested, they would be aware of his past conduct if he is later recommended.
+
+# **8. What does page 29 mean when it says that a known child molester “cannot be a pioneer”?**
+
+**Answer:** It means that if in the perception of the community or in the minds of those in the congregation a man is “known” to be a former child molester, he would not qualify as an auxiliary or regular pioneer.
+
+**Factors to consider:** An auxiliary or regular pioneer is to be “an exemplary publisher.” A person guilty of child abuse is not exemplary and would therefore not meet the qualifications of a regular pioneer. (See the _Organized_ book page 113, paragraph 2.) It is also understood that a former child molester would not qualify as a special pioneer, a Bethel family member, an international servant, a missionary, for the traveling work, or any similar special full-time service. This would be so even if he is not perceived by the community to be a former child molester. However, if the offense was many years ago, the answers to Questions 1, 2, and 3 should be considered.
+
+# **9. The article says that a former child molester could “have parts on the Theocratic Ministry School and non-teaching parts in the Service Meeting.” What might these parts include? What other duties could he handle in the congregation? Are there other restrictions that would apply to him?**
+
+**Answer:** Anyone guilty of child molestation is not exemplary and so should not be extended to him any specific responsibility that could be construed as an assigned duty, even though some assignments might be considered minor. He should not be used to handle accounts, literature, magazines, or territories. Nor would he be used as an attendant, microphone handler, to operate sound equipment, to represent the congregation in prayer, or to present “Announcements” on the Service Meeting. He would not be used as the reader at the Congregation Book Study or _Watchtower_ Study, nor to conduct a meeting for field service. It would be advisable not to have a book study in his home. And, he would not qualify to auxiliary or regular pioneer. Whereas he could volunteer to assist with general care of the Kingdom Hall where he attends meetings, he could not be approved to work on other Kingdom Halls or Assembly Halls. He may give student talks on the Theocratic Ministry School and share in non-teaching parts on the Service Meeting, provided that his doing so will not be offensive to those in the congregation who know of his past wrongdoing. In any case, he would not be given a teaching part, one that would normally be assigned to an elder or a capable ministerial servant who has cultivated good speaking ability. (See “Question Box” in the February 1975 and October 1976 _Kingdom Ministry_.)
+
+Also, he should not be allowed to use the Kingdom Hall for his wedding. Since he is not in good standing and cannot be used in positions of responsibility within the congregation, it would be better for him to have the wedding ceremony in another location. Additionally, even if after many years have passed, it would not be good to have a book study in the home of a known child abuser since this may be a stumbling block for those who may know of brother’s past.
+
+**Factors to consider:** A Service Meeting teaching part would include being chairman of an introductory part on this meeting, presenting a talk, conducting an interview, and handling a question-and-answer part. He would not qualify for this. In the United States, there is little chance he could be used for such anyway because there is usually a sufficient number of elders and ministerial servants in each congregation to care for these parts. Logically, the expression “non-teaching parts” on the Service Meeting would primarily refer to participating in demonstrations or interviews under the direction of an elder or capable ministerial servant, as there is little else he could participate in on the Service Meeting. In the Theocratic Ministry School he could only give student talks.
+
+---
+
+<sup>**Page 5**</sup>
+
+[Open Page 5 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=5)
+
+Page 5
+
+# _**10. What procedure does the Society follow in handling letters of inquiry or reports that a publisher knows of an appointed one who molested a child in the past?**_
+
+**Answer:** If the inquirer telephones the branch office, he should be encouraged to put his comments in writing and to provide the branch office with the complete details. If the inquirer writes, we could answer in harmony with the Scriptural principles presented earlier.
+
+**Factors to consider:** It may be that letters will be received from publishers that say they know one who molested a child and he now has a congregation privilege. Some publishers have asked: ‘What responsibility do I have to report him?’ Others are very angry and have demanded his removal. Letters may be received from elders asking such questions and expressing similar views.
+
+The validity of the accusation(s) should be verified to the degree possible. In the case of an elder writing, he should ascertain any legal responsibility he may have to the report the matter to the authorities. If the individual writing has not already done so, he should notify the Legal Department. Individuals should not be discouraged from reporting matters to the authorities, but should be reminded of the need for confidentiality, especially when speaking with others, thus avoiding any charge of slander.
+
+# _**11. What can the congregation elders do to protect children?**_
+
+**Answer:** The elders should periodically remind parents of the need to review with their children articles in the organization’s publications. (You may refer them to pages 170-71 of the book _Learning from the Great Teacher_) Elders want to be alert to the activity of any who are known to have molested children in the past. As the January 1, 1997, _Watchtower_ points out on page 29: “True, not every child molester repeats the sin, _but many do_.” An individual who has manifested a weakness in this regard should be sensitive to his need to not be alone with children. He should refrain from holding or from displaying other forms of affection for children. He must recognize that he had a weakness in this area in the past. The advice at 1 Corinthians 10:12 is wise counsel for one who has shown this kind of weakness. In the spirit of Galatians 6:1 elders should kindly, but firmly, endeavor to readjust any who have had a problem in the past and seem to be showing affection to children or cultivating inappropriate association with such ones. It also would be appropriate for elders to kindly caution any who are doing things that may be a cause for concern to others in the congregation. (1 Cor. 10:32) By giving such specific, clear and pointed counsel, elders would be imitating Jehovah who gives specific advice to help his servants avoid temptation. (See the March 15, 1970, issue of _The Watchtower_ “Questions from Readers,” pages 190, 191.) At the same time, the response to this counsel by the former molester would be a basis for the elders to decide if he is determined to “abstain from every form of wickedness,” and to clear himself of even any hint of wrongdoing. Does he in every respect demonstrate himself to be chaste?—1 Thess. 5:22.
+
+When a former child molester (perhaps known only to the elders) begins attending congregation meetings, or a molester is shown mercy and not disfellowshipped, designated elders should kindly, but frankly, discuss with him what type of actions regarding children should be clearly avoided. This would include not allowing children (other than his own) to spend the night in his home, not cultivating friendships with children, and the like.
+
+Additionally, a former abuser should be told not to work alone with children in the field ministry. He should always be accompanied by another adult publisher who is in good standing in the congregation. This also applies to working with his own minor children in the field ministry. If he chooses to do so, there still should always be another adult present. This serves to protect the minor who might answer the door, the former abuser and the reputation of the congregation. In some cases, Caesar may place the restriction that a former abuser cannot engage in the house-to-house witnessing. (Rom. 13:1-7; Gal. 6:7) The elders could determine whether the restrictions apply to other forms of the field ministry such as telephone witnessing or
+
+---
+
+<sup>**Page 6**</sup>
+
+[Open Page 6 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/2005%20Branch%20CSA%20Guidelines%20S-66.pdf#page=6)
+
+Page 6
+
+letter writing. The elders may allow the individual to share in these forms of service alone if there is no objection from his parole officer or other government official or agency. If there is an objection, perhaps he can be allowed to participate in the company of another qualified adult publishers.
+
+**Factors to consider:** This direction could apply in several situations, such as: When a “known” former child molester begins attending congregation meetings; when a judicial committee determines that a child molester is repentant and will remain a member of the Christian congregation; when a child molester is disfellowshipped and later cleans up his life and is reinstated.
+
+Whenever the elders are notified of a known sex offender living in the territory, they are to mark the address on the territory card as a “Do Not Call.” Thereafter, two elders should visit these addresses every six months to a year to give the individuals an opportunity to hear the good news and verify whether the sex offender still lives there.
+
+### 12. What should be done if a former child molester moves to another congregation?
+
+**Answer:** The normal procedure of sending a letter to the new congregation should be followed. As outlined in the February 1991 _Our Kingdom Ministry_ “Question Box” and in the August 1, 1995, letter to all bodies of elders in the United States, our policy is always to send a letter of introduction when a publisher moves to another congregation. While this should be done in every case, it is imperative that this be done when one who is known to be a former child molester moves. On behalf of the elders, the Congregation Service Committee should write to the new congregation’s body of elders and outline the publisher’s background and what the elders in the former congregation have done to assist him. Any needed cautions should be provided to the new congregation’s body of elders. This information is for the use of the elders only, and should be kept in the congregation’s confidential files. The elders should send a copy of this letter to the branch office in one of the “SPECIAL BLUE” envelopes. If a “known” child abuser has moved and information about him has not been sent to the body of elders where he is now serving, then this should be done now.
+
+If more than 20 years have passed and a former child abuser has a good record in the truth, and the branch office decides that he could be appointed to a position of trust—such as an elder, ministerial servant, or regular pioneer—the congregation elders will not have to pass on information regarding the past sin to another congregation’s elders.
+
+**Factors to consider:** If an individual is disfellowshipped, there is no need to forward detailed information to another congregation until the individual submits a request for reinstatement. The elders in the new congregation should only be told that the individual was guilty of child abuse.
+
+We hope that these guidelines will help you in providing some direction and help to the brothers who write in from the field.
+
+Your brothers,

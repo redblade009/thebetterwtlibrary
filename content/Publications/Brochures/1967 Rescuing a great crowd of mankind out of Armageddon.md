@@ -1,0 +1,610 @@
+---
+title: 1967 Rescuing a great crowd of mankind out of Armageddon
+pages: 32
+tags:
+  - Brochures
+publish: true
+---
+
+<sup>**Page 1**</sup>
+
+[Open Page 1 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=1)
+
+# _Rescuing_
+
+A\
+GREAT CROWD OF\
+**MANKIND**\
+out of\
+**ARMAGEDDON**
+
+---
+
+<sup>**Page 2**</sup>
+
+[Open Page 2 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=2)
+
+RESCUING carries with it the thought of the danger of evil or violence, with even a threat to one's life. It is out of such that an imperiled person can be rescued, delivered. This thought therefore attaches a meaning to the Armageddon that you and others of mankind are now certainly facing. If we love life (and who does not?), we should want to be rescued. But what is there that we can do toward our rescue? This booklet contains, in brief, information that comes from an authoritative source. That is why we take pleasure in publishing it for millions of eager readers.
+
+—THE PUBLISHERS
+
+![img-0.jpeg](img-0.jpeg)
+
+COPYRIGHTED 1967 BY
+WATCH TOWER BIBLE & TRACT SOCIETY
+OF PENNSYLVANIA
+
+PUBLISHERS
+WATCHTOWER BIBLE AND TRACT SOCIETY
+OF NEW YORK, INC.
+
+Unless otherwise indicated, Scripture quotations are from the New World Translation of the Holy Scriptures, 1961 edition.
+
+Made in the United States of America
+
+---
+
+<sup>**Page 3**</sup>
+
+[Open Page 3 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=3)
+
+# RESCUING A GREAT CROWD OF MANKIND OUT OF ARMAGEDDON
+
+ARMAGEDDON, threatening though the name may sound, does not mean the wiping out of the race of mankind. The approaching war of Armageddon is, in reality, the forerunner of the happiest time for mankind in all human history. That is why a constantly increasing 'great crowd' of people today is looking forward eagerly to the coming of this universal war of Armageddon. For good sound reasons they hope to live through that war and see the prosperous, peaceful era that follows. We want you to be one of that happy, hopeful people.
+
+2 Armageddon is not something that we have imagined or invented. Armageddon, as the name of a battlefield, is more than eighteen hundred and seventy years old. The name occurs only once in a book of hundreds of pages that was completed just about that many years ago. Because of the connections that it has, the name strikes awe and wonderment into us when we read about it. It is not a name that we can lightly put out of mind. It stands for something that the race of mankind must eventually face. The time for us to face it and experience it is getting very near. We cannot now stop mankind's approach to it. It is a necessary calamity of world dimensions, but it is for mankind's everlasting good.
+
+1. Why is a growing crowd of people looking forward eagerly to the coming of the war of Armageddon?
+
+2. Why is Armageddon not something we have imagined, and why can we not lightly put it out of mind?
+
+3
+
+---
+
+<sup>**Page 4**</sup>
+
+[Open Page 4 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=4)
+
+4
+
+RESCUING A GREAT CROWD OF MANKIND
+
+³ Today mankind's life is threatened from two directions. No, we do not mean to say by this, from the Eastern bloc of communistic, totalitarian, dictatorial nations and from the Western bloc of democratic, imperialistic, capitalistic nations. Rather, we mean, from the direction of man himself and from the direction of the Creator of man. As regards creation, modern astronomy predicts that some distant day our Milky Way and other galaxies of the expanding universe are going to reverse the process and contract the universe and bring about its collapse in upon itself and thus crush our earth and its inhabitants. But not so! Our universe is in the control of its Creator, and in his loving and unchangeable purpose toward mankind he does not allow for such a catastrophe. How, then, is mankind threatened from the direction of God the Creator? On the other hand, how is mankind threatened from the direction of man himself? From which of these two directions will mankind be struck right soon, in a serious threat to the very existence of all mankind?
+
+⁴ When we look in the direction of man, we see evidence piling up that man's mismanagement of the earth threatens his own existence. The certainty of this has become undeniable since the epoch-making year of 1914. Hundreds of millions of persons still living vividly remember how in that year the first total war seized the whole globe in its embrace. The ghastly destruction of human life and property by World War I shocked
+
+3. From what two directions is mankind's life threatened, and why is astronomy's prediction of the fate of our universe not right?
+
+4. In what way is man's existence threatened by man himself, and why did not the League of Nations lessen this threat?
+
+---
+
+<sup>**Page 5**</sup>
+
+[Open Page 5 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=5)
+
+OUT OF ARMAGEDDON
+
+5
+
+political and religious leaders into setting up an international organization to safeguard world peace and security, the League of Nations. Total world war was not to occur again. Yet, despite the existence of an international peace organization, the nations thought it necessary to keep up strong defensive national armaments and to invent new weapons of warfare for mass slaughter of humankind. Finally, in less than twenty years, defiance was flung into the face of the League of Nations by ambitious rulers, and, in 1939, World War II began mowing down its fifty-six million victims.
+
+⁵ When World War II ended in September of 1945, while the explosion of two atomic bombs still echoed around the world, there were still 2,139,958,919 people left. These thousands of millions and their offspring the world rulers now sought to preserve by a new organization for world peace and security, namely, the United Nations, in 1945. In the next two decades, despite minor but dangerous wars and revolutions, a population explosion was to take place, bringing the world population by the year 1967 up to 3,285,000,000. (The World Almanac for 1946, New York, page 377; for 1967, page 379) Such rapid population growth, without proper birth control, presents the world with a grave food problem. Men now foresee a half-starved world before the passing of many years, with all the effects, economic, social, political and religious, that this would surely mean. National boundaries are not expanding or widening out to make room for growing populations, and our earthly globe is not getting bigger for more people.
+
+5. When and for whose benefit was the United Nations set up, and why have those protected by it presented a problem in themselves?
+
+---
+
+<sup>**Page 6**</sup>
+
+[Open Page 6 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=6)
+
+6
+
+RESCUING A GREAT CROWD OF MANKIND
+
+⁶ As in no previous century, the earth is becoming a place for machines and factories, employing chemical processes and, more recently, atomic processes. Mankind has had to pay dearly for this, because pollution of air, land and water has reached critical proportions. The need for the use of chemical pesticides has increased, apparently, and with regard to this a magazine headline said: "There's Poison All Around Us Now." It bespeaks danger.
+
+⁷ As regards air pollution, an American Secretary of Health, Education and Welfare recently warned that the peril from pollution is outpacing solutions at present, saying: "We are encouraged by the progress that we have made, but we have only begun to scratch the surface. The problem not only remains critical, it continues to grow at a faster rate than our efforts to cope with it." And a report made to the American government by the National Academy of Sciences declares that the time has come when mankind can be using the air, sea and land as his "trash basket" no longer. He will have to find ways to cycle his wastes, both solid and liquid, back into the economy. In certain respects, says the report on pollution, "the situation is unprecedented and becoming desperate." —New York Times, June 8, 1966, and April 1, 1966.
+
+⁸ Yes, catastrophe from insufficient food production and the general pollution of man's habitat is slowly but surely creeping up upon mankind.
+
+6, 7. (a) Why have measures taken against pests produced a danger? (b) What has been said recently by competent authorities about the pollution of man's habitat?
+
+8. In contrast with the above, what danger is there of sudden catastrophe world wide, and why shortly?
+
+---
+
+<sup>**Page 7**</sup>
+
+[Open Page 7 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=7)
+
+OUT OF ARMAGEDDON
+
+7
+
+But already worldwide danger exists of a sudden wave of violent destruction sweeping over the globe. Measured by the peacetime interval between World Wars I and II, our present world peace period since the close of World War II in 1945 has now “come of age,” as one magazine article worded it. A hypocritical peace period it has been, for it has been a time of international preparations for World War III, a war with horrifying chemical and pestilential means of mass killing, a war with radiation means of large-scale killing, a war exploding thunderous, blinding bombs that split atoms or fuse atoms, already stockpiled in such quantities that all mankind could be killed several times over, if they could repeatedly be restored from death to life.
+
+9 It is becoming easier and cheaper and more generally known how to make atomic bombs. There is a recognized danger of the multiplying of nations with the atomic bomb, of their own design and manufacture. This multiplication would increase the likelihood of a last world war, one with nuclear bombs. Further making of such bombs must be stopped. By a treaty between the nations there must be a ban put upon the proliferation of bombs by new nations acquiring the bomb, so the authorities of nations already possessing the bomb feel. Their fear is real. All nations, whether nuclear or non-nuclear, are equally in danger. This is why the matter was laid before the seventeen-nation World Disarmament Conference of the United Nations, with increasing urgency.
+
+9. Why is the likelihood of a last war between men increasing, and how do some nations feel about it?
+
+---
+
+<sup>**Page 8**</sup>
+
+[Open Page 8 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=8)
+
+8
+
+RESCUING A GREAT CROWD OF MANKIND
+
+10 In evidence of this the newspapers published the American proposal for an international treaty for a ban on the making of atomic weapons. When the World Disarmament Conference began sitting again in 1967 at Geneva, Switzerland, there was submitted to the Conference at its opening session on February 21 a written message from the American president. It was read by the head of the United States Arms Control and Disarmament Agency. In this message President Johnson dealt with objections raised by certain nations not having nuclear weapons to Washington's revised draft of a treaty forbidding the spread of nuclear weapons to additional nations. In the close of his message President Johnson referred to the equality of the common danger, an equality that shut out any choosing between the interests of those nations not having nuclear arms and the interests of those having such weapons.
+
+11 He said: 'Plain sanity calls for a halt to the competition in nuclear arms. There is nothing to choose here between the interests of the nuclear and the non-nuclear nations: There is a terrible and inescapable equity in our common danger. I wish you Godspeed in your work.'—New York Times, as of February 22, 1967.
+
+12 Those farewell words by the president suggested that God was interested in saving mankind by a ban on the spread of nuclear weapons or was using the seventeen-nation World Disarmament Conference to keep mankind from committing
+
+10, 11. (a) At the opening session of the World Disarmament Conference on February 21, what message from a head of government was read? (b) What 'equity' shared in by all nations was warned of?
+
+12. (a) What did President Johnson's farewell words suggest? (b) What did his warning show about the threat to mankind's life?
+
+---
+
+<sup>**Page 9**</sup>
+
+[Open Page 9 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=9)
+
+OUT OF ARMAGEDDON
+
+9
+
+suicide by nuclear warfare. Even if he is wrong in this idea, the president felt the terribleness of the situation and he could wish that Almighty God would help to prevent world catastrophe. For one thing, Johnson's warning joins with all the other reasons given above in showing that mankind's life is threatened from the direction of man himself. Will mankind destroy itself before God ever does so? That would occur if, as some theologians claim, 'God is dead.'
+
+### THREAT FROM THE DIRECTION OF GOD
+
+$^{13}$ However, is the life of world society today really threatened from the direction of God? To learn the answer to this question, we have to go to God's Word, the Holy Bible, as it sets forth prophecies for our day and our generation. Let no one scoff at the thought of going to the Bible for answers to modern-day questions. Scoffing will not turn aside the war of Armageddon about which the Bible speaks. Let the scoffer ask himself, Why does there exist today such a thing in the earth as a World Disarmament Conference? It is because the members of the United Nations feel that the nations should disarm. No scoffer can deny that never before have the nations been so heavily armed for warfare with the most destructive arms as now. Never before has so much of the money been spent by nations for armaments, some armaments-making nations supplying arms to smaller nations to help them to fight already raging wars or for future wars.
+
+13, 14. (a) As respects the threat to mankind from God, to what source of information should we go? (b) What cannot a scoffer deny about the world military situation today, and to what question does this lead?
+
+---
+
+<sup>**Page 10**</sup>
+
+[Open Page 10 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=10)
+
+10
+
+RESCUING A GREAT CROWD OF MANKIND
+
+$^{14}$ Never before has nationalism taken hold so strongly of all nations, even the newly emerging nations. The earth today is an armed camp, every nation in fear of all other nations or lacking confidence in them and even in the United Nations. Where are the world rulers and their armies marching, and why to that place?
+
+$^{15}$ The most widely distributed Book on earth today answers. Although completed nineteen centuries ago, that Book in its last chapters describes the worldwide situation of today and reveals where the rulers of the entire inhabited earth are leading their armed forces. In Revelation 16:13-16 this Book says:
+
+$^{16}$ “And I saw three unclean inspired expressions that looked like frogs come out of the mouth of the dragon and out of the mouth of the wild beast and out of the mouth of the false prophet. They are, in fact, expressions inspired by demons and perform signs, and they go forth to the kings of the entire inhabited earth, to gather them together to the war of the great day of God the Almighty. . . . And they gathered them together to the place that is called in Hebrew Har-Magedon.”
+
+$^{17}$ Propaganda that induces the kings of the earth to undertake a universal war is undeniably demonic, inhuman. But where is it that the demonized inspired expressions lead these rulers at the head of their armies? It is to a place or a situation that the Hebrew Christian, the apostle John,
+
+15, 16. What kind of book answers that question, and what does it say in Revelation 16:13-16?
+
+17. (a) What kind of propaganda leads the kings and armies to the field of battle? (b) What is the war sometimes called, who is the common enemy, and for whom will it be a “great day”?
+
+---
+
+<sup>**Page 11**</sup>
+
+[Open Page 11 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=11)
+
+OUT OF ARMAGEDDON
+
+11
+
+calls Har-Magedon (or, according to some translations, Armageddon). That is where the final war of these earthly rulers and their armies is to be fought to a finish. But who is their common enemy? Whom are they opposing? It is God the Almighty, for this is called the “war of the great day of God the Almighty.” For whom will it be a great day? Not for these kings and their armies, but for God the Almighty! And because the war is waged at Armageddon, it is often called the war or battle of Armageddon.
+
+¹⁸ Does anyone laugh at the idea that earthly kings and their armies will fight against the invisible God, the Creator of the universe? Such laughter can be squelched by cases in recorded human history of where men have fought God. Egypt’s Pharaoh of the sixteenth century before our Common Era did it and suffered the consequences. King Sennacherib of the Assyrian Empire of the eighth century B.C.E. did it, and lost 185,000 of his troops in one night. So what about today? Well, today the earthly rulers and their armies are threatening the very existence of all men by modern-day scientific means. In this are they doing the will of God the Almighty? By keeping the whole human race divided and full of mutual hostility by means of maintaining jealous national governments, are the world rulers, backed up by their armies, acting in harmony with God’s will?
+
+¹⁹ They may patriotically mouth the slogan, “For God and Country,” but are the human rulers
+
+18. (a) Why is the matter of nations fighting against God not a subject for laughter? (b) In what important respects are nations not doing God’s will?
+
+19. (a) While mouthing the expression “For God and Country,” what do nations do about their countries? (b) Hence, what witness do they not accept?
+
+---
+
+<sup>**Page 12**</sup>
+
+[Open Page 12 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=12)
+
+12
+
+RESCUING A GREAT CROWD OF MANKIND
+
+of the earth trying really to keep their country from getting into the hands of God? Do they deny to the Creator the possession of his own creation, our earth, all countries of it? As long as the nations are stoutly insisting upon their own national sovereignties, are they challenging God's rightful sovereignty over the earth? And by their armed forces are they trying to prevent a complete takeover of all the earth by its Creator God, the Universal Sovereign? Yes, and that is why they do not accept 'this good news of the kingdom,' which Jesus Christ said would be preached in all the inhabited earth for a witness to all the nations before the end comes on the present system of things.—Matthew 24:14; Mark 13:10.
+
+20 Beyond all question of doubt, the kings and their armies are lining up to present a united front against God the Almighty at Armageddon. God's own Book, the Holy Bible, says that it is against him and his Son, earth's future King, that all earthly rulers, their armies and their supporters fight at Armageddon. The last book of the Holy Bible boldly declares that fact before the faces of the rulers of Christendom and of pagandom. If they refuse to read it and see the application of it to themselves, let us here read it:
+
+21 'And I saw the heaven opened, and, look! a white horse. And the one seated upon it is called Faithful and True, and he judges and carries on war in righteousness. . . . and the name he is called is The Word of God. Also, the armies that were in heaven were following him on white horses, and they were clothed in white, clean,
+
+20, 21. (a) Against whom, then, does the Bible plainly say that rulers of Christendom and pagandom will fight? (b) In proof of this, what does Revelation 19: 11-16 say?
+
+---
+
+<sup>**Page 13**</sup>
+
+[Open Page 13 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=13)
+
+OUT OF ARMAGEDDON
+
+13
+
+fine linen. And out of his mouth there protrudes a sharp long sword, that he may strike the nations with it, and he will shepherd them with a rod of iron. He treads too the press of the wine of the anger of the wrath of God the Almighty. And upon his outer garment, even upon his thigh, he has a name written, King of kings and Lord of lords. . . .
+
+22 'And I saw the wild beast and the kings of the earth and their armies gathered together to wage the war with the one seated on the horse and with his army. And the wild beast was caught, and along with it the false prophet that performed in front of it the signs with which he misled those who received the mark of the wild beast and those who render worship to its image. While still alive, they both were hurled into the fiery lake that burns with sulphur. But the rest were killed off with the long sword of the one seated on the horse, which sword proceeded out of his mouth. And all the birds were filled from the fleshy parts of them.'—Revelation 19:11-21.
+
+23 That is the final war of Armageddon, according to inspired Bible prophecy. The earthly rulers and their armies will get no glory out of it. The long sword of judgment out of the mouth of the victorious King of kings and Lord of lords will sentence them to destruction, and his angelic armies will execute that sentence. The destruction of the opposers of God's kingdom there at Armageddon will include not just the kings or rulers and their armies. According to the words uttered
+
+22. According to Revelation 19:17-21, what happens to those who do the fighting on earth?
+
+23. How will the 'great evening meal of God' be provided at Armageddon, and by means of whom will God be vindicated, and in what respect?
+
+---
+
+<sup>**Page 14**</sup>
+
+[Open Page 14 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=14)
+
+14
+
+RESCUING A GREAT CROWD OF MANKIND
+
+by God's angel, it includes military commanders, strong men, horses and those seated on them, freemen and slaves, and persons small and great. Their unburied bodies will serve as the 'great evening meal of God' that he will provide for creatures that live on carrion, because God is the One that is responsible for the slaughter. (Revelation 19:17, 18) Such a victory will mark the 'great day' of God the Almighty. By means of Jesus Christ the King of kings and Lord of lords, Almighty God will vindicate his own universal sovereignty!
+
+24 In the light of that prophetic revelation, do we appreciate the seriousness of what is ahead? That coming war of Armageddon means the climax of a time of trouble such as never has afflicted mankind before. Earthly rulers are merely trying to avoid a major conflict among themselves. But they are not trying to avoid this major conflict with the Almighty God the Creator. Into what, then, are the human rulers leading their armies and the rest of mankind, under the propagandistic expressions inspired by demons? It is into a destruction the threat of which comes from the direction of God. There will be no escape for the present system of things and for those who support it. Is it any wonder that there is dire need for persons to be rescued out of Armageddon?
+
+### THE DIRE NEED FOR RESCUE!
+
+25 Jesus Christ, now resurrected from his sacri-
+
+24. (a) What kind of conflict are the nations trying to avoid today? (b) Why is there dire need for persons to be rescued out of Armageddon?
+
+25, 26. (a) At Armageddon who will prove to be King of kings and Lord of lords, and how? (b) With what warning did he foretell this time of tribulation and its climax, in Matthew 24:19-39?
+
+---
+
+<sup>**Page 15**</sup>
+
+[Open Page 15 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=15)
+
+OUT OF ARMAGEDDON
+
+15
+
+ficial death and glorified in the heavens, is commissioned to fight that war of Armageddon. There this once sacrificed 'Lamb of God' will prove himself to be King of kings and Lord of lords, for no earthly kings and lords will be able to stand against him and win. (John 1:29, 36; Revelation 17:14) As God's greatest Prophet he foretold this war of Armageddon, for God used him nineteen hundred years ago to deliver the Revelation that contains the name and description of Armageddon. (Revelation 1:1; 22:16, 20) Besides that, three days before his sacrificial death outside the walls of Jerusalem, he foretold this present period of world tribulation and its grand climax at Armageddon and called it an unequaled trouble. He said:
+
+26 'Woe to the pregnant women and those suckling a baby in those days! Keep praying that your flight may not occur in wintertime, nor on the sabbath day; for then there will be great tribulation such as has not occurred since the world's beginning until now, no, nor will occur again. In fact, unless those days were cut short, no flesh would be saved; but on account of the chosen ones those days will be cut short. . . . Concerning that day and hour nobody knows, neither the angels of the heavens nor the Son, but only the Father. For just as the days of Noah were, so the presence of the Son of man will be. For as they were in those days before the flood, eating and drinking, men marrying and women being given in marriage, until the day that Noah entered into the ark; and they took no note until the flood came and swept them all away, so the presence of the Son of man will be.'—Matthew 24:19-39.
+
+---
+
+<sup>**Page 16**</sup>
+
+[Open Page 16 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=16)
+
+16
+
+RESCUING A GREAT CROWD OF MANKIND
+
+27 The great flood of Noah's day was, up till then, an unparalleled catastrophe for man. That was sixteen hundred and fifty-six years after man's creation. At that time earth's population was not as great as now, more than forty-three centuries after the Flood. Hence more human lives are threatened, for, like the flood of Noah's day, the war of Armageddon will affect the whole earth. No country or place of this inhabited earth will be excepted. No opposers, no persons not on the side of God's kingdom and of his anointed King Jesus Christ, will be overlooked. The loss of human life will be without equal in man's history.
+
+28 There will be no confused, accidental, indiscriminate killing of earth's inhabitants as it would be in a third world war with tremendous explosives delivered by missiles, disease germs, chemical gases and poisons, and radiological means. At Armageddon Jehovah God will fight by means of his Warrior Jesus Christ against his enemies, against the friends of this misguided world, not against his own friends. Remember Noah and his family, eight human souls all together, in the ark during the watery cataclysm of forty days over all the earth! They are a picture of hope.
+
+29 Will there, then, be survivors on earth of the war of the great day of God the Almighty at Armageddon? Almighty God's own infallible written Word answers Yes! Jesus Christ compared the days of his second presence and of his coming
+
+27. As to loss of human life, how do the flood of Noah's day and the war of Armageddon compare?
+
+28. Will the killing off of people at Armageddon be indiscriminate?
+
+29. (a) Jesus' comparison of the days of his second presence with the days of Noah indicates hope of what survival? (b) Why will the war of Armageddon remain without equal as a human catastrophe?
+
+---
+
+<sup>**Page 17**</sup>
+
+[Open Page 17 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=17)
+
+OUT OF ARMAGEDDON
+
+17
+
+to the war of Armageddon to the days of Noah in connection with the Flood. Correspondingly, if there were eight survivors of that flood, then there should be survivors of the second presence of the Son of man and the events marking it. The apostle Peter, whose two inspired letters are a part of the Holy Bible, says: God 'did not hold back from punishing an ancient world, but kept Noah, a preacher of righteousness, safe with seven others when he brought a deluge upon a world of ungodly people.' (2 Peter 2:5) The coming war of Armageddon will be worse than that flood or any other trouble or tribulation 'since the world's beginning until now.' There will never occur again a tribulation like it, because there will be no need for it. As in Noah's day, any humans surviving the war of Armageddon will have to be rescued out of it. Some will be!
+
+### TO THE RESCUE!
+
+$^{30}$ Do not laugh and treat what we say as a joke, in the way that the sons-in-law of the patriarch Lot thought that he was joking when he warned them that their city of Sodom would be destroyed the following morning by a rain of sulphury fire from heaven. We are not joking. The Bible is not joking. The worldly scoffers of this present system of things are doomed, for human society is facing Armageddon, 'the war of the great day of God the Almighty.' Persons who take the standpoint of the Bible and watch what is going on in the world can clearly see that all earthly kings and their armies are on the march to Armageddon, in defiance of Jehovah God and his Christ, 'the
+
+30. Why should people not treat as a joke what we say, and why should people take the Bible standpoint and take note of what is going on?
+
+---
+
+<sup>**Page 18**</sup>
+
+[Open Page 18 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=18)
+
+18
+
+RESCUING A GREAT CROWD OF MANKIND
+
+King of kings.” In Noah’s day the people took no note. For your own sake, you take note now!
+
+$^{31}$ What would you do if you were doomed to destruction and the army of executioners was headed in your direction and getting dangerously close? Would you show that you love life and so do your utmost to have your life spared, to be rescued from the threatening destruction? Or is it that you just do not care and you are indifferent about living forever in a paradise earth in unspeakable happiness under a perfect government?
+
+$^{32}$ If God means anything to you, if pleasing him and worshiping him correctly means anything to you, if an opportunity for perfect life in endless felicity means anything to you, will you show the practical wisdom and take the urgent action of the people of ancient Gibeon in the Middle East? We refer to that ancient city because what happened there during the invasion of the land of Palestine by the Hebrews in the fifteenth century before our Common Era was prophetic, full of meaning for us today.
+
+$^{33}$ Testifying to that fact is the prophecy found in Isaiah 28:21, 22, which reads: “Jehovah will rise up just as at Mount Perazim, he will be agitated just as in the low plain near Gibeon, that he may do his deed—his deed is strange—and that he may work his work—his work is unusual. And now do not show yourselves scoffers, in order that your bands may not grow strong, for there is an extermination, even something decided upon,
+
+31, 32. (a) What two attitudes are there to take when one knows that one is doomed and the executioners are getting near? (b) Why do we refer to Gibeon of the fifteenth century B.C.E.?
+
+33. How does the prophecy of Isaiah refer to the typicalness of ancient Gibeon, and so whom should people today imitate?
+
+---
+
+<sup>**Page 19**</sup>
+
+[Open Page 19 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=19)
+
+OUT OF ARMAGEDDON
+
+19
+
+that I have heard of from the Sovereign Lord, Jehovah of armies, for all the land." So to escape extermination, let people act like Gibeonites!
+
+34 The Gibeonites knew that all the inhabitants of the land of Canaan were doomed to destruction, for they were squatters in the land that Jehovah God had promised to give to the descendants of the patriarch Abraham. Those Canaanites were a cursed people from after the flood days of Noah, and now their iniquity and immoral wrongdoing had come to the full. Jehovah God the Creator and Owner of all the earth had decreed destruction for these worshipers of false gods. Accordingly, he appointed the Hebrews under Joshua, the successor of Moses, to be the executioners of these cursed squatters in Canaanland.—Genesis 9:20-27; 15:12-21.
+
+35 The cities of Jericho and Ai had already fallen to the advancing executioners, and their inhabitants had been exterminated. The Gibeonites attributed these smashing victories to the Almighty God Jehovah, and they recalled how He had even brought the Hebrews through the depths of the Red Sea, whereas the pursuing Egyptians were drowned like rats in its waters. The Gibeonites knew that they could not successfully resist the Almighty God and his executional armies under General Joshua. The Gibeonites knew that they were in line for extermination, as soon as Joshua and his armies found their city and three neighboring cities.
+
+34. What did those Gibeonites know about their standing before the God of the Hebrews?
+
+35. Did the Gibeonites believe that they could successfully resist the executional armies under Joshua, and by what was their belief guided?
+
+---
+
+<sup>**Page 20**</sup>
+
+[Open Page 20 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=20)
+
+20
+
+RESCUING A GREAT CROWD OF MANKIND
+
+$^{36}$ The Gibeonites were not like many persons of today who just “don’t care.” The Gibeonites loved life. They preferred to live, even if it meant living as slaves under the Hebrews and their God Jehovah, rather than to be dead as executed cursed Canaanites. Although the Gibeonites were not entitled to be admitted into a treaty with General Joshua for the preservation of their lives, they thought that they would at least try to bring about such a treaty. But how? By trickery! Not to the hurt of Jehovah’s people, however. They sent ambassadors to Joshua, some twenty miles away at Gilgal near the Jordan River, and these pretended that their city lay outside the area of the doomed Canaanites and could therefore enter into a mere friendship treaty with the Hebrews.
+
+$^{37}$ The ambassadors said: “It is from a very distant land that your servants have come in regard to the name of Jehovah your God, because we have heard of his fame and of all that he did. . . .” (Joshua 9:9) Because the Hebrews were persuaded by the arguments of the Gibeonites’ ambassadors, Joshua and his chieftains entered into a treaty of friendship with these plenipotentiary ambassadors of Gibeon. Three days later Joshua learned that he and his people had been tricked into this treaty. However, because they had sworn to the Gibeonites by the name of Jehovah, the God of Israel, they kept the terms of that treaty. They did not destroy Gibeon and its neighbor cities, but they made the inhabitants thereof slaves with certain duties to perform, including
+
+36, 37. (a) What attitude did the Gibeonites take toward life, and hence what did they do at once? (b) After reaching the city of Gibeon days later, how did Joshua deal with the Gibeonites?
+
+---
+
+<sup>**Page 21**</sup>
+
+[Open Page 21 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=21)
+
+OUT OF ARMAGEDDON
+
+21
+
+the providing of firewood for Jehovah's altar of sacrifice.
+
+38 Because the Gibeonites had arranged to become slaves of Jehovah God and his people, five kings of the south joined together and laid siege to Gibeon. The Gibeonites refused to surrender to these five pagan kings, for they knew that to do so would not spare them from extermination at last by Jehovah's executioners. They sent to Joshua and called for help. Joshua and his army made a forced march by night all the way from Gilgal. They surprised the besiegers of Gibeon. Then Jehovah himself went into action and threw the besiegers into confusion. As they fled, Joshua's forces slaughtered some of them. Then, as the battle account reads, 'Jehovah hurled great stones from the heavens upon them as far as Azekah, so that they died. There were more who died from the hailstones than those whom the sons of Israel killed with the sword.'
+
+39 The ordinary day was not long enough for Joshua and his men to pursue and kill all the enemy. So Joshua called upon Jehovah God to perform a miracle and lengthen the daylight. With full faith in the Creator of the sun, moon and stars, Joshua said: 'Sun, be motionless over Gibeon, and, moon, over the low plain of Aijalon.' In that remarkable command Joshua was scientifically correct, for the moon as well as the sun was involved in this rare miracle. Joshua 10:12-14 says: 'And the sun kept standing still in the middle of the heavens \[from Joshua's standpoint
+
+38. For this, who threatened the lives of the Gibeonites, and how was their rescue brought about?
+
+39. (a) What miracle did Joshua ask to be performed at Gibeon, and why? (b) For whom was Jehovah fighting at that time?
+
+---
+
+<sup>**Page 22**</sup>
+
+[Open Page 22 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=22)
+
+22
+
+RESCUING A GREAT CROWD OF MANKIND
+
+on earth] and did not hasten to set for about a whole day. And no day has proved to be like that one, either before it or after it, in that Jehovah listened to the voice of a man, for Jehovah himself was fighting for Israel.” But at the same time that he was fighting victoriously for the Israelite executioners, Jehovah was also fighting for the life of the Gibeonites who feared him and who chose to become his slaves.—Joshua 9:1 to 10:27.
+
+### A “GREAT CROWD” OF SURVIVORS
+
+$^{40}$ That miraculous rescue of the Gibeonites was prophetic of the modern-day rescue of a “great crowd” of survivors out of the “war of the great day of God the Almighty” at Armageddon. (1 Corinthians 10:11; Isaiah 28:21, 22)\* The only book in the Bible that names Armageddon describes also the earthly survivors of the world’s greatest tribulation as a “great crowd.” Just as those ancient Gibeonites, so all those in that “great crowd” need to do something to be rescued from destruction at Armageddon. The Gibeonites took time by the forelock and took advance steps in order to procure a treaty of salvation. If they had waited until Joshua and his executional army found the location of their city and laid siege to it, that would have been too late to escape destruction.
+
+$^{41}$ No less so, those who desire to be among the
+
+\* See pages 239 ¶14 to 244 ¶22 of Chapter 14 entitled “The Flight to Safety,” of the book _You May Survive Armageddon into God’s New World_, published in 1955 by the Watch Tower Society.
+
+40. (a) What does the miraculous rescue of the Gibeonites picture? (b) What was first necessary on the part of the Gibeonites?
+
+41. (a) Likewise, what must those who want to be among the “great crowd” now do? (b) What warning with reference to his coming to the war of Armageddon did the Greater Joshua give?
+
+---
+
+<sup>**Page 23**</sup>
+
+[Open Page 23 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=23)
+
+OUT OF ARMAGEDDON
+
+23
+
+“great crowd” of Armageddon survivors need to take advantage of the present favorable time for entering into peaceful, friendly relations with the One who was foreshadowed by Joshua of ancient time, who acts as the great Executioner for Jehovah God. Who is that? The very name suggests him. Joshua, in the Hebrew Bible, is given in the Greek translation of the Hebrew Scriptures as Jesus. This is also what Joshua is called in the Greek Scriptures as written by the disciples of Jesus Christ. (Acts 7:45; Hebrews 4:8) When he was revealing in advance the marching of the kings and their armies to Armageddon, this Greater Joshua, Jesus Christ, gave us this warning: “Look! I am coming as a thief. Happy is the one that stays awake and keeps his outer garments, that he may not walk naked and people look upon his shamefulness.” (Revelation 16:15) His coming to the war of Armageddon will take the world by surprise, as the Flood took unobserving people in Noah’s day by surprise.
+
+### WHAT THE “GREAT CROWD” DOES TODAY
+
+$^{42}$ What, then, should people today do? The revelation by the Greater Joshua, Jesus Christ, indicates this. The one seeing the revelation writes: “Look! a great crowd, which no man was able to number, out of all nations and tribes and peoples and tongues, standing before the throne and before the Lamb, dressed in white robes; and there were palm branches in their hands. And they kept on crying with a loud voice, saying: ‘Salva-
+
+42, 43. According to Revelation 7:9, 10, to what do the “great crowd” direct their attention, and what acknowledgment like that of the Gibeonites do they make?
+
+---
+
+<sup>**Page 24**</sup>
+
+[Open Page 24 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=24)
+
+24
+
+RESCUING A GREAT CROWD OF MANKIND
+
+tion we owe to our God, who is seated on the throne, and to the Lamb.'"—Revelation 7:9, 10.
+
+43 This unnumbered "great crowd" is a world-wide crowd, not having any racial discrimination among themselves. Unitedly they turn their attention, not to Washington, D.C., or London, England, or Moscow, Russia, or Paris, France, or any other national capital, but to God's throne, the seat of Government of heaven and earth. Similarly to what the ancient Gibeonites did, they publicly acknowledge God as the Universal Sovereign, and that he is the Source of their everlasting salvation. They also openly declare that this salvation comes to them from God through his once sacrificed Lamb, Jesus Christ, the Greater Joshua.
+
+44 Instead of saluting any human creatures or emblems, they are waving their palm branches as they hail the great God who sits on the heavenly throne. To him they ascribe their salvation through his sacrificial Lamb, Jesus Christ. So they have a clean appearance in God's sight, for they are "dressed in white robes." How can they have such a clean appearance before God the Most Holy One? We are told in these words, in Revelation 7:14: "These are the ones that come out of the great tribulation, and they have washed their robes and made them white in the blood of the Lamb."
+
+45 They acknowledge the human sacrifice that Jesus Christ offered nineteen centuries ago, when he died on the execution stake outside the walls of Jerusalem. They recognize that Almighty God declared his Lamblike Son to be innocent by
+
+44, 45. (a) Whom do the "great crowd" hail or salute? (b) How is their clean standing before God pictured, and how do they gain such a clean appearance?
+
+---
+
+<sup>**Page 25**</sup>
+
+[Open Page 25 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=25)
+
+OUT OF ARMAGEDDON
+
+25
+
+raising him from the dead on the third day and then inviting him back to heaven, where he presented the value of his human sacrifice to God in behalf of all humankind, people of all nations, tribes, peoples and tongues. Since they confess that they are born sinners and that the sacrificial blood of Jesus Christ purifies them from the stain of sin, they dedicate themselves fully to God to be his slaves, purchased by the redeeming blood of Christ. This complete dedication of themselves forever to God they publicly declare by being baptized in water, as Jesus the Lamb of God himself was. People today who do not do these things pictured in the Holy Bible cannot identify themselves as part of that 'great crowd.'
+
+46 We remember that the Gibeonites of Joshua's day had their lives spared to serve as slaves to fetch water and to collect firewood for the sacrificial altar in Jehovah's temple. A thousand and eighteen years after Joshua spared them, the Gibeonites were even privileged to join the Jewish Governor Nehemiah in rebuilding the walls of Jerusalem, in addition to their service at Jehovah's temple. (Nehemiah 3:7; 7:25) Quite agreeably with this it is said of the 'great crowd,' who were prefigured by the Gibeonites: 'That is why they are before the throne of God; and they are rendering him sacred service day and night in his temple; and the one seated on the throne will spread his tent over them.'—Revelation 7:15.
+
+47 At the present time before Armageddon this 'great crowd' must serve Jehovah God in con-
+
+46. What service were the ancient Gibeonites spared to do in Israel, and how does this agree with what is said in Revelation 7:15?
+
+47. How do those of the 'great crowd' serve God constantly in his temple and before his throne?
+
+---
+
+<sup>**Page 26**</sup>
+
+[Open Page 26 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=26)
+
+26
+
+RESCUING A GREAT CROWD OF MANKIND
+
+nection with his spiritual temple, of which the Lamb Jesus Christ is the Chief Cornerstone. Their service to God on his throne is of a sacred kind, for they render to God the things that are God's. (Matthew 22:21) As persons who owe their salvation to God and his Lamb, they join in the worldwide work that Jesus Christ predicted for this time of the "conclusion of the system of things," as stated in Matthew 24:14: "This good news of the kingdom will be preached in all the inhabited earth for a witness to all the nations; and then the end will come." By taking part in this witness work they are, in effect, hailing God and his Lamb Jesus Christ with "palm branches in their hands."
+
+48 Because of this worldwide witness work the ruling elements and the armies of this world put pressure upon those of this "great crowd" to make them surrender and quit being on the side of God's kingdom, just as the five kings of Canaan and their armies besieged Gibeon and tried to force them to break their treaty with Joshua and his God Jehovah. But this the faithful ones of the "great crowd" refuse to do. They know that earthly rulers and their armies cannot give them life everlasting, and can in no way protect them from extermination along with worldly rulers and armies at Armageddon. They do not want the carrion birds to pick their bones of their dead bodies on the battlefield of Armageddon. They are full of faith that God, by means of his Greater Joshua, Jesus Christ, can protect them through
+
+48. (a) Because of such service, what do worldly rulers and their armies attempt to do with the "great crowd"? (b) How, then, do those of the "great crowd" act like the Gibeonites?
+
+---
+
+<sup>**Page 27**</sup>
+
+[Open Page 27 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=27)
+
+OUT OF ARMAGEDDON
+
+27
+
+Armageddon's war, just as he did the Gibeonites in Joshua's day.
+
+49 The 'war of the great day of God the Almighty' is not directed against this 'great crowd' if they remain faithful. It is directed against the symbolic wild beast, the beastly political system, and the kings of the entire earth and their armies and all their backers who attribute salvation to this political, religious, social, economic, scientific system of things. Those who hail the enthroned Jehovah God as their Savior through his Lamb Jesus Christ look to Him to rescue them out of Armageddon. And, according to his promise, God Almighty will do so. Nothing less than that is meant in those words of Revelation 7:15, that 'the one seated on the throne will spread his tent over them.'
+
+50 Quite in line with such a rescue it is said of this 'great crowd,' in Revelation 7:14: 'These are the ones that come out of the great tribulation.' The name 'the great tribulation' well applies to this time of tribulation that has been upon mankind since the year of the outbreak of World War I, to wit, 1914, and that will mount up to its highest destructiveness in the war of Armageddon, completely exterminating this worldly system of things. Such a tribulation, without parallel since the beginning of the world, will never occur again on earth, said Jesus Christ when warning his disciples to flee to God's place of refuge before the worst and final stage of this great tribulation. —Matthew 24:20-22.
+
+49. Against whom is God's war of Armageddon, and what do the 'great crowd' expect him to do there respecting them?
+
+50. What is the 'great tribulation' mentioned in Revelation 7:14, out of which the 'great crowd' come?
+
+---
+
+<sup>**Page 28**</sup>
+
+[Open Page 28 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=28)
+
+28
+
+RESCUING A GREAT CROWD OF MANKIND
+
+$^{51}$ As in the case of the Gibeonites, there is no time to delay. The threatening situation calls for God-fearing action _now_, not before a third world war could break out, but before the “great day of God the Almighty” comes like a thief and the war of that great day breaks out at Armageddon. The choice is between two clear positions now: Choose the God Almighty Jehovah and his Lamb Jesus Christ and live! Or, choose world rulers and their armies marching under the influence of expressions inspired by the Devil and his demons and die! Let no fear and trembling before men be a snare to your life. (Proverbs 29:25) Take your stand with the “great crowd” and tremble and fear before God Almighty and, under cover of his protection, “come out of the great tribulation.”
+
+$^{52}$ “Come out of the great tribulation” to what? To an earth cleansed and freed from all disturbers of peace, even the superhuman Satan and his demons being bound! Come out to an earth delivered from those who are today ruining the earth, polluting air, sea and land! Come out to an earth over which the Universal Sovereignty of God has been completely reestablished and his promised kingdom by Christ reigns to bless mankind forever. Come out to an earth in which fear and selfishness will not prevail, but the survivors rescued out of Armageddon will love and help one another as brothers and sisters, adopted by the Lamb of God as their Eternal Father. (Isaiah 9:6) Come out to an earth that these Armageddon
+
+51. (a) As in the case of the Gibeonites, what does the threatening situation call for? (b) What two clear positions are now open to take, and which one is the reader encouraged to take?
+
+52. Into what will the “great crowd” finally “come out of the great tribulation”?
+
+---
+
+<sup>**Page 29**</sup>
+
+[Open Page 29 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=29)
+
+OUT OF ARMAGEDDON
+
+29
+
+survivors will begin restoring from its ruin and transforming thus delightfully into a paradise everywhere under the blessing of God's heavenly kingdom!
+
+53 This earth, destined to become a paradise like the original garden of Eden, will not remain one vast cemetery holding in its bosom the thousands of millions for whom the Lamb of God once lovingly laid down his life in sacrifice. His own resurrection from the dead by God Almighty's power is an unbreakable guarantee that those for whom he presented the value of his perfect human sacrifice in heaven will also be resurrected under his kingdom. (Acts 17:31; 1 Corinthians 15:20; John 5:28, 29) What a time of ecstasy those Armageddon survivors will experience when they begin to receive back the dead to opportunities for eternal life in an earthly paradise under God's kingdom! Certainly this will redound to God's endless praise by Jesus Christ. It will justify God as having righteously brought this necessary calamity of Armageddon for his own vindication and for deliverance of all mankind.
+
+54 Dear Reader, is it worthwhile being rescued out of Armageddon? Do you as a lover of life answer Yes? Then join in this lifesaving work of helping people to the side of God's kingdom. It is work that leads to rescuing a great crowd out of Armageddon!
+
+53. What time of ecstasy will the 'great crowd' of Armageddon survivors experience with regard to the dead?
+
+54. How can lovers of life show that they believe it is worthwhile being rescued out of Armageddon?
+
+---
+
+<sup>**Page 30**</sup>
+
+[Open Page 30 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=30)
+
+# The Bible in Modern-Day English
+
+Modern English translation brings new life and understanding to the Bible. Familiar, everyday expressions help the reader to grasp information that is vital for gaining eternal life and rich blessings from its Great Author, Jehovah God. With understanding, too, comes new pleasure in delving into this storehouse of divine truth. Ideas, once cloaked in archaic English, now shine out with meaningful brilliance. The New World Translation of the Holy Scriptures awaits your inspection. Hard bound in green, gold-embossed cover, with maps and valuable concordance and appendix, it will be mailed, postpaid, for only \$1.
+
+## Answers to Your Bible Questions
+
+How can you be sure that among all the 'sacred books' the Bible is incomparable, worthy of your reliance? What is its unmistakable theme? Why has the God of the Bible permitted wickedness to continue for so long? Will it ever end? Are there clear evidences that we are living in the day of Christ's return? These are a few of the many questions answered in the fine Bible-study aid 'Things in Which It Is Impossible for God to Lie.' You will delight in its 416 absorbing pages, and they are certain to strengthen your faith in the Bible's Author. Beautifully illustrated; hard bound; gold-embossed green cover; sent, postpaid, for 50c.
+
+To order see opposite page for addresses.
+
+---
+
+<sup>**Page 31**</sup>
+
+[Open Page 31 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=31)
+
+Watch Tower Bible & Tract Society of Pennsylvania
+Watchtower Bible and Tract Society of New York, Inc.
+International Bible Students Association
+124 Columbia Heights, Brooklyn, New York 11201, U.S.A.
+
+# ADDRESSES OF BRANCH OFFICES:
+
+ALASKA 99501: 1435 Medfra Street, Anchorage. ARGENTINA: Calle Honduras 5646-48, Buenos Aires 14. AUSTRALIA: 11 Beresford Road, Strathfield, N.S.W. AUSTRIA: Gallgasse 44, A-1130 Vienna. BAHAMAS: Box 1247, Nassau, N.P. BARBADOS, W.I.: Fontabelle Rd., Bridgetown. BELGIUM: 28 Ave. Gen. Eisenhower, Schaerbeek-Brussels. BERLIN, WESTERN GERMANY: 49-50 Bayernallee, Charlottenburg 9. BOLIVIA: Casilla No. 1440, La Paz. BRAZIL: Rua Licinio Cardoso, 330, Rio de Janeiro, GB, ZC-15. BRITISH HONDURAS: Box 257, Belize. BURMA: P.O. Box 62, Rangoon. CAMEROUN, REP. FED. DU: B.P. 5.428, Douala-Akwa. CANADA: 150 Bridgeland Ave., Toronto 19, Ontario. CENTRAL AFRICAN REPUBLIC: B.P. 662, Bangui. CEYLON: 11 Sakvithi Lane, Colombo 5. CHILE: Moneda 1702-1710, Santiago. COLOMBIA: Apartado Aéreo 2587, Barranquilla. CONGO, REPUBLIC OF THE: B.P. 7409, Kinshasa 1. CONGO REPUBLIC: B.P. 2.114, Brazzaville. COSTA RICA: Apartado 2043, San José. CUBA: Avenida 15 Núm. 4608, Almendares, Marianao, Havana. CYPRUS: P.O. Box 1590, Nicosia. DANOMEY: B.P. 874, Cotonou. DENMARK: Kongevejen 207, Virum Copenhagen. DOMINICAN REPUBLIC: Avenida Francia 33, Santo Domingo. ECUADOR: Casilla 4512, Guayaquil. EL SALVADOR: Apartado 401, San Salvador. ENGLAND: Watch Tower House, The Ridgeway, London N.W. 7. FIJI: Box 23, Suva. FINLAND: Kuismatie 58, Tikkurila. FRANCE: 81, rue du Point-du-Jour, 92 - Boulogne-Billancourt (Hauts de Seine). GERMANY (WESTERN): Am Kohlheck, Postfach 13025, (62) Wiesbaden-Dotzheim. GHANA: Box 760, Accra. GREECE: No. 4 Kartali St., Athens 611. GUADELOUPE: B.P. 239, Pointe-à-Pitre. GUATEMALA: 11 Avenida 5-67, Guatemala 1. GUYANA: 50 Brickdam, Georgetown 11. HAITI: Post Box 185, Port-au-Prince. HAWAII 96814: 1228 Pensacola St., Honolulu. HONDURAS: Apartado 147, Tegucigalpa. HONG KONG: 312 Prince Edward Rd., Second Floor, Kowloon. ICELAND: P.O. Box 251, Reykjavik. INDIA: South Avenue, Santa Cruz, Bombay 54. INDONESIA: Djalan Banjuma 3, Djakarta. IRELAND: 86 Lindsay Rd., Glasnevin, Dublin 9. ITALY: Via Monte Maloia 32 (Monte Sacro), Rome. JAMAICA, W.I.: 41 Trafaigar Rd., Kingston 10. JAPAN: 1 Toyooka-Cho, Shibamita, Minato-Ku, Takanawa P.O., Tokyo. KENYA: Box 7788, Nairobi. KOREA: P.O. Box 7, Sodaemun-ku P.O., Seoul. LEBANON: P.O. Box 1122, Beirut. LEEWARD ISLANDS, W.I.: Box 119, St. Johns, Antigua. LIBERIA: P.O. Box 171, Monrovia. LUXEMBOURG: 1, rue de la Toison d'Or, Luxembourg G.D. MALAGASY REPUBLIC: 10, rue Barbier, Tananarive. MALAWI: Box 83, Blantyre. MAURITIUS: 12, rue Lebrun, Rose Hill. MEXICO: Calzada Melchor Ocampo 71, Mexico 4, D.F. MOROCCO: B.P. 1028 Principal, Tangier. NETHERLANDS: Voorburgstraat 10, Amsterdam 17. NETHERLANDS ANTILLES: Oosterbeekstraat 11, Willemstad, Curaçao. NEWFOUNDLAND, CANADA: 239 Pennywell Rd., St. John's. NEW ZEALAND: 621 New North Rd., Auckland 3. NICARAGUA: Apartado 183, Managua, D.N. NIGERIA: P.O. Box 194, Yaba, Colony. NORWAY: Inkognitogaten 28 B., Oslo. OKINAWA, RYUKYU IS.: Higashi P.O. Box 2004, 91 Asato, Naha City. PAKISTAN: 8-E Habibullah Rd., Lahore. PANAMA: Apartado 1386, Panama 1. PAPUA: Box 113, Port Moresby. PARAGUAY: Casilla de Correo 482, Asunción. PERU: Gervasio Santillana 370, Miraflores, Lima. PHILIPPINE REPUBLIC: 186 Roosevelt Ave., San Francisco del Monte, Quezon City. PUERTO RICO 00909: 704 Calle Lafayette, Pda. 21, Santurce. RHODESIA: P.O. Box 1462, Salisbury. SENEGAL: B.P. 3107, Dakar. SIERRA LEONE: Box 136, Freetown. SINGAPORE: 33 Poole Road, Singapore 15. SOUTH AFRICA: Private Bag 2, P.O. Elandsfontein, Transvaal. SURINAM: Box 49, Wichersstr. 8, Paramaribo. SWEDEN: Folkungavagen 8, Jakobsberg. SWITZERLAND: Allmendstrasse 39, 3000 Berne 22. TAIWAN (REPUBLIC OF CHINA): No. 5 Lane 99, Yun-Ho St., Taipei. THAILAND: Box 67, Bangkok. TOGO REPUBLIC: B.P. 1237, Lomé. TRINIDAD, W.I.: 21 Taylor St., Woodbrook, Port of Spain. UNITED STATES OF AMERICA: 117 Adams St., Brooklyn, N.Y. 11201. URUGUAY: Francisco Bauza 3372, Montevideo. VENEZUELA: Avda. Honduras, Quinta Luz, Urb. Las Acacias, Caracas, D.F. ZAMBIA: Box 1598, Kitwe.
+
+---
+
+<sup>**Page 32**</sup>
+
+[Open Page 32 of PDF](https://pdfs-noindex.themindscapeishere.workers.dev/1967%20Rescuing%20a%20great%20crowd%20of%20mankind%20out%20of%20Armageddon.pdf#page=32)
+
+# YOU CAN LIVE FOREVER!
+
+![img-1.jpeg](img-1.jpeg)
+
+A volume that can lead you to a more satisfying life
+
+A Bible-study aid that shows how you can gain life everlasting in true freedom
+
+## Life Everlasting—in Freedom of the Sons of God
+
+What must you do to gain everlasting life? Jesus Christ said that taking in right knowledge 'means everlasting life.' (John 17:3) And right knowledge is what this 416-page book contains. In it you can learn how mankind came into enslavement to sin and death, how and when liberation is to come, and what life will then be like. Its chart of chronology reveals that few years remain for this present wicked system of things. You will thrill to this volume's description of the earth's transformation into a paradise of freedom. Learn from its pages about the marvels of the resurrection. Discover how you can live forever. Obtain and read this excellent Bible handbook. Hard bound, gold-embossed red cover, it is sent, postpaid, for only 50c.
+
+To order see inside back cover for addresses.
