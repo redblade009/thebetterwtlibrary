@@ -20,68 +20,120 @@ jobs:
       - name: Checkout Code
         uses: actions/checkout@v4
 
-      # FIXED: Creates a raw local skeleton theme structure so Hugo doesn't need to download anything from the web
+      # FIXED: Builds full page renderers so your actual vault text and folders are fully explorable
       - name: Create Internal Theme Fallbacks
         run: |
           mkdir -p themes/blowfish/layouts/_default
           
-          # 1. Build the base HTML container layout sheet
+          # 1. Base Shell Layout (Adds an Obsidian-like dark theme shell)
           cat << 'EOF' > themes/blowfish/layouts/_default/baseof.html
           <!DOCTYPE html>
-          <html>
+          <html lang="en">
           <head>
-            <title>{{ .Title }}</title>
+            <meta charset="utf-8">
+            <meta name="viewport" content="width=device-width, initial-scale=1.0">
+            <title>{{ if .IsHome }}{{ .Site.Title }}{{ else }}{{ .Title }} - {{ .Site.Title }}{{ end }}</title>
             <style>
-              body { font-family: sans-serif; margin: 40px; background: #111; color: #eee; }
-              input { width: 100%; padding: 12px; background: #222; color: #fff; border: 1px solid #444; font-size: 16px; }
-              #results { margin-top: 20px; }
-              .result-item { background: #222; padding: 15px; margin-bottom: 10px; border-radius: 4px; }
-              a { color: #58a6ff; text-decoration: none; font-weight: bold; }
+              :root { --bg: #1e1e2e; --surface: #252538; --text: #cdd6f4; --accent: #89b4fa; --border: #313244; }
+              body { font-family: -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, Helvetica, Arial, sans-serif; margin: 0; background: var(--bg); color: var(--text); display: flex; flex-direction: column; min-height: 100vh; }
+              header { background: var(--surface); border-bottom: 1px solid var(--border); padding: 15px 30px; display: flex; justify-content: space-between; align-items: center; position: sticky; top: 0; z-index: 100; }
+              header h1 a { color: var(--accent); text-decoration: none; font-size: 20px; font-weight: 700; }
+              .search-container { position: relative; width: 400px; }
+              .search-container input { width: 100%; padding: 10px 15px; background: var(--bg); color: var(--text); border: 1px solid var(--border); border-radius: 6px; box-sizing: border-box; font-size: 14px; }
+              #search-results { position: absolute; top: 100%; left: 0; right: 0; background: var(--surface); border: 1px solid var(--border); border-radius: 0 0 6px 6px; max-height: 400px; overflow-y: auto; display: none; box-shadow: 0 10px 25px rgba(0,0,0,0.5); }
+              .search-item { padding: 12px 15px; border-bottom: 1px solid var(--border); cursor: pointer; }
+              .search-item:hover { background: #2f2f47; }
+              .search-item a { color: var(--accent); text-decoration: none; font-weight: 600; display: block; margin-bottom: 4px; }
+              .search-item p { margin: 0; font-size: 12px; color: #a6adc8; overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
+              .layout-container { display: flex; flex: 1; width: 100%; max-width: 1400px; margin: 0 auto; }
+              aside { width: 280px; background: var(--surface); border-right: 1px solid var(--border); padding: 25px; box-sizing: border-box; height: calc(100vh - 65px); position: sticky; top: 65px; overflow-y: auto; }
+              aside h3 { margin-top: 0; color: #a6adc8; font-size: 12px; text-transform: uppercase; letter-spacing: 1px; }
+              aside ul { list-style: none; padding: 0; margin: 0; }
+              aside li { margin-bottom: 10px; }
+              aside a { color: var(--text); text-decoration: none; font-size: 14px; }
+              aside a:hover { color: var(--accent); }
+              main { flex: 1; padding: 40px; box-sizing: border-box; max-width: 800px; line-height: 1.6; }
+              h1 { color: var(--accent); margin-top: 0; }
+              a { color: var(--accent); }
+              pre { background: var(--surface); padding: 15px; border-radius: 6px; overflow-x: auto; border: 1px solid var(--border); }
+              code { font-family: monospace; background: var(--surface); padding: 2px 6px; border-radius: 4px; }
             </style>
           </head>
           <body>
-            {{ block "main" . }}{{ end }}
+            <header>
+              <h1><a href="{{ .Site.BaseURL }}">{{ .Site.Title }}</a></h1>
+              <div class="search-container">
+                <input type="text" id="search-bar" placeholder="Search full text across 7,500 notes...">
+                <div id="search-results"></div>
+              </div>
+            </header>
+            <div class="layout-container">
+              <aside>
+                <h3>All Documents</h3>
+                <ul>
+                  {{ range .Site.RegularPages.ByTitle | first 50 }}
+                    <li><a href="{{ .Permalink }}">{{ .Title }}</a></li>
+                  {{ end }}
+                </ul>
+              </aside>
+              <main>
+                {{ block "main" . }}{{ end }}
+              </main>
+            </div>
+            <script>
+              let sIndex = [];
+              fetch('{{ "index.json" | relURL }}').then(r => r.json()).then(d => sIndex = d);
+              const bar = document.getElementById('search-bar');
+              const res = document.getElementById('search-results');
+              bar.addEventListener('input', (e) => {
+                const q = e.target.value.toLowerCase();
+                res.innerHTML = '';
+                if(!q) { res.style.display = 'none'; return; }
+                const hits = sIndex.filter(i => i.title.toLowerCase().includes(q) || i.content.toLowerCase().includes(q)).slice(0, 10);
+                if(hits.length > 0) {
+                  res.style.display = 'block';
+                  hits.forEach(h => {
+                    res.innerHTML += `<div class="search-item"><a href="${h.permalink}">${h.title}</a><p>${h.content}</p></div>`;
+                  });
+                } else { res.style.display = 'none'; }
+              });
+              document.addEventListener('click', (e) => { if(!bar.contains(e.target)) res.style.display = 'none'; });
+            </script>
           </body>
           </html>
           EOF
 
-          # 2. Build the main layout interface template file
+          # 2. Homepage Interface Layout
           cat << 'EOF' > themes/blowfish/layouts/_default/list.html
           {{ define "main" }}
           <h1>{{ .Title }}</h1>
-          <input type="text" id="search-input" placeholder="Type to search all 7,500 notes instantly...">
-          <div id="results"></div>
-
-          <script>
-            let index = [];
-            // Dynamically loads the deep full-text index file generated by Hugo
-            fetch('{{ "index.json" | relURL }}')
-              .then(response => response.json())
-              .then(data => index = data);
-
-            document.getElementById('search-input').addEventListener('input', (e) => {
-              const query = e.target.value.toLowerCase();
-              const resultsDiv = document.getElementById('results');
-              resultsDiv.innerHTML = '';
-              if(!query) return;
-
-              const matches = index.filter(item => 
-                item.title.toLowerCase().includes(query) || 
-                item.content.toLowerCase().includes(query)
-              ).slice(0, 20); // Top 20 relevant results shown cleanly
-
-              matches.forEach(item => {
-                resultsDiv.innerHTML += `<div class="result-item"><a href="${item.permalink}">${item.title}</a><p>${item.content.substring(0, 160)}...</p></div>`;
-              });
-            });
-          </script>
+          <div class="content-body">
+            {{ .Content }}
+          </div>
+          {{ if .Pages }}
+          <h2 style="margin-top: 30px; font-size: 18px; color: #a6adc8;">Notes in this section:</h2>
+          <ul style="padding-left: 20px;">
+            {{ range .Pages }}
+              <li style="margin-bottom: 8px;"><a href="{{ .Permalink }}" style="font-weight: bold;">{{ .Title }}</a></li>
+            {{ end }}
+          </ul>
+          {{ end }}
           {{ end }}
           EOF
 
-          # 3. Mirror layouts to single items to prevent structural build panic warnings
-          cp themes/blowfish/layouts/_default/list.html themes/blowfish/layouts/_default/single.html
+          # 3. Individual Document / Note Content Layout
+          cat << 'EOF' > themes/blowfish/layouts/_default/single.html
+          {{ define "main" }}
+          <article>
+            <h1>{{ .Title }}</h1>
+            <div class="content-markdown" style="font-size: 16px; color: #eceff4;">
+              {{ .Content }}
+            </div>
+          </article>
+          {{ end }}
+          EOF
 
-          # 4. Build the structural Full-Text Data Extraction Layout
+          # 4. JSON Full-Text Data Indexer Schema
           mkdir -p themes/blowfish/layouts/home
           cat << 'EOF' > themes/blowfish/layouts/home.json
           [
