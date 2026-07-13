@@ -26,9 +26,11 @@ jobs:
           hugo-version: 'latest'
           extended: true
 
-      # Download theme layouts directly via Hugo, completely bypassing git-cloning bugs
-      - name: Download Theme Modules
-        run: hugo mod get -u
+      # FIXED: Initializes a temporary project scope so Hugo can fetch modules securely without local file dependencies
+      - name: Initialize Module Environment
+        run: |
+          hugo mod init ://github.com
+          hugo mod get -u
 
       - name: Compile 7,500 Full-Text Notes
         run: hugo --minify
