@@ -156,7 +156,7 @@ jobs:
           extended: true
 
       - name: Compile 7,500 Full-Text Notes
-        run: hugo --minify
+        run: hugo --minify --buildDrafts
 
       - name: Upload Website Artifact
         uses: actions/upload-pages-artifact@v3
