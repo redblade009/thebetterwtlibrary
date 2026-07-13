@@ -1,6 +1,5 @@
 site_name: The Better Watchtower Library
 site_url: https://redblade009.github.io/thebetterwtlibrary/
-
 docs_dir: 'content'
 
 theme:
