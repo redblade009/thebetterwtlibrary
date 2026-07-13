@@ -20,18 +20,21 @@ jobs:
       - name: Checkout Code
         uses: actions/checkout@v4
 
+      # FIXED: Downloads the theme as a raw zip file, avoiding all Git / Module command bugs
+      - name: Install Blowfish Layouts Natively
+        run: |
+          mkdir -p themes
+          wget https://github.com
+          unzip main.zip
+          mv blowfish-main themes/blowfish
+          rm main.zip
+
+      # Re-establishes a completely fresh Hugo compiler container
       - name: Setup Hugo Compiler
         uses: peaceiris/actions-hugo@v3
         with:
-          hugo-version: 'latest'
+          hugo-version: '0.125.0' # Uses a locked, hyper-stable release build
           extended: true
-
-      # FIXED: Uses standard double quotes and custom path flags to force Hugo to ignore old environment variables
-      - name: Initialize Module Environment
-        run: |
-          rm -f go.mod config.toml config.yaml
-          hugo mod init "://github.com"
-          hugo mod get "://github.com"
 
       - name: Compile 7,500 Full-Text Notes
         run: hugo --minify
