@@ -6,11 +6,4 @@ hasCJKLanguage: true
 enableRobotsTXT: true
 
 outputs:
-  home: ["HTML", "RSS", "JSON"] # Generates your complete paragraph full-text search index matrix
-
-params:
-  search:
-    enable: true
-    showDialogueHeader: true
-    enableShortcuts: true
-    layout: "canary"
+  home: ["HTML", "RSS", "JSON"]
