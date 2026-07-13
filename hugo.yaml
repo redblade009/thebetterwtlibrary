@@ -1,0 +1,19 @@
+#===== HUGO CONFIG =====
+
+baseURL: "https://github.io"
+title: "Better WT Library"
+theme: "blowfish"
+
+# Tells Hugo to read your standard Markdown file links cleanly
+enableRobotsTXT: true
+hasCJKLanguage: true
+
+outputs:
+  home: ["HTML", "RSS", "JSON"] # Crucial: This generates the complete paragraph text search layer
+
+params:
+  search:
+    enable: true
+    showDialogueHeader: true
+    enableShortcuts: true
+    layout: "canary" # Uses high-performance indexing models
