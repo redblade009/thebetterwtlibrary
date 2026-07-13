@@ -2,7 +2,7 @@ name: Deploy Hugo Site
 on:
   push:
     branches:
-      - v5 # Matches your current default branch name
+      - v5
 
 permissions:
   contents: read
@@ -19,8 +19,12 @@ jobs:
     steps:
       - name: Checkout Code
         uses: actions/checkout@v4
-        with:
-          submodules: recursive # Automatically downloads the Blowfish theme structure
+
+      # FIXED: Directly downloads the theme into themes/blowfish, skipping fragile submodule links
+      - name: Download Blowfish Theme
+        run: |
+          mkdir -p themes
+          git clone --depth 1 https://github.com themes/blowfish
 
       - name: Setup Hugo Compiler
         uses: peaceiris/actions-hugo@v3
