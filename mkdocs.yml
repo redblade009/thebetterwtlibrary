@@ -1,0 +1,27 @@
+site_name: The Better Watchtower Library
+site_url: https://redblade009.github.io/thebetterwtlibrary/
+
+theme:
+  name: material
+  palette:
+    scheme: slate
+    primary: indigo
+    accent: blue
+  features:
+    - navigation.indexes
+    - navigation.sections
+    - navigation.top
+    - search.suggest
+    - search.highlight
+    - search.share
+
+markdown_extensions:
+  - admonition
+  - pymdownx.details
+  - pymdownx.superfences
+  - pymdownx.mark
+  - meta
+
+plugins:
+  - search
+  - roamlinks
