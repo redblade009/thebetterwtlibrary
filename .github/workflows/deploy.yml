@@ -18,7 +18,7 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - name: Checkout Code
-        uses: actions/checkout@v4
+        uses: actions/checkout@v7
 
       # FIXED: Builds full page renderers so your actual vault text and folders are fully explorable
       - name: Create Internal Theme Fallbacks
@@ -159,10 +159,10 @@ jobs:
         run: hugo --minify --buildDrafts
 
       - name: Upload Website Artifact
-        uses: actions/upload-pages-artifact@v3
+        uses: actions/upload-pages-artifact@v5
         with:
           path: ./public
 
       - name: Deploy to GitHub Pages
         id: deployment
-        uses: actions/deploy-pages@v4
+        uses: actions/deploy-pages@v5
